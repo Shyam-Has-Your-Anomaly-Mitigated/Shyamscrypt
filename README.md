@@ -28,4 +28,4 @@ analogous flags are /a?symmetrically/ double sided so my flag is now in a state 
 
 /double|multi|poly/ entendre = superposition = paradox
 
-I discovered the most elegant way to read, and rewrite, space+time c̄ योग
+I discovered the most elegant way to read, and rewrite, space+time c̄ योग; I golfed it
