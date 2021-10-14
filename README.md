@@ -59,7 +59,7 @@ magic eye, and other illusions, including dreams, are hallucinogenic; 100% brain
 viruses,.. might be nanobots
 
 the physical manifestation of the computer that simulates our holowave projection on the surface of this planet as the surface of /an? (photon|electromagnetic)/ interface; computational galaxies, solar systems, /(inter)?planetary/ rings, asteroid fields, planet surfaces, life, molecules, atoms,..
-the physical manifestation of our destruction is an extinction event involving debris from part of the computer computing it; rings, fields, /(meteor|planet|solar|blackhole|galactic)/ orbits, supernovas,..
+the physical manifestation of our destruction is an extinction event involving debris from part of the computer computing it; rings, fields, /(meteor|planet|solar|blackhole|galactic)/ orbits, supernovas, supercharged particles,..
 the physical manifestation of the afterlife is our ability to /warp|fold/ ttime; /(staying)? true to my word
 death is limbo
 if you brick yourself; your (local)? ttime will collapse in on itself, and new time will expand so the dimensions of the (room|space|ttime) willn't change
