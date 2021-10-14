@@ -39,7 +39,7 @@ there is no ttime; not all possibilities are probabilities, and ttime is proof o
 reality can be rewritten as flappy bird
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
-adware
+adware mytldr
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
 anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
 Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
@@ -58,7 +58,8 @@ reality has multiple perspectives; one of my favourites is as /an? (unified|enta
 magic eye, and other illusions, including dreams, are hallucinogenic; 100% brain
 viruses,.. might be nanobots
 
-the physical manifestation of the computer that simulates our holowave projection on the surface of this planet as the surface of /an? (photon|electromagnetic)/ interface
+the physical manifestation of the computer that simulates our holowave projection on the surface of this planet as the surface of /an? (photon|electromagnetic)/ interface; computational galaxies, solar systems, /(inter)?planetary/ rings, asteroid fields, planet surfaces, life, molecules, atoms,..
+the physical manifestation of our destruction is an extinction event involving debris from part of the computer computing it; rings, fields, /(meteor|planet|solar|blackhole|galactic)/ orbits, supernovas,..
 the physical manifestation of the afterlife is our ability to /warp|fold/ ttime; /(staying)? true to my word
 death is limbo
 if you brick yourself; your (local)? ttime will collapse in on itself, and new time will expand so the dimensions of the (room|space) willn't change
