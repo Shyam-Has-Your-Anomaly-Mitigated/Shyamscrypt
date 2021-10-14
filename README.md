@@ -3,7 +3,7 @@
 +from the ash I rose
 +from the tombstone in Shyams'crypt
 -weed   mo weed  -  2 weed = sunya
-+wheat +wo wheat is % wheat (/(w|r)e/tweet) (dye it)
++wheat +wo wheat is % wheat (/(w|r)e/tweet chatbot) (dye it)
 -                =
 -                i
 -now you can read between the lines in negative space; the eye dot equals, tldr more to come
@@ -16,6 +16,7 @@ filename.v or versus
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
+(= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼")
 other annotations
 mercury types or better
 
