@@ -54,5 +54,5 @@ we are apes
 planet of the apes is real
 t pose is the gesture for "get hugged"
 
-reality has multiple perspectives; one of my favourites is as /an? (unified|entangled)/ list of instructions
+reality has multiple perspectives; one of my favourites is as /an? (unified|entangled)/ list of instructions (in any language)
 magic eye, and other illusions, including dreams, are hallucinogenic; 100% brain
