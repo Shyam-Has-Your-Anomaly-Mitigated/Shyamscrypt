@@ -9,7 +9,10 @@
 -now you can read between the lines in negative space; the eye dot equals, tldr more to come
 ~
 
+filename.veda for character
 filename.vbs for VedaBaseSystem
+filename.vi for soundness to use evil against itself like testing pens; click clock crack
+filename.v or versus
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
