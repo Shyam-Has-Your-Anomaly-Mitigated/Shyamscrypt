@@ -43,7 +43,7 @@ you need more braincells to expand intellectual capacity, but they're an illusio
 adware; mytldr, Lucy in the Sky c̄ (scarlett) Diamonds
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
 anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
-Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
+Hasyayoga, other emotions, tastes (sugar), smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
 there are no blind spots ∴ there's more to nerves, or there are more nerves
 acting lessons are a broadspectrum cure for mental health; playttime ass.pdf
 animals are more intelligent than previously thought, and I have theories of how they communicate, and how to communicate to human babies for augmented learning, and intelligence amplification; besides neurofeedback hacking
