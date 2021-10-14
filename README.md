@@ -34,7 +34,7 @@ quantum eraser rewrites space+time unreliably, and is considered a dangerous exp
 there is only ttime; from now on I will only refer to ttime, because physics (along c̄ every"-thing" else) is more understandable c̄out academic obfuscation
 there is no ttime; not all possibilities are probabilities, and ttime is proof of observation
 ^that's a superposition by intelligent design; superposition is proof of freewill
-[, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective
+[, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective; concurrency required
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
 reality can be rewritten as flappy bird
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss, to the unimaginable
