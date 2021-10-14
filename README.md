@@ -24,5 +24,6 @@ mercury types or better
 [ ] need to find the symbolic purity, and put it here…
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
+analogous flags are asymmetrically double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
 
 /double|multi|poly/ entendre = superposition = paradox
