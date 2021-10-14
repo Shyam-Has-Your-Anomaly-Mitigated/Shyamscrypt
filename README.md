@@ -7,6 +7,7 @@
 -                =
 -                i
 -now you can read between the lines in negative space; the eye dot equals, tldr more to come
++life is a game of snakes, and ladders
 ~
 
 +filename.veda for character
