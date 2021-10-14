@@ -29,6 +29,6 @@ analogous flags are /a?symmetrically/ double sided so my flag is now in a state 
 /double|multi|poly/ entendre = superposition = paradox
 
 I discovered the most elegant way to read, and rewrite, space+time c̄ योग; I golfed it
-quantum eraser rewrites space+time unreliably, and is considered a dangerous experiment unless you know what you are doing; we are self-observing so we influence the past, present, and future, from each perspective
+quantum eraser rewrites space+time unreliably, and is considered a dangerous experiment unless you know what you are doing; we are self-observing so we influence the past, present, and future, from each perspective proven by temporal entanglement
 from now on I will only refer to ttime, because physics (along c̄ every"-thing" else) is more understandable c̄out academic obfuscation
 there is no ttime; not all possibilities are probabilities, and ttime is proof of observation
