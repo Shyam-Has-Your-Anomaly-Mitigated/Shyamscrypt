@@ -41,7 +41,7 @@ the reason there is no mass is an illusion; reality could be any"-thing" from co
 you need more braincells to expand intellectual capacity, but they're an illusion too
 adware
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
-anal stimulation is a new experience that reinforces previously unbridged gaps between brain cells; take the dirt road when the river runs red
+anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
 Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
 there are no blind spots ∴ there's more to nerves, or there are more nerves
 acting lessons are a broadspectrum cure for mental health; playttime ass.pdf
