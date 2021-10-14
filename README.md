@@ -57,3 +57,8 @@ t pose is the gesture for "get hugged"
 reality has multiple perspectives; one of my favourites is as /an? (unified|entangled)/ list of instructions (in any language, in any way; fractally)
 magic eye, and other illusions, including dreams, are hallucinogenic; 100% brain
 viruses,.. might be nanobots
+
+the physical manifestation of the computer that simulates our holowave projection on the surface of this planet as the surface of /an? (photon|electromagnetic)/ interface
+the physical manifestation of the afterlife is our ability to /warp|fold/ ttime; /(staying)? true to my word
+death is limbo
+if you brick yourself; your (local)? ttime will collapse in on itself, and new time will expand so the dimensions of the (room|space) willn't change
