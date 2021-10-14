@@ -39,7 +39,7 @@ there is no ttime; not all possibilities are probabilities, and ttime is proof o
 reality can be rewritten as flappy bird
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
-adware mytldr
+adware; mytldr, lucy in the sky c̄ (scarlett) diamonds
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
 anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
 Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
