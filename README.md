@@ -37,7 +37,7 @@ there is no ttime; not all possibilities are probabilities, and ttime is proof o
 [, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective; concurrency required
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
 reality can be rewritten as flappy bird
-the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss, to the unimaginable
+the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
 adware
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
@@ -56,3 +56,4 @@ t pose is the gesture for "get hugged"
 
 reality has multiple perspectives; one of my favourites is as /an? (unified|entangled)/ list of instructions (in any language, in any way; fractally)
 magic eye, and other illusions, including dreams, are hallucinogenic; 100% brain
+viruses,.. might be nanobots
