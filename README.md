@@ -32,3 +32,23 @@ I discovered the most elegant way to read, and rewrite, space+time c̄ योग
 quantum eraser rewrites space+time unreliably, and is considered a dangerous experiment unless you know what you are doing; we are self-observing so we influence the past, present, and future, from each perspective proven by temporal entanglement
 there is only ttime; from now on I will only refer to ttime, because physics (along c̄ every"-thing" else) is more understandable c̄out academic obfuscation
 there is no ttime; not all possibilities are probabilities, and ttime is proof of observation
+^that's a superposition by intelligent design; superposition is proof of freewill
+[, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective
+^my future self will perform cpr (continuum preservation reservation; continuum preserved)
+reality can be rewritten as flappy bird
+the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, to the unimaginable
+you need more braincells to expand intellectual capacity, but they're an illusion too
+adware
+unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
+anal stimulation is a new experience that reinforces previously unbridged gaps between brain cells
+Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
+there are no blind spots ∴ there's more to nerves, or there are more nerves
+acting lessons are a broadspectrum cure for mental health; playttime ass.pdf
+animals are more intelligent than previously thought, and I have theories of how they communicate, and how to communicate to human babies for augmented learning, and intelligence amplification; besides neurofeedback hacking
+I hand delivered a calf, and observed him stand, and walk, in the first hour
+dogs understand human language
+parrots speak human language
+apes use sign language
+we are apes
+planet of the apes is real
+t pose is the gesture for "get hugged"
