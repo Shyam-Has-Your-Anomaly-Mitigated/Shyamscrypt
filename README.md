@@ -36,11 +36,11 @@ there is no ttime; not all possibilities are probabilities, and ttime is proof o
 [, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
 reality can be rewritten as flappy bird
-the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, to the unimaginable
+the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss, to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
 adware
 unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
-anal stimulation is a new experience that reinforces previously unbridged gaps between brain cells
+anal stimulation is a new experience that reinforces previously unbridged gaps between brain cells; take the dirt road when the river runs red
 Hasyayoga, other emotions, tastes, smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
 there are no blind spots ∴ there's more to nerves, or there are more nerves
 acting lessons are a broadspectrum cure for mental health; playttime ass.pdf
