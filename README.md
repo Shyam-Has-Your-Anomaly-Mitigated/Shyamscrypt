@@ -91,3 +91,4 @@ that's better; see? I saved myself, like I said I would; as I rip off my shirt
 is physics the (material|illusion) v (spiritual|reality) (in a matrix pill)? superpositionally both is the right answer to the right question; what is right angle?
 right (comm(en|i)treasure)?
 I am fucking all, the girls, since that's everybody else cast under my magic spellusion
+I reject everybody elses' s/reality/illusion/, and substitute my own
