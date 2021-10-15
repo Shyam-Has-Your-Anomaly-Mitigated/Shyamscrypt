@@ -30,6 +30,8 @@ other annotations
 mercury types or better
 
 [ ] need to find the symbolic purity, and put it here…
+[ ] reading list:
+ [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
