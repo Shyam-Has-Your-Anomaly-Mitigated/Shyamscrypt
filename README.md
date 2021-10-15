@@ -8,7 +8,7 @@
 +wheat +wo wheat is % wheat (/(w|r)e/tweet chatbot) (dye it)
 -                =
 -                i
--now you can read between the lines in negative space; the eye dot equals, tldr more to come
+-now you can read between the lines in negative space; \n+the eye dot equals, tldr more to come
 +life is a game of snakes, and ladders
 ~
 -      𝄞3
