@@ -1,6 +1,8 @@
 ```
 # Shyamscrypt
+-               🌹
 +from the ash I rose
+-         इ.सि.         the
 +from the tombstone in Shyams'crypt
 -weed   mo weed  -  2 weed = sunya
 +wheat +wo wheat is % wheat (/(w|r)e/tweet chatbot) (dye it)
