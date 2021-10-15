@@ -11,6 +11,8 @@
 -now you can read between the lines in negative space; the eye dot equals, tldr more to come
 +life is a game of snakes, and ladders
 ~
++shyam rules
+-the name of my barely legal judicial system
 
 +filename.veda for character
 +filename.vbs for VedaBaseSystem
