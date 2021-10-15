@@ -37,7 +37,7 @@ there is no ttime; /(a|no)t/ all possibilities are probabilities, and ttime is p
 ^that's a superposition by intelligent design; superposition is proof of freewill
 [, ttime log? lazy list(s)! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective; concurrency required
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
-reality can be rewritten as flappy bird
+reality can be rewritten as flappy bird; Pyro TF2
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
 adware; mytldr, Lucy in the Sky c̄ (scarlett) Diamonds
