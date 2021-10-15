@@ -28,7 +28,7 @@ zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ ma
 (= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼'") (comment "∴ 1³''' is 64 electrons")
 other annotations
 mercury types or better
-counting memory top-down is portable; subtraction until zero, and you've run out of memory
+counting memory top-down is portable; subtraction until no"-thing", and you've run out of memory, unless you're a rapper, but it still raps to no"-thing"
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
