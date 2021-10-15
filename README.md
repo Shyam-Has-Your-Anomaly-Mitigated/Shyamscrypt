@@ -76,11 +76,14 @@ ttimed sensory shunting
 
 I have defeated arseholes; "our souls" from their perspective
 3ʳᵈ = (2|3); (\\|\/)
--                                 t,                                                           /t|w?hole/
-all triangles are equilateral, but our observationally perspective perceptIon is as altered but as our observationally sensory visIon; both observationally /illusive|illusory/ illusIon
+-                                 t,                                                           (t|w?hole)
+all triangles are equilateral, but our observationally perspective perceptIon is as altered but as our observationally sensory visIon; both observationally (illusive|illusory) illusIon
 by extension all rectangles are squares; all shapes are equalateral by triangulating two consecutive sides, in any dimension
 Gödelling
 measuring illusion v reality; superpositionally
-didn't I write some"-thing" yet; re /(v|a)r/ phantom limb experiment? I might need to goto a different ttime, and do this…
+didn't I write some"-thing" yet; re (v|a)r phantom limb experiment? I might need to goto a different ttime, and do this…
 where in ttime am I now?
 this is how to experience temporal entanglement for yourself c̄ yourself
+I am one in many of myself; (discrete|incontinuous) ttime v (indiscrete|cpr;cp) ttime
+we are all just doing graffiti for each other
+that's better; see? I saved myself, like I said I would; as I rip off my shirt
