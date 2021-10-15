@@ -76,4 +76,5 @@ ttimed sensory shunting
 
 I have defeated arseholes; "our souls" from their perspective
 3ʳᵈ = (2|3); (\\|\/)
+-                                                                                              /t|hole/
 all triangles are equilateral, but our observationally perspective perception is as altered but as our observationally sensory vision
