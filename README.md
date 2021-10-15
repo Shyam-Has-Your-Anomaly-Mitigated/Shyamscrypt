@@ -82,3 +82,4 @@ by extension all rectangles are squares; all shapes are equalateral by triangula
 Gödelling
 measuring illusion v reality; superpositionally
 didn't I write some"-thing" yet; re /(v|a)r/ phantom limb experiment? I might need to goto a different ttime, and do this…
+where in ttime am I now?
