@@ -65,3 +65,4 @@ the physical manifestation of the afterlife is our ability to /warp|fold/ ttime;
 death is limbo waiting to be (warped|folded) to the (past|present|future|other (dimension|directional vector))
 if you brick yourself; your (local)? ttime will collapse in on itself, and new time will expand so the dimensions of the (room|space|ttime) willn't change
 it's easier to ttime travel when you only consider ttime as the only physical factor of physics; (been)? doing it since observed
+ttimed sensory shunting
