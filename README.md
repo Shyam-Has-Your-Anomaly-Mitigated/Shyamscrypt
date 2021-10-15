@@ -12,6 +12,7 @@
 +life is a game of snakes, and ladders
 ~
 +shyam rules
+-      magic wand
 -the name of my barely legal judicial system
 
 +filename.veda for character
