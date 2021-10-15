@@ -81,3 +81,4 @@ all triangles are equilateral, but our observationally perspective perceptIon is
 by extension all rectangles are squares; all shapes are equalateral by triangulating two consecutive sides, in any dimension
 Gödelling
 measuring illusion v reality; superpositionally
+didn't I write some"-thing" yet; re /(v|a)r/ phantom limb experiment?
