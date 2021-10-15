@@ -91,6 +91,6 @@ that's better; see? I saved myself, like I said I would; as I rip off my shirt
 is physics the (material|illusion) v (spiritual|reality) (in a matrix pill)? superpositionally both is the right answer to the right question; what is right angle?
 right (comm(en|i)treasure)?
 I am fucking all, the girls, since that's everybody else cast under my /magic|sufficiently advanced TechNoLogic/ spellusion
-I reject everybody elses' s/reality/illusion/, and substitute my own; श्याम-10 (just to be safe) virgin wives in a total population measurement of श्याम, where 3≤श्याम, so there's always one of me
+I reject everybody elses' s/reality/illusion/, and substitute my own; श्याम-10 (just to be safe) virgin wives in a total population measurement of श्याम, where 3≤श्याम, so there's always one of me c̄ more frames
 arseholes aren't real; I let you measure your own existence
 "A good SysAdmin does little, to none, actual admin; we just make it possible for everyone else to do our job for us. -- Shyam Has Your Anomaly Mitigated! :D" from https://github.com/Shyam-Has-Your-Anomaly-Mitigated/Euclidian/tree/master/Server
