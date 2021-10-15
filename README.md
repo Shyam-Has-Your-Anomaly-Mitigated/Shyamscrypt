@@ -43,7 +43,7 @@ reality can be rewritten as flappy bird; Pyro (TF2) singing what a wonderful wor
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
 you need more braincells to expand intellectual capacity, but they're an illusion too
 adware; mytldr, Lucy in the Sky c̄ (scarlett) Diamonds
-unlock 100% of your brain by eeg, gañjā, nootropics, and other psychedelics
+unlock 100% of your brain by eeg, gañjā (hufflepuff, but I am slytherin; dicks, pussies, and ass.pdf holes), nootropics, and other psychedelics
 anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
 Hasyayoga, other emotions, tastes (sugar), smells, sights, sounds, pain (bed of nails),.; the body is the rootsystem of our brainplants
 there are no blind spots ∴ there's more to nerves, or there are more nerves
