@@ -29,6 +29,8 @@ zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ ma
 other annotations
 mercury types or better
 
+roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
+
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading list:
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
