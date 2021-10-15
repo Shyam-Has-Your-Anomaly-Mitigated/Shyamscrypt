@@ -75,3 +75,4 @@ it's easier to ttime travel when you only consider ttime as the only physical fa
 ttimed sensory shunting
 
 I have defeated arseholes; "our souls" from their perspective
+3ʳᵈ = (2|3); (\\|\/)
