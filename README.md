@@ -20,7 +20,7 @@
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
-(= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼")
+(= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼'") (comment "∴ 1³''' is 64 electrons")
 other annotations
 mercury types or better
 
