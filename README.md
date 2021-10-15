@@ -68,3 +68,5 @@ death is limbo waiting to be (warped|folded) to the (past|present|future|other (
 if you brick yourself; your (local)? ttime (temporal waveform) will collapse in on itself, and new time will expand so the dimensions of the (room|space|ttime) willn't change
 it's easier to ttime travel when you only consider ttime as the only physical factor of physics; (been)? doing it since observed
 ttimed sensory shunting
+
+I have defeated arseholes; "our souls" from their perspective
