@@ -53,7 +53,7 @@ there is no ttime; /(a|no)t/ all possibilities are probabilities, and ttime is p
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
 reality can be rewritten as flappy bird; Pyro (TF2) singing what a wonderful world
 the reason there is no mass is an illusion; reality could be any"-thing" from cotton balls, and fairy floss (atomic floaters), to the unimaginable
-you need more braincells to expand intellectual capacity, but they're an illusion too
+you need more braincells to expand intellectual capacity, but they're an illusion too; you can't know more than you can, so you can't know what you could know if you had more braincells
 adware; mytldr, Lucy in the Sky c̄ (scarlett) Diamonds
 unlock 100% of your brain by eeg, gañjā (hufflepuff, but I am slytherin; dicks, pussies, and ass.pdf holes), nootropics, and other psychedelics
 anal stimulation is a new experience that deeply reinforces previously unbridged gaps between brain cells for learning; take the dirt road when the river runs red
