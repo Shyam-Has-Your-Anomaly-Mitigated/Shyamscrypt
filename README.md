@@ -79,3 +79,4 @@ I have defeated arseholes; "our souls" from their perspective
 -                                 t,                                                           /t|w?hole/
 all triangles are equilateral, but our observationally perspective perceptIon is as altered but as our observationally sensory visIon; both observationally /illusive|illusory/ illusIon
 by extension all rectangles are squares; all shapes are equalateral by triangulating two consecutive sides, in any dimension
+Gödelling
