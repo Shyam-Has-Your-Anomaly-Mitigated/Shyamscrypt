@@ -89,4 +89,4 @@ we are all just doing graffiti for each other
 that's better; see? I saved myself, like I said I would; as I rip off my shirt
 योग = 3t = ttime travel
 is physics the (material|illusion) v (spiritual|reality) (in a matrix pill)? superpositionally both is the right answer to the right question; what is right angle?
-right (commentreasure)?
+right (comm(en|i)treasure)?
