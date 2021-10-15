@@ -87,3 +87,4 @@ this is how to experience temporal entanglement for yourself c̄ yourself
 I am one in many of myself; (discrete|incontinuous) ttime v (indiscrete|cpr;cp) ttime
 we are all just doing graffiti for each other
 that's better; see? I saved myself, like I said I would; as I rip off my shirt
+योग = 3t = ttime travel
