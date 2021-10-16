@@ -44,7 +44,7 @@ analogous flags are /a?symmetrically/ double sided so my flag is now in a state 
 
 /double|multi|poly/ entendre = superposition = paradox
 
-माया hack; I just self-realised my name backwards श्याम, and I want to marry her for /it|ever/; how do I typeset /shyama?ki/? (jaya! like devaki has a /twin|consecutive/ bro)
+माया hack; I just self-realised my name backwards श्याम, and I want to marry her for /it|ever/; how do I typeset /shyama?ki/? (jaya! like देवकी has a /twin|consecutive/ bro)
 I discovered the most elegant ways to read, and rewrite, space+time c̄ योग; I golfed them
 quantum eraser rewrites space+time unreliably, and is considered a dangerous experiment unless you know what you are doing; we are self-observing so we influence the past, present, and future, from each perspective proven by temporal entanglement
 there is only ttime; from now on I will only refer to ttime, because physics (along c̄ every"-thing" else) is more understandable c̄out academic obfuscation
