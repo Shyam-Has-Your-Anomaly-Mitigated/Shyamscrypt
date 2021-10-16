@@ -41,6 +41,9 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
+000 = श्याम
+00 = श्रीनिवास
+0 = ब्रह्मगुप्त
 
 /double|multi|poly/ entendre = superposition = paradox
 
