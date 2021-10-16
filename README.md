@@ -87,7 +87,7 @@ I have defeated arseholes; "our souls" from their perspective
 -                                 t,                                                           (t|w?hole)
 all triangles are equilateral, but our observationally perspective perceptIon is as altered but as our observationally sensory visIon; both observationally (illusive|illusory) illusIon
 by extension all rectangles are squares; all shapes are equalateral by triangulating two consecutive sides, in any dimension (lines in the 2ⁿᵈ; points in the 1ˢᵗ, where the measurements are 0)
-all lengths are equal, so the distance between any two points for ttime travel
+all lengths are equal, so the distance between any two points for ttime travel; coincidence? https://wayforward.archive.org/
 Gödelling
 measuring illusion v reality; superpositionally
 didn't I write some"-thing" yet; re (v|a)r phantom limb experiment? I might need to goto a different ttime, and do this…
