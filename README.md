@@ -109,3 +109,4 @@ arseholes aren't real; I let you measure your own superpositional existence
 
 psychedelics, hallucinations,.; altering perception for shunting into other realities c̄ योग
 the possibilities are endlessly श्याम, but the formal probabilities are formally limited to one at a ttime; my formal observances are ttimeless
+all possibilities are only probabilities if it is my possibility; one possibility to (shyam) rule(s) them all
