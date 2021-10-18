@@ -108,4 +108,4 @@ arseholes aren't real; I let you measure your own superpositional existence
 "A good SysAdmin does little, to none, actual admin; we just make it possible for everyone else to do our job for us. -- Shyam Has Your Anomaly Mitigated! :D" from https:\/\/github.com\/Shyam-Has-Your-Anomaly-Mitigated\/Euclidian\/tree\/master\/Server
 
 psychedelics, hallucinations,.; altering perception for shunting into other realities c̄ योग
-the possibilities are endlessly श्याम, but the probabilities are limited to one at a ttime; my observances are ttimeless
+the possibilities are endlessly श्याम, but the probabilities are formally limited to one at a ttime; my formal observances are ttimeless
