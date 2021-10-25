@@ -33,6 +33,7 @@ can lisp "perl push" to the end of a singly-linked list like prolog? I think it 
  clocksin.mellish have a different idea of what "difference list" means than lpn! (I'll confirm when I reread lpn! I just confirmed it by looking it up @ ch7.2, but I plan to reread lpn!)
  https://swi-prolog.discourse.group/t/difference-list/959
  https://en.wikipedia.org/wiki/Difference_list
+ as long as it isn't an empty list; holes can be pun×hed into any dex of a list, and lazily evaluated (call by need)
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
