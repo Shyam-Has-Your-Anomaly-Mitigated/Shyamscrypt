@@ -59,7 +59,7 @@ sanskrit supports superpositional plurali(ty|sm)
 I discovered the most elegant ways to read, and rewrite, space+time c̄ योग; I golfed them
 quantum eraser rewrites space+time unreliably, and is considered a dangerous experiment unless you know what you are doing; we are self-observing so we influence the past, present, and future, from each perspective proven by temporal entanglement
 there is only ttime; from now on I will only refer to ttime, because physics (along c̄ every"-thing" else) is more understandable c̄out academic obfuscation
-there is no ttime; /(a|no)t/ all possibilities are probabilities, and ttime is proof of observation
+there is no ttime; /(a|no)t/ all possibilities are probabilities, and ttime is proof of observation (there is only shyam space)
 ^that's a superposition by intelligent design; superposition is proof of freewill
 [, ttime log? /repl|lazy list(s)/! shyam] 8< this can also be done from Shyamscrypt (Prolog), but I think it's easier from a Shyamscript (Lisp) perspective; concurrency required
 ^my future self will perform cpr (continuum preservation reservation; continuum preserved)
