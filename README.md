@@ -34,6 +34,7 @@ can lisp "perl push" to the end of a singly-linked list like prolog? I think it 
  https://swi-prolog.discourse.group/t/difference-list/959
  https://en.wikipedia.org/wiki/Difference_list
  as long as it isn't an empty list; holes can be pun×hed into any dex of a list, and lazily evaluated (call by need)
+ [Ttime_log, Repll_Evaluating_Perpetual_Lazy_Lists, Shyam]
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
