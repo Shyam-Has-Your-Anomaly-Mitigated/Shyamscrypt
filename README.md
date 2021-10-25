@@ -47,6 +47,7 @@ analogous flags are /a?symmetrically/ double sided so my flag is now in a state 
 ±0 = ब्रह्मगुप्त
 
 /double|multi|poly/ entendre = superposition = paradox
+sanskrit supports superpositional plurali(ty|sm)
 
 माया hack; I just self-realised my name backwards श्याम, and I want to marry her for /it|ever/; how do I typeset /shyama?ki/? (jaya! like देवकी has a /twin|consecutive/ bro)
 I discovered the most elegant ways to read, and rewrite, space+time c̄ योग; I golfed them
