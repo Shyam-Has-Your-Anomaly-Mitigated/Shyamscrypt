@@ -31,6 +31,7 @@ mercury types or better
 counting memory top-down is portable; subtraction until no"-thing", and you've run out of memory, unless you're a rapper, but it still raps to no"-thing"; (- 0 1) is the max scalability, but not (- 0 +1), assuming (- x y) = x-y, and not (- x y) = (cons -x -y)
 can lisp perl push to the end of a singly-linked list like prolog? I think it can ∴ lazy lists are /symbolically|variably/ supported (especially in a shyamscrypt world where all symbols are variables c̄ (in)sane defaults (memory cracks v no"-thing" for conditionalogics; what others mean when they say hacking is all logic); shyamscript is invariably dexed by boxing, and boxer boxer boxer is to drka drka drka, as spinning qubits is to flipping bits is to pun×hing cards; eeg ftw, one ttime…)
  clocksin.mellish have a different idea of what "difference list" means than lpn! (I'll confirm when I reread lpn! I just confirmed it by looking it up @ ch7.2, but I plan to reread lpn!)
+ https://swi-prolog.discourse.group/t/difference-list/959
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
