@@ -40,6 +40,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading list:
+ [ ] https://cutebouncingbunnies.wordpress.com/2017/04/25/the-standard-sequence-for-prolog/
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
  [ ] https://sites.google.com/site/prologsite/prolog-problems
  [ ] https://dtai.cs.kuleuven.be/ppcbook/ppcbook.pdf
