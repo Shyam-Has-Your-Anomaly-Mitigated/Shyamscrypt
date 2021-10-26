@@ -47,7 +47,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [x] minutes(3), "A Subtletly of Prolog's Cut" by CSC324_f14 @ https://www.youtube.com/watch?v=2bmVyrdeAkY&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=7
   - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the deep jungles of I/O (user, file, network,..),..
  [~] minutes(93), "\"That scripting language called Prolog\"" by Sergei Winitzki @ https://www.youtube.com/watch?v=Zja3PHcWI-s&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=8
-  - til; swipl can compile like mercury! (before I just did ./kbs.pl c̄ shebang; I can't remember how I defaulted my queries, but I doubt I used main/0) (they talk about 3D hacking before this part) (this is all in the first minutes(15); then I think they get swedish (₿), and I stopped watching ∵ iprefer books that assume I'm a complete idiot; https://www.youtube.com/watch?v=zAgpsks29W4)
+  - til; swipl can compile like mercury! (before I just did ./kbs.pl c̄ shebang; I can't remember how I defaulted my queries, but I doubt I used main/0) (they talk about 3D hacking before this part) (this is all in the first minutes(10); then I think they get swedish (₿), and I stopped watching ∵ iprefer books that assume I'm a complete idiot; https://www.youtube.com/watch?v=zAgpsks29W4)
  [x] minutes(Y), "This is going to be what I personally recommend" by SHYAM
   ~
  [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
