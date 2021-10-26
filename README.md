@@ -44,7 +44,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - PL101: "Create your own programming language"
   - this should make anyone want to use an automatic language that does all the work for you
  [x] minutes(3), "A Subtletly of Prolog's Cut" by CSC324_f14 @ https://www.youtube.com/watch?v=2bmVyrdeAkY&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=7
-  - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the jungles of I/O (user, file, network,..),..
+  - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the deep jungles of I/O (user, file, network,..),..
  [x] minutes(Y), "This is going to be what I personally recommend" by SHYAM
   ~
  [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
