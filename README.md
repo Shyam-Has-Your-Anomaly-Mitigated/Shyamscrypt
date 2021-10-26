@@ -44,6 +44,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] unarchived https://guidemylearning.com/learn-prolog/
   [ ] anne@swi-prolog.org offering the prolog course on twitter (from https://irclog.tymoon.eu/freenode/lisp?around=1541392355)
  [ ] https://www.swi-prolog.org/FAQ/PrologReading.html
+ [ ] https://www.metalevel.at
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
  [ ] https://sites.google.com/site/prologsite/prolog-problems
  [ ] https://dtai.cs.kuleuven.be/ppcbook/ppcbook.pdf
