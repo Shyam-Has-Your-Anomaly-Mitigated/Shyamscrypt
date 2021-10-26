@@ -45,6 +45,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
  [ ] this is probably better https://www.youtube.com/watch?v=SykxWpFwMGs
  [ ] she shows "why lp matters" https://www.youtube.com/results?search_query=Aja+Hammerly
+ [ ] he shows "real world prolog" https://www.youtube.com/watch?v=G_eYTctGZw8
  [ ] I think these are different points?
   [ ] https://www.javatpoint.com/prolog
   [ ] https://www.tutorialspoint.com/prolog/index.htm
