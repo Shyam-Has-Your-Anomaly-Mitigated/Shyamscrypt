@@ -40,11 +40,29 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading list:
+ [x] minutes(Y), "This is going to be what I personally recommend" by SHYAM
+  ~
+ [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
+ [ ] this is probably better https://www.youtube.com/watch?v=SykxWpFwMGs
+ [ ] she shows "why lp matters" https://www.youtube.com/results?search_query=Aja+Hammerly
+ [ ] I think these are different points?
+  [ ] https://www.javatpoint.com/prolog
+  [ ] https://www.tutorialspoint.com/prolog/index.htm
+   [ ] https://www.youtube.com/playlist?list=PLWPirh4EWFpFLjsd3IUqymnCVBaz1Yagg
+    [ ] paywall version https://www.tutorialspoint.com/prolog_online_training/index.asp
+   [ ] https://www.youtube.com/playlist?list=PLWPirh4EWFpEYxjEJyDoqplBhJF91Mwkp
+    [ ] paywall version https://www.tutorialspoint.com/prolog_in_artificial_intelligence/index.asp
+ [ ] there are other dictionaries linked @ http://www.cse.unsw.edu.au/~billw/prologdict.html
  [ ] https://cutebouncingbunnies.wordpress.com/2017/04/25/the-standard-sequence-for-prolog/
   [ ] unarchived https://guidemylearning.com/learn-prolog/
   [ ] anne@swi-prolog.org offering the prolog course on twitter (from https://irclog.tymoon.eu/freenode/lisp?around=1541392355)
  [ ] https://www.swi-prolog.org/FAQ/PrologReading.html
  [ ] https://www.metalevel.at
+  [ ] https://www.youtube.com/channel/UCFFeNyzCEQDS4KCecugmotg
+ [ ] https://mitpress.mit.edu/books/series/logic-programming
+  [ ] https://mitpress.mit.edu/search?keywords=prolog
+  [ ] https://mitpress.mit.edu/search?keywords=logic+programming
+  [ ] https://mitpress.mit.edu/books/logic-logic-programming
  [ ] http://www.softwarepreservation.org/projects/prolog
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
  [ ] https://sites.google.com/site/prologsite/prolog-problems
