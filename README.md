@@ -41,7 +41,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
-  - PL101: "Create your own programming language"
+  - PL101: "Create your own programming language" (in javascript; for whatever reason, you wouldn't want to use a language processing langauge like prolog?)
   - this should make anyone want to use an automatic language that does all the work for you
  [x] minutes(3), "A Subtletly of Prolog's Cut" by CSC324_f14 @ https://www.youtube.com/watch?v=2bmVyrdeAkY&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=7
   - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the deep jungles of I/O (user, file, network,..),..
