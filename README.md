@@ -35,6 +35,7 @@ can lisp "perl push" to the end of a singly-linked list like prolog? I think it 
  https://en.wikipedia.org/wiki/Difference_list
  as long as it isn't an empty list; holes can be pun×hed into any dex of a list, and lazily evaluated (call by need)
  [Ttime_log, Repll_Evaluating_Perpetual_Lazy_Lists, Shyam] % now this is easy from any perspective!!! :D (perhaps even easier from the difference list perspective, rather than a funtional lazy eval strat perspective of metacircular interpreters, but they are still good for ttime hacking)
+cellular automata supports 0D, 1D, 2D, 3D, 4D,.. hacking; lists are higher dimensional, linearly algebraic vectors (and clusters of mattresses; nearest neighbours,..),..
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
