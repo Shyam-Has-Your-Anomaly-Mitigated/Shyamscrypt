@@ -37,6 +37,7 @@ can lisp "perl push" to the end of a singly-linked list like prolog? I think it 
  [Ttime_log, Repll_Evaluating_Perpetual_Lazy_Lists, Shyam] % now this is easy from any perspective!!! :D (perhaps even easier from the difference list perspective, rather than a funtional lazy eval strat perspective of metacircular interpreters, but they are still good for ttime hacking)
 cellular automata supports 0D, 1D, 2D, 3D, 4D,.. hacking; /lists|predicates|functions/ are higher dimensional, linearly algebraic vectors (and clusters of mattresses; nearest neighbours,..), mattresses (like a domino computer),..
 syntax highlighting can colour-code balanced parenthetical depth like a rainbowave STOP))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
+shepard tone + thermal grill illusion; pain, pleasure, computation,..
 
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
