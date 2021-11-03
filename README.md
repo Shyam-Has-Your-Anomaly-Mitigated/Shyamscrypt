@@ -26,7 +26,7 @@
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
 (= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼'") (comment "∴ 1³''' is 64 electrons")
-other annotations; including /defen(c|s)ive/ domains (spin; 1 has spin, 0 doesn't ∵ there is 0 spin v a spin), chr, clp, restrictive ranges, 8<⚔>8 cutlessness,..
+other annotations; including /defen(c|s)ive/ domains (spin; 1 has spin, 0 doesn't ∵ there is 0 spin v a spin), chr, clp, restrictive ranges, 8<⚔>8 cutlæssness,..
 mercury types or better
 counting memory top-down is portable; subtraction until no"-thing", and you've run out of memory, unless you're a rapper, but it still raps to no"-thing"; (- 0 1) is the max scalability, but not (- 0 +1), assuming (- x y) = x-y, and not (- x y) = (cons -x -y)
 can lisp "perl push" to the end of a singly-linked list like prolog? I think it can ∴ lazy lists are /symbolically|variably/ supported (especially in a shyamscrypt world where all symbols are variables c̄ (in)sane defaults (memory cracks v no"-thing" for conditionalogics; what others mean when they say hacking is all logic); shyamscript is invariably dexed by boxing, and boxer boxer boxer is to drka drka drka, as spinning qubits is to flipping bits is to pun×hing cards; eeg ftw, one ttime…)
