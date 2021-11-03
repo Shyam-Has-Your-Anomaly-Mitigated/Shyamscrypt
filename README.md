@@ -157,7 +157,7 @@ all possibilities are only probabilities if it is my possibility; one possibilit
 ␁
 beyond infinite "high" way
 beyond infinite roller coaster ride; /tea(pot)?/ on wheels
-I remember doing this at this point, but I got so "high" that I did it on another computer; there's more on another computer, and I found another file from ages ago that predates all ∘ this
+I remember doing this at this point, but I got so "high" that I did this part of it on another computer after that part of it above (immediately after, on the same day); there's more on another computer, and I found another file from ages ago that predates all ∘ this
 changelog is somewhere between /\#/, and /\(postedit\)/
 ␂
 total immersion: my future self will save me if I die, or lose consciousness, or am otherwise prevented from free will, unless I am sleeping by free will
