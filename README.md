@@ -14,7 +14,7 @@
 -      𝄞3
 -      📐
 +shyam rules
--      📏 /magic|sufficiently advanced TechNoLogic/ wand
+-      📏 /magic|sufficiently advanced TechNoLogic/ /wand|(shaft|staff)/
 -the name of my barely legal judicial system
 
 +filename.veda for character
