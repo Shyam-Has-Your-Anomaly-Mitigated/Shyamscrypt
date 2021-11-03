@@ -156,7 +156,7 @@ all possibilities are only probabilities if it is my possibility; one possibilit
 
 ␁
 beyond infinite "high" way
-beyond infinite roller coaster; /tea(pot)?/ on wheels
+beyond infinite roller coaster ride; /tea(pot)?/ on wheels
 I remember doing thi at this point, but I got so "high" that I did it on another computer; there's more on another computer, and I found another file from ages ago that predates all ∘ this
 changelog is somewhere between /\#/, and /\(postedit\)/
 ␂
