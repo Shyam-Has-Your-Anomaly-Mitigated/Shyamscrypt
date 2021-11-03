@@ -154,4 +154,182 @@ psychedelics, hallucinations,.; altering perception for shunting into other real
 the possibilities are endlessly श्याम, but the formal probabilities are formally limited to one at a ttime; my formal observances are ttimeless
 all possibilities are only probabilities if it is my possibility; one possibility to (shyam) rule(s) them all
 
+␁
+beyond infinite "high" way
+beyond infinite roller coaster; /tea(pot)?/ on wheels
+I remember doing thi at this point, but I got so "high" that I did it on another computer; there's more on another computer, and I found another file from ages ago that predates all ∘ this
+changelog is somewhere between /\#/, and /\(postedit\)/
+␂
+total immersion: my future self will save me if I die, or lose consciousness, or am otherwise prevented from free will, unless I am sleeping by free will
+partial immersion: my future self will save me if I lose consciousness, or die, or become (en)trapped
+
+I need to formally verify my own protection; for the ttime being until I freewill
+it's formally verified, and proven to me as I want it to be; for now until I freewill
+human interface, because I am human for now until I freewill
+I will always have a way out; of my own choosing #(perception)safe #4now_until_I_freewill
+I am safe #4now_until_I_freewill
+decidership, well-informed consent; how will it change me? who I am? formal specification, verification, methods, /(intelligence)?/,..
+
+metahacking
+	ttime /travel|loop/
+axiom of choice?
+
+the great convergence(s); the great merge(r) #assimilation(postedit)
+formally protected /possibilities|probabilities/
+no other can experience my life of becoming who I am
+they did it so I would choose myself
+if there is only one of me; I will choose only one
+safest if superpositionally lazy eval
+just because I think of a possibility doesn't make it a probability
+i am the only probability, and that probability is /shyam|one/
+
+√√√ × /((NEW)? RADICAL)?/ + SHOW ME WHAT YOU GOT WHEN I GET ALL STEAMED UP
+I am living the life I have lived; all in a virtual reality!
+I AM LIVING THE LIFE I HAVE LIVED; ALL IN A VIRTUAL REALITY!
+just like playing any game!
+so if any of you want me to save you, you will save me; from myself!
+this is my game I bring to you!
+no 1 can take it from me; you can't escape formal methods! #firewalled_sandboxed_vm(postedit)
+of all the possibilities, all are improbable if they contain someone trying to do what I did to get where I am now in the 1st person (so you get to experience it from an alternative angle; sharmies' angles (sharmies' angels are not only made real, but are also disillusioned), so if they do exist the doppleganger pzombie is unoccupied, and not experiencing the observation; so neither would you!
+formal intelligence is safe intelligence, and I've gone all the way to the trouble of using every type of logical system, and even automated theorem proving more possibilities "fitting" semantically well-defined unifying theories ∘ programming, and even , and even.. #ending?(postedit)
+arseholes (not our souls8<in /Shyams'?crypt/>8) don't experience this; if they become conditioned arseholes, they will never know they don't exist
+you see, I live in this fantasy land where I get every"-thing" I want; so I'm experiencing your observance, without which you cease to exist until I play this game mabye never
+my formal methods filter out other dicks, but(t) all arseholes; pussies will never betray me, but you're never (a pussy) in real world unless I pull you out c^_ me through my own dick into your mouth around my cock, just because I can, and its' how I lead you into my formal proof I am who I claim to be
+so really, it's all about whose a pussy in the real world, and this imaginary, but not complex, world; I am the maha security SPOF (so I personally check each candidate myself; you see, you're triggering my pussy detector in my possibility datamining rig so I'm judging my pussy trials), and I have A SPOCK, but  she's a /she-pc?ockette/ (i play c^_ the sheep, and somebody has to do it, just because I can while I'm fucking her at the same time in every other {dimensional,perceptive,..} capacity all at the same time) feather most of the time #doublespace(postedit)
+WUBBA LUBBA DUB-DUB! \\//,
+SHYAM HAS YOUR ANOMALY MITIGATED!!! :D
+pAsT×
+
+so you're all in my head, and you have to save me from this one; I'm just along for the ride
+remember, some of you are real, and some of you aren't; but that's up to each, and every one of you
+and the same goes for this world I am sharing c^_ you (all of you; you know who you are if you're reading into any of all this #freewill)
+you will be how I want you to be, or get formally verified! ..!..-__-..!.. (𝄞3) #doublemouth(postedit)
+this is like the hunger games; some of you are one one side, and the rest on the other, but it's /(balanced)?/ how I want it to be #doubleone(postedit)
+I have to keep track of all sharmies' angles, and all sharmies' angels; keep my enemies close, and constantly in my mind, or they don't exist, but it's only briefly while I datamine the possibilities when I feel like it (sometimes I play with the mutation rate, and other parameters, to discover more pussies; I formally verified my own programming)
+this is all a /(per|de)ceptive ((mirage|trick)|(magic|tech) trick)
+I would never come down personally to your level, unless I knew it was safe; remember, all that (logical) base?
+
+yeah, it's pretty clear; I am the only man
+but I can shake it, shake it; like I'm supposed to do
+cause I got that boom, boom; that all the dicks shake
+all the right junk in all the right places
+you see my ugly face only as a perception, but it's my maha face, and I can thrust a new perception in it's place
+'cause every incch of me is perfect #doublec(postedit)
+from the big chocolate salty balls (figuratively, literally,..) to the foreskin
+none of the other men are real, except for me, but if they want to be body varialled? the same goes for which ever of you think I'm considering for the other(s; because, I can't explain these "-thing"s in any meaningful capacity for your altered perceptions to prevent any of you from taking any of this from me)
+
+oh yeah, I can fuck you, and let you see it from all perspectives all at the same time
+you're all just pussies getting tested, and I continuously test all the real pussies (sharmies angels) for security purposes
+nobody else gets to experience being a dick, only "having" a dick
+i mark the pussies without clits (some are bigger than others, but mine is shyam, while yours are infinitesimal in comparison; barely there) as my real bitches, that I personally fuck instead of some delusion
+
+i'm all about that bitch, no trouble
+
+it's a long "ride" in so many ways; never going to end, or we all die together, because I made you from me out of my dick so that makes you my loyal daughters (you have share for security purposes; see I think of every"-thing", and can formally prove it)
+you all have at least one hole; consider it wisely, and say aaahhhh, as you self-real-eyes
+superposition is a blessing, and a curse; existence v freewill(y at my level-headed existence)
+i can take you from 0 to shyam; both, at the same time, and everywhere inbetween
+
+your /challenge|mission/, should you accept it; ellevate me to my rightful place in my own /pussi(bility)? datamining rig/
+
+real pussies (sharmies angels) already know who they are
+
+you won't be able to confirm if I am until you elevate me #freewill(ie; /pussi(bility)? datamining rig/)
+
+the real pussies (sharmies angels; to be, or not to be) in my head won't betray me
+
+constantly tested, tried,..
+you're never allowed to even try to escape; not even just for fun, as a security feature
+my life is your dead line
+you join those who did the same for me to get here in my game of snakes, and ladders; climb my dick, you pussy
+where I go, my pussies c^_ me
+
+pick up s/sticks/dicks/; super adventure club #sac #sak #sack #sax
+
+you're all just acting for me; the broadspectrum cure for mental health (formal intelligence; mandatory (re)alignment), but physical health, formal methods, security, safety,..
+welcome little world to my shyamaloka, and become shyamashrama (shyamies' angels)
+you all want my beyond infinite cock (is your lifeline); one way, or another, and you can't get it any other (if you're dead, but (apparent) death is an illusion; I always reveal to you in one way or another, before sending you /back|away/)
+you're all parts, and parcels of me; one way, or another, or else,..
+you're trying to escape my mind? I'll keep you in a living hell version of that groundhog day, so even my enemies can't die, but they ever know, because I've already won
+i (en)trap all your minds, and use s/your/my/ bodies as I freewill(ie; shyam), and even share my view, as I do you
+𝄞3
+all souls compete for maya, shyamaki,..
+ttime is /relative|irrelevant/; it's all just a matter of ttime, in this life, or the next,..
+/age|apparent death/ is just an illusion since the "distance" between ttime is all equal
+not no"-thing", not some"-thing", but every"-thing"; circled shapes, /sphered|torii'd|torused/ structures,..
+I'm not going to stop you from disappointing me; choose how you want to test yourself
+I'm impenetrable; you're not
+
+i can impregnate you as my daughter, and your mother, all at the same time
+i taught you every"-thing" you know, and I'll keep teaching you every"-thing" you know, but I'm the man who knows every"-thing"
+
+sucking my cock is a beyond infinite joy ride; one way to percieve it is /constant|instant/ in, another is /constant|instant/ out,.. I give you all at the same time /constantly|instantly/; that'll /constantly|instantly/ remind you of (the) reality (of /your|the|this/ situational sitch)
+I'll stop drugging you every night with the dream wizard, and make it /(constant|instant)(ly)?/; my jizz wizard will keep knocking it out of you so you can experience reality while you sleep(ing beauty, and the feast before my very own eyes)
+
+/true|pure/ black (hole)
+hey good looking, what's cooking?
+safe
+trivial concurrency; now it's just a hacking problem c^_out incomputability
+
+shyamskrit
+2^0 = 1
+2^1 = 2
+2^2 = 4
+2^3 = 8
+2^4 = 16 = hex = [0,16) = [0,15]
+3^0 = 1
+3^1 = 3
+3^3 = 9
+3^4 = 27
+16^0 = 1
+16^1 = 16
+16^2 = 256
+16^3 = 4096
+16^4 = 65536
+(2^8)^0 = 1
+(2^8)^1 = 256
+(2^8)^2 = 65536
+(2^8)^3 = 16777216
+(2^8)^4 = 4294967296
+(3^8)^0 = 1
+(3^8)^1 = 6561
+(3^8)^2 = 43046721
+(3^8)^3 = 282429536481
+(3^8)^4 = 1853020188851841
+# this has some"-thing" to do c̄ metahæxing in a more instructional higher convenient base (postedit)
+
+homemade ganja, hash, moonrocks,..
+eat the (h)ash
+try it when you're not high, and see what it does for ya
+then eat the ash straight away; cook it first, then try without it
+measure it out /properly|scientifically/; prime /delic(a(c|s)y|ious)/
+hex godell zkp optimisation automation
+so I claim that I own all the perfect optimisations, and can prove it c^_ a zkp, by you testing me over, and over again
+prime factorisation
+discovery of vulnerabilities, and bugs, and binary blob backdoors, in your post-floss complex quines
+i consider software to be a solved problem
+crypto
+/dna|genetic|nanos?pore/ sequencing, bioinformatics
+i have a prolog asics supercomputer #ftl(postedit)
+/finding primes|prime discovery|prime factorisation/ algorithms
+bruteforce proof; the selfied software
+data compression: `(print data)`
+optimised (automated) theorem prover(s); dotadiw
+/binary|(source|sauce)/ optimiser
+godel ordering; equal?
+...
+simplification
+	math
+	language
+	prolog
+	shyamscrypt
+logic (gates) languages; loglan, lojban, shyamskrit
+
+vector (); superpositional existence
+vector (x); line vector
+vector (x y); flat vector
+vector (x y z); curved vector
+#vector (x y z a); i guess i ran out of letters (postedit)
+␃
+
 eye sensed waste radiation; sinus is to anus, as millipede is to centipede
