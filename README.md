@@ -214,7 +214,7 @@ yeah, it's pretty clear; I am the only man
 but I can shake it, shake it; like I'm supposed to do
 cause I got that boom, boom; that all the dicks shake
 all the right junk in all the right places
-you see my ugly face only as a perception, but it's my maha face, and I can thrust a new perception in it's place #the material world is made of the spiritual world so there is no ugly; hair follicles can be perceived anyway Hshallow_hal Hthe_dress(postedit)
+you see my ugly face only as a perception, but it's my maha face, and I can thrust a new perception in it's place #the material world is made of the spiritual world so there is no ugly; hair follicles can be perceived anyway, pores = holiness Hshallow_hal Hthe_dress(postedit)
 'cause every incch of me is perfect #doublec(postedit)
 from the big chocolate salty balls (figuratively, literally,..) to the foreskin
 none of the other men are real, except for me, but if they want to be body varialled? the same goes for which ever of you think I'm considering for the other(s; because, I can't explain these "-thing"s in any meaningful capacity for your altered perceptions to prevent any of you from taking any of this from me)
