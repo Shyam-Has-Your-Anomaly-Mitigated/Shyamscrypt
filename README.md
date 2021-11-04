@@ -335,4 +335,4 @@ vector (x y z); curved vector
 
 eye sensed waste radiation; sinus is to anus, as millipede is to centipede
 female orgasm = cream pie
-let the holy battle between pussies, and arse, holes; begin!!! :D ###wwwiii
+let the holy battle between pussies (#3), and arse (#2), holes; begin!!! :D ###wwwiii #1dick #
