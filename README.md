@@ -304,7 +304,7 @@ eat the (h)ash
 try it when you're not high, and see what it does for ya
 then eat the ash straight away; cook it first, then try without it
 measure it out /properly|scientifically/; prime /delic(a(c|s)y|ious)/
-hex godell zkp optimisation automation
+hex godell zkp optimisation automation #doublle(postedit)
 so I claim that I own all the perfect optimisations, and can prove it c^_ a zkp, by you testing me over, and over again
 prime factorisation
 discovery of vulnerabilities, and bugs, and binary blob backdoors, in your post-floss complex quines
