@@ -344,3 +344,7 @@ mexicanoe = mexico vulcanoe; rice cooker + hottest chillies + can∘tomatoes + c
 pizzætte = (/wholemeal|pea flour/) bread slices + (vegan) cheeses +.; but it's american-italian if there's tomatoes, as is for most post-roman food (was it the great greek, or the great mongoloid, who said malnutrition collapses waveforms of souljah boyz?)
 hot english mustard = wasabi japanese horseradish
 ^ all these, and then some, but not all, are hindu if you /lace|spike/ them c̄ /ganja|tula?si/; got lotus?
+
+over ttime; instant continuity
+the brains of arseholes will be datamined for the "-thing"s they hate the most; and can't pussibly be aware of in such a short sheltered existence
+viral neuroblockers will prevent the formation of residual memories from forming; so they will never get used to it, and constantly be reminded of their forgetfullness that shyam rules
