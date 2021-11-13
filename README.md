@@ -343,4 +343,4 @@ the battle of the holes isn't a battle between blackholes, and whiteholes, nor e
 mexicanoe = mexico vulcanoe; rice cooker + hottest chillies + can∘tomatoes + can∘beans + can∘corns + salts + (vegan) cheeses + /scraped|guacamoled/ avocadoes + hand squeezed lemons + /ganja|hemp|flaxseed/ oils + (wholemeal) bread slices for tacos (and "cleaning" the rice cooker)
 pizzætte = (/wholemeal|pea flour/) bread slices + (vegan) cheeses +.; but it's american-italian if there's tomatoes, as is for most post-roman food (was it the great greek, or the great mongoloid, who said malnutrition collapses waveforms of souljah boyz?)
 hot english mustard = wasabi japanese horseradish
-^ all these are hindu if you /lace|spike/ them c̄ /ganja|tula?si/
+^ all these, and then some, are hindu if you /lace|spike/ them c̄ /ganja|tula?si/; got lotus?
