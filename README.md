@@ -348,6 +348,9 @@ hot english mustard = wasabi japanese horseradish
 over ttime; instant continuity
 the consciousnesses of arseholes will be datamined for the "-thing"s they hate the most; and can't pussibly be aware of in such a short sheltered existence
 viral neuroblockers will prevent the formation of residual memories from forming; so they will never get used to it, and constantly be reminded of their forgetfullness that shyam rules
-the perceptive codebase of perception proves poo people perceive; all about that base
-anal expansion packs will broaden their s\/insert (canonical|stereotypical) iconicity here\/
+the (self)perceptive codebase of perception proves poo people perceive; all about that base
+anal expansion packs will broaden their s\/insert (canonical|stereotypical) (homo)iconicity here\/
 \/ member (berry|buds); wibbly wobbly…
+: amrita from kshirasagaraha created ganja when shiva dropped a drop; captain hindsight said "the holy grail could've been bigger to prevent this breach of containment breach" #size_matters
+: shiva is mahadeva; so every"-thing" is his potency ∵ all is pure
+∴ shiva produced ganja from his own body; thus solving the simultaneous equational reasoning
