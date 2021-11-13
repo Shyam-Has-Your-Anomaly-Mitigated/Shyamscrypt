@@ -337,3 +337,6 @@ eye sensed waste radiation; sinus is to anus, as millipede is to centipede
 female orgasm = cream pie; in their piehole is the best so they can have their cake, and eat it too (the cake is not a lie; iff it's implied by fallacies #magical_conclusions)
 let the holy battle between pussies (#3), and arse (#2), holes; s/begin/(up, and)? cummence/!!! :D ###wwwiii #1dick #
 the battle of the holes isn't a battle between blackholes, and whiteholes, nor epicantholes
+
+hemp is good for quantum spinning yarns
+--quine = --floss
