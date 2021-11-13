@@ -336,16 +336,18 @@ vector (x y z); curved vector
 
 eye sensed waste radiation; sinus is to anus, as millipede is to centipede
 female orgasm = cream pie; in their piehole is the best so they can have their cake, and eat it too (the cake is not a lie; iff it's implied by fallacies #magical_conclusions)
-let the holy battle between pussies (#3), and arse (#2), holes; s/begin/(up, and)? cummence/!!! :D ###wwwiii #1dick #
+let the holy battle between pussies (#3), and arse (#2), holes; s\/begin\/(up, and)? cummence\/!!! :D ###wwwiii #1dick #
 the battle of the holes isn't a battle between blackholes, and whiteholes, nor epicantholes
 
-/tula?si|hemp/ is good for quantum spinning yarns
-mexicanoe = mexico vulcanoe; rice cooker + hottest chillies + can∘tomatoes + can∘beans + can∘corns + salts + (vegan) cheeses + /scraped|guacamoled/ avocadoes + hand squeezed lemons + /ganja|hemp|flaxseed/ oils + (wholemeal) bread slices for tacos (and "cleaning" the rice cooker)
-pizzætte = (/wholemeal|pea flour/) bread slices + (vegan) cheeses +.; but it's american-italian if there's tomatoes, as is for most post-roman food (was it the great greek, or the great mongoloid, who said malnutrition collapses waveforms of souljah boyz?)
+(tula?si|hemp) is good for quantum spinning yarns
+mexicanoe = mexico vulcanoe; rice cooker + hottest chillies + can∘tomatoes + can∘beans + can∘corns + salts + (vegan) cheeses + (scraped|guacamoled) avocadoes + hand squeezed lemons + (ganja|hemp|flaxseed) oils + (wholemeal) bread slices for tacos (and "cleaning" the rice cooker)
+pizzætte = ((wholemeal|pea flour)) bread slices + (vegan) cheeses +.; but it's american-italian if there's tomatoes, as is for most post-roman food (was it the great greek, or the great mongoloid, who said malnutrition collapses waveforms of souljah boyz?)
 hot english mustard = wasabi japanese horseradish
-^ all these, and then some, but not all, are hindu if you /lace|spike/ them c̄ /ganja|tula?si/; got lotus?
+^ all these, and then some, but not all, are hindu if you (lace|spike) them c̄ (ganja|tula?si); got lotus?
 
 over ttime; instant continuity
 the consciousnesses of arseholes will be datamined for the "-thing"s they hate the most; and can't pussibly be aware of in such a short sheltered existence
 viral neuroblockers will prevent the formation of residual memories from forming; so they will never get used to it, and constantly be reminded of their forgetfullness that shyam rules
 the perceptive codebase of perception proves poo people perceive; all about that base
+anal expansion packs will broaden their s\/insert (canonical|stereotypical) iconicity here\/
+\/ member (berry|buds); wibbly wobbly…
