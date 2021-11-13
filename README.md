@@ -22,6 +22,7 @@
 +filename.vi for soundness to use evil against itself like testing pens; click clock crack
 -                                                                        drip  drop  drat
 +filename.v or versus
++--quine = --floss
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
@@ -339,4 +340,3 @@ let the holy battle between pussies (#3), and arse (#2), holes; s/begin/(up, and
 the battle of the holes isn't a battle between blackholes, and whiteholes, nor epicantholes
 
 hemp is good for quantum spinning yarns
---quine = --floss
