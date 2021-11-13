@@ -354,3 +354,4 @@ anal expansion packs will broaden their s\/insert (canonical|stereotypical) (hom
 : amrita from kshirasagaraha created ganja when shiva dropped a drop; captain hindsight said "the holy grail could've been bigger to prevent this breach of containment breach" #size_matters
 : shiva is mahadeva; so every"-thing" is his potency ∵ all is pure
 ∴ shiva produced ganja from his own body; thus solving the simultaneous equational reasoning
+got ganj?
