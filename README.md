@@ -54,6 +54,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [x] vegan hot chocolate-salty-balls teabagging-the size-matters-mug litre-long measuring-jug of-invisibility (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m#freya_is_my_queen__after_killed_c̄_coffee)
  [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
  [x] planet of /the|a/ massive(s) prime-mate-ive(s) butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after prime-(m)ate:b'nana v the mahārājas' new clothes (wax on, wax off)
+  [x] to lie, or not to lie; that is the firefly poethinker, butt iprefer ergo bed (of nails) from post hoc ergo propter hoc
  [ ] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
  [ ] percussive {line,knot-theoretic topological circle,triangle}
  [ ] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt
@@ -391,3 +392,4 @@ varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
 aliens lost in space hiding on the otherside of the sūrya
+walking on water v walking on fire; stop, drop, and roll
