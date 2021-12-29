@@ -390,3 +390,4 @@ your elevensies are up, unless the other time lords bless you c̄ it (in time), 
 varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
+aliens lost in space hiding on the otherside of the sūrya
