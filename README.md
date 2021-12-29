@@ -91,7 +91,11 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
  [ ] https://sites.google.com/site/prologsite/prolog-problems
  [ ] https://dtai.cs.kuleuven.be/ppcbook/ppcbook.pdf
- [ ] https://dtai.cs.kuleuven.be/ppcbook/
+  [ ] https://dtai.cs.kuleuven.be/ppcbook/
+ [ ] https://en.m.wikipedia.org/wiki/International_Conference_on_Logic_Programming
+  [ ] https://www.cs.nmsu.edu/ALP/conferences/
+  [ ] http://www.wikicfp.com/cfp/program?id=1409
+  [ ] https://dblp.org/db/conf/iclp/index.html
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
