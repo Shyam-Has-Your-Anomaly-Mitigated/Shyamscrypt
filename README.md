@@ -53,7 +53,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] 0 every"-thing" else, 1 mug of transparency (s/on/for/ my mind), 2 chocolate salty balls, 𝄞3 is the magic hindu number,..
  [x] vegan hot chocolate-salty-balls teabagging-the size-matters-mug litre-long measuring-jug of-invisibility (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m#freya_is_my_queen__after_killed_c̄_coffee)
  [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
- [x] planet of the butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after prime-(m)ate:b'nana v the mahārājas' new clothes (wax on, wax off)
+ [x] planet of /the|a/ massive(s) prime-mate-ive(s) butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after prime-(m)ate:b'nana v the mahārājas' new clothes (wax on, wax off)
  [ ] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
  [ ] percussive {line,knot-theoretic topological circle,triangle}
  [ ] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt
