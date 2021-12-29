@@ -355,3 +355,17 @@ a²\/ member (berry|buds); wibbly wobbly…
 : shiva is mahadeva; so every"-thing" is his potency ∵ all is pure mc²
 ∴ shiva produced ganja from his own body; thus solving the simultaneous equational reasoning
 got ganj?
+
+animal intelligence experiment: if human parents-to-be(or-not) exclusively limit themselves to simple tasks {sleeping,crawling,drinking through straws}; will the baby find it easier to learn these tasks? animal communication like nārada to prahlāda, butt kiss (if you'ren't hercules, nor xena(phobic))
+william james sidis just targeted math (equational papers; all other subjects are english++ c̄out cryptic), and his namesake was an insider (pr stunt), and no repetitious scientific rigour (repeatable experiments = reproducible builds + --quine = floss)
+plants can see; they have many eyes (yoga), and exceptional memory (ring theory, pottery records,..)
+laugh-cry, and cry-laugh, superpositionally quantum (weeping angels, the silence) illusions; yanny or laurel
+type inhabitance in order of importance; 0, 1 (synth; earl græy), 2, 3,.. `(where 0 is not exclusively incomputability theory, but inclusively complexity theory)` #sunya
+`(iff a a)`, where a, for an andation, is a selfie-proving conjuction of the premises; like a quine of quines #injectability
+dude = doodle (GoogleCamel); GoogleDoodle in CamelCase; ride my cam? fetch your dog! mary sequel from sequential episode of the flux, butt i'm just teasing you, butt
+half glass full = rounding up under pressure, half glass empty
+war of the /holes|holies/; holy wars of philosophical debates
+(repeat "explain more") @intelligence @chatbot
+`cat` is a complex intelligence that `cp $what_you_say__you_are`
+your elevensies are up, unless the other time lords bless you c̄ it (in time), even though the timeless child experiments exceeded used car mot parameters
+varāha is the god of the $5-0
