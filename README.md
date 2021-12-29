@@ -46,7 +46,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading den:
- [ ] my flag is maha logically primed
+ [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
  [ ] ōṁeditational chanting v https://tvtropes.org/pmwiki/pmwiki.php/Main/TickTockTune
  [x] prime hindu numbers for the taking of psychological edging (https://www.youtube.com/watch?app=desktop&v=Yv4tI6939q0&t=27m)
