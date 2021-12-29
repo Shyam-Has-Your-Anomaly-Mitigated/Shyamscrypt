@@ -381,3 +381,4 @@ war of the /holes|holies/; holy wars of philosophical debates; battle of wits be
 `cat` is a complex intelligence that `cp $what_you_say__you_are`
 your elevensies are up, unless the other time lords bless you c̄ it (in time), even though the timeless child experiments exceeded used car mot parameters
 varāha is the god of the $5-0
+gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
