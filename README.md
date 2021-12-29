@@ -392,4 +392,4 @@ varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
 aliens lost in space hiding on the otherside of the sūrya
-walking on water v walking on fire; stop, drop, and roll
+walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)plant/, or even bump,.; wwtdd? "what's the worst that could happen? you end up on your knees before your master, and next \"-thing\" you know; you're giving him a blowjob!")
