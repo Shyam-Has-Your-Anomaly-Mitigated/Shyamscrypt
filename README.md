@@ -43,6 +43,12 @@ shepard tone + peltier thermal grill illusion; pain, pleasure, computation,..
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
 [ ] need to find the symbolic purity, and put it here…
+[ ] reading den:
+ [ ] prime hindu numbers for the taking of psychological edging (https://www.youtube.com/watch?app=desktop&v=Yv4tI6939q0&t=27m)
+ [ ] vegan hot salty-chocolate-balls size-matters-mug (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m)
+ [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
+ [ ] planet of the butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after ate:b'nana v the mahārājas' new clothes (wax on, wax off)
+ [ ] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologer data retention policy v yogi auditory learning style (ki?)
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
   - PL101: "Create your own programming language" (in javascript; for whatever reason, you wouldn't want to use a language processing langauge like prolog?)
