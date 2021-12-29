@@ -23,7 +23,7 @@
 -                                                                        drip  drop  drat
 +filename.v or versus
 +--quine = --floss
-prologic = prolog + ic = asic = as + ic; like a lisp machine (the red nosed light bulb)
+prologic = prolog + ic = asic = as + ic; like a light bulb (the red nosed lisp machine)
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
