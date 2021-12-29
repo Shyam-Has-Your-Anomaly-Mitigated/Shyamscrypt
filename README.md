@@ -24,7 +24,7 @@
 +filename.v or versus
 +--quine = --floss
 prologic = prolog + ic = asic = as + ic; like a light bulb (the red nosed lisp machine; have you any wool?)
-lake = la ic = linear algebra; boolean algebra?
+lake = la ic = linear algebra; boolean algebra? bake!
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
