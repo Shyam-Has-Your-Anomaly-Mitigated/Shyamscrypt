@@ -356,6 +356,7 @@ a²\/ member (berry|buds); wibbly wobbly…
 ∴ shiva produced ganja from his own body; thus solving the simultaneous equational reasoning
 got ganj?
 
+humans suck
 animal intelligence experiment: if human parents-to-be(or-not) exclusively limit themselves to simple tasks {sleeping,crawling,drinking through straws}; will the baby find it easier to learn these tasks? animal communication like nārada to prahlāda, butt kiss (if you'ren't hercules, nor xena(phobic))
 william james sidis just targeted math (equational papers; all other subject(ive)s are english++ c̄out cryptic), and his namesake was an insider (pr stunt), and no repetitious scientific rigour (repeatable experiments = reproducible builds + --quine = floss)
 plants can see; they have many eyes (yoga), and exceptional memory (ring theory, pottery records,..)
