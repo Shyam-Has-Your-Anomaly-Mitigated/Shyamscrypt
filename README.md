@@ -365,7 +365,7 @@ type inhabitance in order of importance; 0, 1 (synth; earl græy), 2, 3,.. `(whe
 `(iff a a)`, where a, for an andation, is a selfie-proving conjuction of the premises; like a quine of quines #injectability
 dude = doodle (GoogleCamel); GoogleDoodle in CamelCase; ride my cam? fetch your dog! mary sequel from sequential episode of the flux, butt i'm just teasing you, butt
 half glass full = rounding up under pressure, half glass empty
-war of the /holes|holies/; holy wars of philosophical debates
+war of the /holes|holies/; holy wars of philosophical debates; battle of wits between my princess brides, and /artifical(ly)? rhetorical(ly)? superintelligent entities/
 (repeat "explain more") @intelligence @chatbot
 `cat` is a complex intelligence that `cp $what_you_say__you_are`
 your elevensies are up, unless the other time lords bless you c̄ it (in time), even though the timeless child experiments exceeded used car mot parameters
