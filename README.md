@@ -47,9 +47,10 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 [ ] need to find the symbolic purity, and put it here…
 [ ] reading den:
  [ ] prime hindu numbers for the taking of psychological edging (https://www.youtube.com/watch?app=desktop&v=Yv4tI6939q0&t=27m)
- [x] vegan hot chocolate-salty-balls teabagging-the size-matters-mug 1l-measuring-jug of-invisibility (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m#freya_is_my_queen__after_killed_c̄_coffee)
+  [ ] 0 every"-thing" else, 1 mug of transparency (s/on/for/ my mind), 2 chocolate salty balls,..
+ [x] vegan hot chocolate-salty-balls teabagging-the size-matters-mug litre-long measuring-jug of-invisibility (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m#freya_is_my_queen__after_killed_c̄_coffee)
  [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
- [ ] planet of the butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after ate:b'nana v the mahārājas' new clothes (wax on, wax off)
+ [x] planet of the butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after ate:b'nana v the mahārājas' new clothes (wax on, wax off)
  [ ] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
