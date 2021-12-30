@@ -141,7 +141,17 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - overthrowing is illegal, but the loophole is a communication network (avoiding middle men) of half the population to force the government to accept specific leadership, and then forcibly gut the government, and hold the exgovernment workers accountable by reintroducing corporal punishment, torture,.. #job_security_is_a_lie
   - laws against /substance|sustenance/, and even researching them, are based on outdated propaganda (biased science, nescience..); jon snow
   - tobacco bribed the /government|medical industry/
+  - alcohol kills brain cells
   - carcinogenic meat is still allowed in hospitals, schools, prisons (free sex, free meat, free food, free shelter,.; no need to study, wfd,..),..
+  - the war against hinduism (backfired); because violence wasn't enough to `rm hindu`, because the followers of /abraham|atheism|agnosticism/ are weakminded airheads, because..
+   - in the 1800s ganja prohibition (medicinal, double standard anti-blasphemy,..)
+   - in the 1800s brahman cows bred for meat (cancer, bouncing on the inner boundary of the goldilocks zone,..)
+   - in the 1800s pasturisation invention (i lived on raw milk for 3 months, fresh from the udder i hand milked)
+   - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (hinduism gone /viral|wild/)
+   - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way)
+   - homosexuality prohibition (kamasutra)
+   - you call yourselves "progressive" (but irl you're just catching up)
+[ ] read mein kampf to see how hitler did it
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
