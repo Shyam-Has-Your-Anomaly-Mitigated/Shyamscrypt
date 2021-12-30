@@ -121,15 +121,19 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 [ ] dialects:
  [ ] swipl().
  [ ] (racket racklog minikanren datalog); need to update the other repo redatalog
- [ ] mercury().
+ [ ] gnu
+ [ ] mercury(/roman|trojan/).
  [ ] (cycl)
  [ ] haskell propagators v http://minikanren.org/#Haskell
   - miranda dialect by senior devs (on their way out; lazily evaluated) who didn't want to downskill to the more technologically superior lisp that predates n008
   - prime 12020 never happend (lazy evaluation is to blame); s/curry/haskell/ proves committee languages compromise (a will only let b have b movie quality features if a gets a feature)
-  - \e for ansii escape characters turns out to be a bug in haskell they couldn't fix; so they went beyond full perl, and s/obvious bug/feature/ #so_much_for_parser_combinators__dcg_ftw #alex_mason(?)_∘_canfp_said_he_knows_a_hacker_who_has_an_epic_list_of_haskell_ui/ux_err_fawlty_ivory_tower
+  - \e for ansii escape characters turns out to be a bug in haskell they couldn't fix; so they went beyond full perl, and s/obvious bug/feature/ (as opposed to perls' s/by product of a feature/not a bug/) #so_much_for_parser_combinators__dcg_ftw #alex_mason(?)_∘_canfp_said_he_knows_a_hacker_who_has_an_epic_list_of_haskell_ui/ux_err_fawlty_ivory_tower
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket
   - prolog is a theorem prover v coq flag for isabelles' hol; pagent(gallinas' cup(s) v isabelles' hol(s) v adas' ravenscar profile(s))
+  - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
+ [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
+ [ ] logtalk
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
