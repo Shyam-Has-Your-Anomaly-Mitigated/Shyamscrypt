@@ -151,6 +151,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way)
    - homosexuality prohibition (kamasutra)
    - you call yourselves "progressive" (but irl you're just catching up)
+   - we aren't book burners
 [ ] read mein kampf to see how hitler did it
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
