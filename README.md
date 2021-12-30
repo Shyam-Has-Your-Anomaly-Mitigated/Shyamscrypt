@@ -57,7 +57,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
  [x] planet of /the|a/ massive(s) prime-mate-ive(s) butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after prime-(m)ate:b'nana v the mahārājas' new clothes (wax on, wax off)
   [x] to lie, or not to lie; that is the firefly poethinker, butt iprefer ergo bed (of nails) from post hoc ergo propter hoc
- [ ] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
+ [x] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
+  [x] sūrya noun uprise → prólógos verb downword → sūrya noun upset
  [ ] percussive {line,knot-theoretic topological circle,triangle}
  [ ] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt
 [ ] reading list:
