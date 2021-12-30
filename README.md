@@ -148,7 +148,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - in the 1800s gañjā prohibition (medicinal, double standard anti-blasphemy,..)
    - in the 1800s brahman cows bred for meat (cancer, bouncing on the inner boundary of the goldilocks zone,..)
    - in the 1800s pasturisation invention (i lived on raw milk for 3 months, fresh from the udder i hand milked)
-   - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (/hinduism|gañjā/ gone /viral|wild/; gañjā≤1%thc = we've been using it this whole time #covert_hinduism #covert_paganism #..)
+   - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (/hinduism|gañjā/ gone /viral|wild/; gañjā≤1%thc = we've been using it this whole time, and it's protected by federal law #covert_hinduism #covert_paganism #..)
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way)
    - homosexuality prohibition (kamasutra)
    - you call yourselves "progressive" (but irl you're just catching up)
