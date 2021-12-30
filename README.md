@@ -48,7 +48,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
- [ ] ōṁeditational chanting v https://tvtropes.org/pmwiki/pmwiki.php/Main/TickTockTune
+ [x] ōṁeditational chanting v https://tvtropes.org/pmwiki/pmwiki.php/Main/TickTockTune
+  [x] `time read`
  [x] prime hindu numbers for the taking of psychological edging (https://www.youtube.com/watch?app=desktop&v=Yv4tI6939q0&t=27m)
   [x] 0 every"-thing" else, 1 mug of transparency (s/on/for/ my mind), 2 chocolate salty balls, 𝄞3 is the magic hindu number,..
  [x] vegan hot chocolate-salty-balls teabagging-the size-matters-mug litre-long measuring-jug of-invisibility (https://www.youtube.com/watch?v=xfQM4cRXho8&list=PL3XZNMGhpynN3A-pst5vsUTxDwGeMCk8W&t=13m#kirsty=stacey&phil=chad&outcel=broth\el&https://www.youtube.com/watch?v=ubEwaITzTKc&t=17m#freya_is_my_queen__after_killed_c̄_coffee)
