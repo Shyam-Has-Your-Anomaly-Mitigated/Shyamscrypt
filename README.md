@@ -133,6 +133,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - the little typer; pi@racket sicp@racket
   - prolog is a theorem prover v coq flag for isabelles' hol; pagent(gallinas' cup(s) v isabelles' hol(s) v adas' ravenscar profile(s))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
+   - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
  [ ] logtalk
  [ ] oops; state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
