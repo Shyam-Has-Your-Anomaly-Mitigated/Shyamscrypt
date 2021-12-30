@@ -139,7 +139,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - either china is technologically superior, and declares cyberwarfare, or they are technologically inferior liars
   - either governments are organised crime syndicates (tax = extortion,..) where judges implicitly sentence rape (human rights issues on an internationally global scale) in an nᵗʰ world of technological superiority, or governments are idiocracies where doctor zaius (zeus?) isn't held accountable
   - overthrowing is illegal, but the loophole is a communication network (avoiding middle men) of half the population to force the government to accept specific leadership, and then forcibly gut the government, and hold the exgovernment workers accountable by reintroducing corporal punishment, torture,.. #job_security_is_a_lie
-  - laws against /substance|sustenance/, and even researching them, are based on outdated propaganda (biased science, nescience..); jon snow
+  - laws against /substance|sustenance/, and even researching them (abn = loophole), are based on outdated propaganda (biased science, nescience..); jon snow
   - tobacco bribed the /government|medical industry/
   - alcohol kills brain cells
   - carcinogenic meat is still allowed in hospitals, schools, prisons (free sex, free meat, free food, free shelter,.; no need to study, wfd,..),..
