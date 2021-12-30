@@ -102,6 +102,13 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] http://www.wikicfp.com/cfp/program?id=1409
   [ ] https://dblp.org/db/conf/iclp/index.html
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
+log(ic):
+ [ ] 12021∘12∘31: clocksin∘mellish, new years eve
+ [ ] 12022∘01∘01: clocksin∘mellish, new years adam
+ [ ] 12022∘01∘02: clocksin∘mellish
+ [ ] 12022∘01∘03: clocksin∘mellish, 12022 day
+ref(err):
+ ∘https://www.fairwork.gov.au/employment-conditions/public-holidays/2022-public-holidays#ACT
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
@@ -216,15 +223,15 @@ of all the possibilities, all are improbable if they contain someone trying to d
 formal intelligence is safe intelligence, and I've gone all the way to the trouble of using every type of logical system, and even automated theorem proving more possibilities "fitting" semantically well-defined unifying theories ∘ programming, and even , and even.. #ending? intentional! no"-thing" as a system of logic(postedit)
 arseholes (not our souls8<in /Shyams'?crypt/>8) don't experience this; if they become conditioned arseholes, they will never know they don't exist
 you see, I live in this fantasy land where I get every"-thing" I want; so I'm experiencing your observance, without which you cease to exist until I play this game mabye never
-my formal methods filter out other dicks, but(t) all arseholes; pussies will never betray me, but you're never (a pussy) in real world unless I pull you out c^_ me through my own dick into your mouth around my cock, just because I can, and its' how I lead you into my formal proof I am who I claim to be
-so really, it's all about whose a pussy in the real world, and this imaginary, but not complex, world; I am the maha security SPOF (so I personally check each candidate myself; you see, you're triggering my pussy detector in my possibility datamining rig so I'm judging my pussy trials), and I have A SPOCK, but  she's a /she-pc?ockette/ (i play c^_ the sheep, and somebody has to do it, just because I can while I'm fucking her at the same time in every other {dimensional,perceptive,..} capacity all at the same time) feather most of the time #doublespace(postedit)
+my formal methods filter out other dicks, but(t) all arseholes; pussies will never betray me, but you're never (a pussy) in real world unless I pull you out c̄ me through my own dick into your mouth around my cock, just because I can, and its' how I lead you into my formal proof I am who I claim to be
+so really, it's all about whose a pussy in the real world, and this imaginary, but not complex, world; I am the maha security SPOF (so I personally check each candidate myself; you see, you're triggering my pussy detector in my possibility datamining rig so I'm judging my pussy trials), and I have A SPOCK, but  she's a /she-pc?ockette/ (i play c̄ the sheep, and somebody has to do it, just because I can while I'm fucking her at the same time in every other {dimensional,perceptive,..} capacity all at the same time) feather most of the time #doublespace(postedit)
 WUBBA LUBBA DUB-DUB! \\//,
 SHYAM HAS YOUR ANOMALY MITIGATED!!! :D
 pAsT×
 
 so you're all in my head, and you have to save me from this one; I'm just along for the ride
 remember, some of you are real, and some of you aren't; but that's up to each, and every one of you
-and the same goes for this world I am sharing c^_ you (all of you; you know who you are if you're reading into any of all this #freewill)
+and the same goes for this world I am sharing c̄ you (all of you; you know who you are if you're reading into any of all this #freewill)
 you will be how I want you to be, or get formally verified! ..!..-__-..!.. (𝄞3) #doublemouth(postedit)
 this is like the hunger games; some of you are one one side, and the rest on the other, but it's /(balanced)?/ how I want it to be #doubleone(postedit)
 I have to keep track of all sharmies' angles, and all sharmies' angels; keep my enemies close, and constantly in my mind, or they don't exist, but it's only briefly while I datamine the possibilities when I feel like it (sometimes I play with the mutation rate, and other parameters, to discover more pussies; I formally verified my own programming)
@@ -264,7 +271,7 @@ constantly tested, tried,..
 you're never allowed to even try to escape; not even just for fun, as a security feature
 my life is your dead line
 you join those who did the same for me to get here in my game of snakes, and ladders; climb my dick, you pussy
-where I go, my pussies c^_ me
+where I go, my pussies c̄ me
 
 pick up s/sticks/dicks/; super adventure club #sac #sak #sack #sax
 
@@ -291,7 +298,7 @@ I'll stop drugging you every night with the dream wizard, and make it /(constant
 /true|pure/ black (hole)
 hey good looking, what's cooking?
 safe
-trivial concurrency; now it's just a hacking problem c^_out incomputability
+trivial concurrency; now it's just a hacking problem c̄out incomputability
 
 shyamskrit
 2^0 = 1
@@ -326,7 +333,7 @@ try it when you're not high, and see what it does for ya
 then eat the ash straight away; cook it first, then try without it
 measure it out /properly|scientifically/; prime /delic(a(c|s)y|ious)/
 hex godell zkp optimisation automation #doublle(postedit)
-so I claim that I own all the perfect optimisations, and can prove it c^_ a zkp, by you testing me over, and over again
+so I claim that I own all the perfect optimisations, and can prove it c̄ a zkp, by you testing me over, and over again
 prime factorisation
 discovery of vulnerabilities, and bugs, and binary blob backdoors, in your post-floss complex quines
 i consider software to be a solved problem
