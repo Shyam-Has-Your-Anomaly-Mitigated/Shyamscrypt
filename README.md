@@ -128,7 +128,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - miranda dialect by senior devs (on their way out; lazily evaluated) who didn't want to downskill to the more technologically superior lisp that predates n008
   - prime 12020 never happend (lazy evaluation is to blame); s/curry/haskell/ proves committee languages compromise (a will only let b have b movie quality features if a gets a feature)
   - \e for ansii escape characters turns out to be a bug in haskell they couldn't fix; so they went beyond full perl, and s/obvious bug/feature/ (as opposed to perls' s/by product of a feature/not a bug/ ∵ perl is a shortcut (∘shortcuts(∘..)) ∴ perls' nickname is leslie meyers, so resistance is futile, and leslie meyers's more trouble than the voynich manuscript) #so_much_for_parser_combinators__dcg_ftw #alex_mason(?)_∘_canfp_said_he_knows_a_hacker_who_has_an_epic_list_of_haskell_ui/ux_err_fawlty_ivory_tower
-  - haskell isn't even dependently typed, but inhabitancy is more important; otherwise go (beyond) full meta
+  - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket
   - prolog is a theorem prover v coq flag for isabelles' hol; pagent(gallinas' cup(s) v isabelles' hol(s) v adas' ravenscar profile(s))
