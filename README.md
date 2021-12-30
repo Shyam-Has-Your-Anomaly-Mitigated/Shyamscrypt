@@ -67,6 +67,13 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the deep jungles of I/O (user, file, network,..),..
  [~] minutes(93), "\"That scripting language called Prolog\"" by Sergei Winitzki @ https://www.youtube.com/watch?v=Zja3PHcWI-s&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=8
   - til; swipl can compile like mercury! (before I just did ./kbs.pl c̄ shebang; I can't remember how I defaulted my queries, but I doubt I used main/0) (they talk about 3D hacking before this part) (this is all in the first minutes(10); then I think they get swedish (₿), and I stopped watching ∵ iprefer books that assume I'm a complete idiot; https://www.youtube.com/watch?v=zAgpsks29W4)
+ [ ] clocksin∘mellish
+  [ ] https://dtai.cs.kuleuven.be/projects/ALP/TPLP/reviews/files/review13.pdf
+  [ ] clocksin∘mellish
+   - breadcrumbs:
+    - ch0("Clause and Effect" (W. F. Clocksin, 1997), "Prolog: The Standard" (P. Deransart, A. Ed-Dbali, and L. Cervoni, 1996))
+    - ch1("Logic for Problem Solving" (Robert Kowalski, 1979))
+    ~ i have aswell many notes too
  [x] minutes(Y), "This is going to be what I personally recommend" by SHYAM
   ~
  [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
@@ -102,12 +109,12 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] http://www.wikicfp.com/cfp/program?id=1409
   [ ] https://dblp.org/db/conf/iclp/index.html
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
-log(ic):
+[ ] log(ic):
  [ ] 12021∘12∘31: clocksin∘mellish, new years eve
  [ ] 12022∘01∘01: clocksin∘mellish, new years adam
  [ ] 12022∘01∘02: clocksin∘mellish
  [ ] 12022∘01∘03: clocksin∘mellish, 12022 day
-ref(err):
+[ ] ref(err):
  ∘https://www.fairwork.gov.au/employment-conditions/public-holidays/2022-public-holidays#ACT
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
