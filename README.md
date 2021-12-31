@@ -470,7 +470,7 @@ your elevensies are up, unless the other time lords bless you c̄ it (in time), 
 varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
-aliens lost in space hiding on the otherside of the sūrya
+aliens lost in space hiding on the otherside of the sūrya; vulcan used the oberserver paradox
 walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)(flower|plant)/, or even bump,.; wwtdd? "what's the worst that could happen? you end up on your knees before your master (just) saying \"ō ṁaster\" over, and over again like a flexible bendy yogi stretching around while playing a game of twister while singing melodious mantras to their maha atma, and next \"-thing\" you know; you're giving him a blowjob!")
 
 ancient holy(datamining) light speed computer: bamboo(divide(boomerang tech) → subtract(sticks, and stones, may break these /bones|memory rings/) → multiply(gañjā rope)) + candles + data∈{clay,mud,..}(postsubtraction)
