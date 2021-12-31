@@ -182,7 +182,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - antistem propaganda: https://www.youtube.com/watch?v=JkMvm_rsTvI
  - the leader of a nation bullshits their way in (what wall? /and|so/ they did pay for it after all!), setting the example as the rolemodel for all government workers are bullshitters, and they are corporately funded, so when we hold exgovernment workers accountable; the richest people will be included aswell aswell
  - business people who mention small claims; they make way more money than they pay you + small claims = lawyers give better legal advice, and /juicy|drinkie/ businesses are ripe for the taking, like a perl
- - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail = saved lives = rightmail (o ring accountability)
+ - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail = saved lives = rightmail (o ring accountability) #if-then-else
  - the only legal legal advice that is legal is consult /law enforcement|floss lawyers|proprietary lawyers|judges/; /hierarchical|nᵗʰ/ opinions (like gods, magicians, shrinks, doctors, surgeons, butchers,.; are you a walking encyclopædia of any"-thing" besides the vedas? some just don't know any better, /lazy|carry/, tunnel vision, corruption, severance package /grads|upskill|re-employment ops|dole bludgers|professional beggars/,..)
  - wubba lubba dub dub!!! :D
 
