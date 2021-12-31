@@ -118,6 +118,21 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] 12022∘01∘03: clocksin∘mellish, 12022 day
 [ ] ref(err):
  ∘https://www.fairwork.gov.au/employment-conditions/public-holidays/2022-public-holidays#ACT
+[ ] implementation strats (~s~i~c~; some of this is alien to me now, after all of this ttime, but these are among my most valuable notes; intending to implement all strats in all dialects, the /easy|lazy/ way, and even autoportr them so i can ddospam all the employment adware at market):
+ [ ] implementation (specificity v generality) /details|deets/; transpiler, complexity analysis, eta, esa, golf,..
+  [ ] d_ declarative descriptions; descriptively intelligent eval; describe the self-hackable problem, and it hacks itself #metahacking
+  [ ] r_ recursive definition; lazy eval; recursion; recursively thunking into memory
+  [ ] a_ accumulation wrapper; strict eval; tail call optimisation strats v unification optimisation strats v (intelligent) cpu scheduling management engines
+  [ ] l_ dcg domain specific (lin)guistics; prescriptively intelligent eval; monadic /difference|differential/ lists
+   [ ] /hole?y/ difference /structures|lists/ from clocksin.mellish are different from difference chains in learn prolog now!
+   [ ] use p_ for /polymorphism|polymorphic|camo/
+   [ ] use h_ for /hole?y/ implementation; impleMENtation, impLEMENtation,..
+   [ ] use ph_ for p,hole = /pee ?hole/
+   [ ] use l_ for lazy list
+  [ ] use /recursion|append/ for prototyping, use accumulators for optimisation(s)
+  [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies
+   [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
+   [ ] all distros; (i'll add the rest of all of this later, but anyone should have /an? ideas?/ for this rememberallline)
 [ ] dialects:
  [ ] swipl().
  [ ] (racket racklog minikanren datalog); need to update the other repo redatalog
@@ -139,6 +154,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
  [ ] logtalk
  [ ] oops; state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
+  - the dprk just bought the plans for nukes from the russians off of the tor network with their bank heists
   - either china is technologically superior, and declares cyberwarfare, or they are technologically inferior liars
   - either governments are organised crime syndicates (tax = extortion,..) where judges implicitly sentence rape (human rights issues on an internationally global scale) in an nᵗʰ world of technological superiority, or governments are idiocracies where doctor zaius (zeus?) isn't held accountable
   - overthrowing is illegal, but the loophole is a communication network (avoiding middle men) of half the population to force the government to accept specific leadership, and then forcibly gut the government, and hold the exgovernment workers accountable by reintroducing corporal punishment, torture,.. #job_security_is_a_lie
@@ -156,7 +172,10 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - homosexuality prohibition (kamasutra)
    - you call yourselves "progressive" (but irl you're just catching up)
    - we aren't book burners; besides one of the vedas (but the british are to blame for every"-thing")
-[ ] read mein kampf to see how hitler did it
+[ ] read mein kampf to see how hitler did it; woe is me!
+ - transparency in government; they've wanted it since before i was even born? yes, minister!
+ - if the australian government uses their ass access bill to force me into a backdoor, and issue a gag order, then i simply won't publish, so if i ever stop then you already know why, and i've preemptively superpositioned the gag order (loophole); they don't really want to promote stem anymore, because "\"i'm sorry dave, i can't do that\": ethics in software development" is the reason i'm unemployed, because i don't sign ndas (well, i'll sign it; assuming you read my personal docommentation, so i can counter for negligence of due diligence, since plausible deniability is deniable as charged), but i'm working on a plan to get a deadend job to escape from this dystopian country; since my degree was a waste of ttime, and just an excuse for the government to put me in debt to support the jobs of others, because that's how economics works; take a little here, put a little there, shuffle it all around; right? yes, minister!
+ - wubba lubba dub dub!!! :D
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
 analogous flags are /a?symmetrically/ double sided so my flag is now in a state of superposition between /forward|reverse/ स्वस्तिक
