@@ -14,7 +14,7 @@ ch8 ?- [user]. % auto @coq
 ch9 Definite Clause Grammars are explained in chapter 9, starting from a simple English sentence analysis. It is a classic and satisfying explanation. The section about Translating Language to Logic is particularly nice, because through DCGs it shows the relation between natural language sentences and logic formulas: this is what logic programming is about!
 ch9 logic programming is all about that dcg
 ch10 Chapter 10 explains how Prolog relates to (pure) Logic. A reader who just wants to have a practical grasp on Prolog could skip this chapter, but nobody should be afraid of tackling it: the authors have done a very good job starting from an explanation of Predicate Calculus, going to Clausal Form, covering Resolution and Theorem Provers, finally arriving at Horn Clauses and ending with Prolog. This chapter should be reread regularly by old Prolog programmers.
-ch10 should be read religiously every single day by prolog hackers
+ch10 should be read religiously every single day by real prolog hackers
 appendix a: notation {X} is definitely iso, no matter who says otherwise
 appendix b: contains the code for translating a logic formula into clausal form: it follows the explanation of chapter 10, but now we see the full Prolog code.
 
