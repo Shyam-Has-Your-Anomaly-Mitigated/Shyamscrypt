@@ -138,7 +138,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] (racket racklog minikanren datalog); need to update the other repo redatalog
  [ ] gnu
  [ ] mercury(/roman|trojan/).
- [ ] (cycl)
+ [ ] (cycl); aindilis(?) ∘ ##prolog gave a course on this, or opencyc(l), but i missed it
  [ ] haskell propagators v http://minikanren.org/#Haskell
   - miranda dialect by senior devs (on their way out; lazily evaluated) who didn't want to downskill to the more technologically superior lisp that predates n008
   - prime 12020 never happend (lazy evaluation is to blame); s/curry/haskell/ proves committee languages compromise (a will only let b have b movie quality features if a gets a feature)
