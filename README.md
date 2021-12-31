@@ -113,10 +113,10 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] https://dblp.org/db/conf/iclp/index.html
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
 [ ] log(ic):
- [ ] 12021∘12∘31: clocksin∘mellish, new years eve
- [ ] 12022∘01∘01: clocksin∘mellish, new years adam
- [ ] 12022∘01∘02: clocksin∘mellish
- [ ] 12022∘01∘03: clocksin∘mellish, 12022 day
+ [ ] 12021∘12∘31: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years eve
+ [ ] 12022∘01∘01: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years adam
+ [ ] 12022∘01∘02: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro)
+ [ ] 12022∘01∘03: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), 12022 day
 [ ] ref(err):
  ∘https://www.fairwork.gov.au/employment-conditions/public-holidays/2022-public-holidays#ACT
 [ ] implementation strats (~s~i~c~; some of this is alien to me now, after all of this ttime, but these are among my most valuable notes; intending to implement all strats in all dialects, the /easy|lazy/ way, and even autoportr them so i can ddospam all the employment adware at market):
