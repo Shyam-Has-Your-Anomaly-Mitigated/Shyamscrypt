@@ -452,3 +452,4 @@ walking on bhūmi v skateboarding on air v walking on water v walking on fire; s
 
 ancient holy(datamining) light speed computer: bamboo(divide(boomerang tech) → subtract(sticks, and stones, may break these /bones|memory rings/) → multiply(gañjā rope)) + candles + data∈{clay,mud,..}(postsubtraction)
 ancient libraries of data, printing press, there's already two copies (autobackup),..
+pain transmits debug signals to brain v (and r r)
