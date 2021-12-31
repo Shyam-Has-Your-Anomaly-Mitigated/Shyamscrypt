@@ -132,7 +132,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] use /recursion|append/ for prototyping, use accumulators for optimisation(s)
   [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies
    [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
-   [ ] all distros; (i'll add the rest of all of this later, but anyone should have /an? ideas?/ for this rememberallline)
+   [ ] all distros; (i'll add the rest of all of this later, but anyone should have /(an)? ideas?/ for this rememberallline)
 [ ] dialects:
  [ ] swipl().
  [ ] (racket racklog minikanren datalog); need to update the other repo redatalog
