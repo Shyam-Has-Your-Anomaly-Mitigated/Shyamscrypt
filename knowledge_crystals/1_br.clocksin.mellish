@@ -1,0 +1,83 @@
+12021.12.31.14.04
+c.m(
+,ch1(all of datalog)
+,ch2(prolog syntax has a lot of fineprint)
+ch4 steadfastness; what is steadfast? #output_unification
+ch4 if-then-else
+ch4 first argument indexing
+ch4 prolog must do a linear search in a database of ground facts, even if the first argument is instantiated
+ch5 the more safe i/o predicates that take the stream as their first argument
+ch5 i hate operators
+ch6 var/1 clause/2 /(functor|arg|univ) triple/
+ch8 byrd box model, spy points, leashing, after_last_dot_in_a_program(return v eof)
+ch8 ?- [user]. % auto @coq
+ch9 Definite Clause Grammars are explained in chapter 9, starting from a simple English sentence analysis. It is a classic and satisfying explanation. The section about Translating Language to Logic is particularly nice, because through DCGs it shows the relation between natural language sentences and logic formulas: this is what logic programming is about!
+ch9 logic programming is all about that dcg
+ch10 Chapter 10 explains how Prolog relates to (pure) Logic. A reader who just wants to have a practical grasp on Prolog could skip this chapter, but nobody should be afraid of tackling it: the authors have done a very good job starting from an explanation of Predicate Calculus, going to Clausal Form, covering Resolution and Theorem Provers, finally arriving at Horn Clauses and ending with Prolog. This chapter should be reread regularly by old Prolog programmers.
+ch10 should be read religiously every single day by prolog hackers
+appendix a: notation {X} is definitely iso, no matter who says otherwise
+appendix b: contains the code for translating a logic formula into clausal form: it follows the explanation of chapter 10, but now we see the full Prolog code.
+
+Appendix C is about Writing Portable Standard Prolog Programs. The only sens-
+ible advice would have been to eschew anything that is not defined by the standard,
+and in particular the issues that ISO has left implementation dependent or imple-
+mentation defined. Instead, the authors warn the reader that non-conforming im-
+plementations might exhibit non-ISO behavior, which is like the empty statement.
+A section which describes more clearly the differences between (say) DEC-10 Prolog
+and ISO Prolog would have been more helpful. The programs given in this chapter
+mimic ISO built-ins using predicates that were popular in the de facto standard: it
+seems better for the individual programmer not to use these programs.
+
+Appendix D contains the full code for DCG translation. It is not clear why the
+authors wanted it in the book. Moreover the code and its comments still try to
+make it work in a non-ISO system: it is one of the examples of the ambiguity of
+the book which has not resolutely chosen for ISO.
+
+People attracted by the subtitle Using the ISO Standard could feel left in the
+cold by the actual ISO content of the book. There are many small errors related
+to ISO in the book. One more example: the footnote on page 182 suggests that an
+implementation that limits the applicability of clause/2 to dynamic predicates, is
+not ISO conforming. Since dynamic predicates are public, and since an implement-
+ation can limit public predicates to the dynamic ones, it follows that this is not
+true. There are too many such points in the book.
+
+The book also often fails in Using the ISO Standard in some of its programs. As
+an example: the preface mentions explicitly that the arithmetic operators =:= and
+=\= are introduced (they were not in the first edition), but the programs on page
+175 and 268 do not use these operators while that would have been the natural
+thing to do.
+
+On top of that, there are at least two major areas in ISO that the book does not
+even mention: the first one is the issue of modules. On page 189, the book advises
+to split a large program over several files, but the concept of modules, neither the
+fact that ISO Prolog has also a part that standardized modules is mentioned. The
+second issue is the one of the ISO error mechanism: ISO Prolog prescribes it in detail
+and beginning programmers are confronted with it from the start because badly
+called built-in predicates throw an exception. The book should have explained the
+mechanism: it is not prohibitively difficult. Moreover, on pages 8 and 119, the book
+mentions only failure, failure+warning or error message as the ISO possibilities for
+calling a non-existing predicate or calling arithmetic on non-numbers.
+
+In conclusion: this is a great introduction to Prolog, but it is weak on the ISO
+aspect.
+
+if-then-else is the most important implementation strat
+
+according to,
+Bart Demoen
+K.U.Leuven, Belgium
+
+ps cuts = pruning #science.gardening
+
+43m9.949s
+minutes(44)
+
+there was no way i was going to cram all of this into a one liner @/\[\ \]\ \l\o\g\(\i\c\)\:/
+unix' every"-thing" is a file, it is
+i could've tidied it up, but ttime was on my mind; i'll try to ignore it form now on
+i got unsolicited telephone calls, and messages, from sydney
+probably for a call centre job, but they should send an email to organise an interview rather than cold calling me, 'cause on these days they all try to catch me unawares; like on a holy day of eve
+the whole ttime i thought it might be the government about my criminal insanity tendancies, or a complainer to be ignored as moriarty was ignored by sherlock so i can bring them back how i free will
+there's too many scammers, spammers, wrong hindu numbers,.; telephone train tracks aside, cat email | grep -RriIl interview #still_works_like_a_charm__unless_my_garbage_collectors_treats_themselves_as_g_is_for_garbage_and_garbage_is_for_me_..
+i might actually look at this file later, but who knows (i never do; that's why the mvn exists)
+obviously i got lazy after appendix b i got lazy
