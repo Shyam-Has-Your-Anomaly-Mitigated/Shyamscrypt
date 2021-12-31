@@ -116,7 +116,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] https://dblp.org/db/conf/iclp/index.html
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
 [ ] log(ic):
- [ ] 12021∘12∘31: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years eve
+ [x] 12021∘12∘31: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years eve
  [ ] 12022∘01∘01: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years adam
  [ ] 12022∘01∘02: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro)
  [ ] 12022∘01∘03: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), 12022 day
