@@ -477,3 +477,4 @@ ancient libraries of data, printing press, there's already two copies (autobacku
 pain transmits debug signals to brain v (and r r)
 it takes about a decade to replace every cell in the human body; this is only really important if you eat animals
 do you eat animals? some people say no, when they really mean yes
+you are what you eat; not just karma, dharma,..
