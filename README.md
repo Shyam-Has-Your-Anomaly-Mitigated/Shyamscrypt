@@ -1,5 +1,6 @@
 ```
 # Shyamscrypt
+-               i was only expressing solidarity; blame me?
 -               🌹
 +from the ash I rose
 -         इ.सि.         the
