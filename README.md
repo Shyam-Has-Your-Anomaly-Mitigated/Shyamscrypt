@@ -184,6 +184,10 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - business people who mention small claims; they make way more money than they pay you + small claims = lawyers give better legal advice, and /juicy|drinkie/ businesses are ripe for the taking, like a perl
  - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail = saved lives = rightmail (o ring accountability) #if-then-else
  - the only legal legal advice that is legal is consult /law enforcement|floss lawyers|proprietary lawyers|judges/; /hierarchical|nᵗʰ/ opinions (like gods, magicians, shrinks, doctors, surgeons, butchers,.; are you a walking encyclopædia of any"-thing" besides the vedas? some just don't know any better, /lazy|carry/, tunnel vision, corruption, severance package /grads|upskill|re-employment ops|dole bludgers|professional beggars/,..)
+ - human right = /nemo tenetur se ipsum accusare|selective mutism/; it's better not to say a word to law enforcement (they get paid, and want you to do their work for them, because they're lazy), and save it for the judge; just chant the "miranda" mantra (in whatever dialect) #word
+ - judges always screw somebody over, it's their job; oneside loses, while the otherside wins
+ - judges worship the roman pantheon, so it's best to speak their sacred tongues; "si tacuisses, philosophus mansisses", "nemo tenetur prodere seipsum", "accusare nemo se debet nisi coram Deo", "nemo tenetur armare adversarium contra se", "nemo tenetur edere instrumenta contra se", "nemo tenere prodere se ipsum", "nemo tenetur se ipsum accusare",.. #words #words∘wisdom
+ - i have the power, of free speech; i can inform inmates, guards, visitors, and escape to inform the world (like climbing the ladder in black mirror, after skipping stones like a phantom limb experiment) #woke
  - wubba lubba dub dub!!! :D
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
