@@ -74,6 +74,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] minutes(44), https://dtai.cs.kuleuven.be/projects/ALP/TPLP/reviews/files/review13.pdf
   [ ] minutes(Y1), clocksin∘mellish
    - vedic memorisation of ch10 the relation of prolog to logic; daily chanting (is now mandatory; as of first read) #commitment_to_the_clause #religious_zealot
+    - the temple of datalog: ch1 tutorial introduction
+    - the temple of edinburgh: ch10 the relation of prolog to logic
    - breadcrumbs:
     - ch0("Clause and Effect" (W. F. Clocksin, 1997), "Prolog: The Standard" (P. Deransart, A. Ed-Dbali, and L. Cervoni, 1996))
     - ch1("Logic for Problem Solving" (Robert Kowalski, 1979))
