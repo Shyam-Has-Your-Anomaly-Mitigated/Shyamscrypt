@@ -148,7 +148,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket
-  - prolog is a theorem prover v coq flag for isabelles' hol; pagent(gallinas' cup(s) v isabelles' hol(s) v adas' ravenscar profile(s))
+  - prolog is a theorem prover v coq flag for isabelles' hol; pagent(gallinas' cup(s) v isabelles' hol(s) v adas' ravenscar(s) v whores' logic(s))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
    - did wikipedia steal from source, or did source steal from wikipedia? source = formal and adaptive methods for automation of parallel programs construction: emerging research and opportunities by anatoliy doroshenko and olena yatsenko
@@ -158,7 +158,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] oops; state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
   - the dprk just bought the plans for nukes from the russians off of the tor network with their bank heists; their leader grabbed donald trump by the pussy in front of everyone, and made him travel all the way there just to be grabbed by the pussy, and he makes a pussy c̄ his mouth too (it's his trademark)
   - either china is technologically superior, and declares cyberwarfare, or they are technologically inferior liars
-  - either governments are organised crime syndicates (tax = extortion,..) where judges implicitly sentence rape (human rights issues on an internationally global scale) in an nᵗʰ world of technological superiority, or governments are idiocracies where doctor zaius (zeus?) isn't held accountable
+zglobal scale) in an nᵗʰ world of technological superiority, or governments are idiocracies where doctor zaius (zeus?) isn't held accountable
   - overthrowing is illegal, but the loophole is a communication network (avoiding middle men) of half the population to force the government to accept specific leadership, and then forcibly gut the government, and hold the exgovernment workers accountable by reintroducing corporal punishment, torture,.. #job_security_is_a_lie
   - laws against /substance|sustenance/, and even researching them (abn = loophole), are based on outdated propaganda (biased science, nescience..); jon snow
   - tobacco bribed the /government|medical industry/
