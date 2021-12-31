@@ -182,7 +182,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - antistem propaganda: https://www.youtube.com/watch?v=JkMvm_rsTvI
  - the leader of a nation bullshits their way in (what wall? /and|so/ they did pay for it after all!), setting the example as the rolemodel for all government workers are bullshitters, and they are corporately funded, so when we hold exgovernment workers accountable; the richest people will be included aswell aswell
  - business people who mention small claims; they make way more money than they pay you + small claims = lawyers give better legal advice, and /juicy|drinkie/ businesses are ripe for the taking, like a perl
- - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail
+ - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail = saved lives = rightmail (o ring accountability)
  - wubba lubba dub dub!!! :D
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
