@@ -46,6 +46,9 @@ shepard tone + peltier thermal grill illusion; pain, pleasure, computation,..
 roussel is to prolog, as russell is to lisp, as russell is to principia mathematica
 
 [ ] need to find the symbolic purity, and put it here…
+ - s/halt/exit clause/
+ - blackmail = if-then-else = (call-)or = v
+ - whitemail = call = eval
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
@@ -70,9 +73,9 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - this is the first time I've ever seen this /video|concept/; even though I hate cut, this is still important for exploring the deep jungles of I/O (user, file, network,..),..
  [~] minutes(93), "\"That scripting language called Prolog\"" by Sergei Winitzki @ https://www.youtube.com/watch?v=Zja3PHcWI-s&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=8
   - til; swipl can compile like mercury! (before I just did ./kbs.pl c̄ shebang; I can't remember how I defaulted my queries, but I doubt I used main/0) (they talk about 3D hacking before this part) (this is all in the first minutes(10); then I think they get swedish (₿), and I stopped watching ∵ iprefer books that assume I'm a complete idiot; https://www.youtube.com/watch?v=zAgpsks29W4)
- [ ] minutes(Y), clocksin∘mellish
+ [~] minutes(Y), clocksin∘mellish
   [x] minutes(44), https://dtai.cs.kuleuven.be/projects/ALP/TPLP/reviews/files/review13.pdf
-  [ ] minutes(Y1), clocksin∘mellish
+  [~] minutes(Y1), clocksin∘mellish
    - vedic memorisation of ch10 the relation of prolog to logic; daily chanting (is now mandatory; as of first read) #commitment_to_the_clause #religious_zealot
     - the temple of datalog: ch1 tutorial introduction
     - the temple of edinburgh: ch10 the relation of prolog to logic
@@ -117,7 +120,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] Gilbert Strang' linear algebra is the mathematics of data /mining|science/, and prolog is all data /science|mining/; I'm /(cry)?p(t|r)o ?logic(al)?/
 [ ] log(ic):
  [x] 12021∘12∘31: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years eve
- [ ] 12022∘01∘01: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years adam
+ [x] 12022∘01∘01: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), new years adam
  [ ] 12022∘01∘02: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro)
  [ ] 12022∘01∘03: clocksin∘mellish, tas-kpz001-2021 science of gardening (indoor hydro), 12022 day
 [ ] ref(err):
@@ -150,7 +153,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket
-  - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /illusionists|magicians|witches|big tits zombie whores/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
+  - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
    - did wikipedia steal from source, or did source steal from wikipedia? source = formal and adaptive methods for automation of parallel programs construction: emerging research and opportunities by anatoliy doroshenko and olena yatsenko
@@ -158,6 +161,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
  [ ] logtalk
  [ ] oops; state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
+  - donald trump failed to kick out the /arabic|muslim/ voters who supported him, and the ato; i think they call it the irs?
   - the dprk just bought the plans for nukes from the russians off of the tor network with their bank heists; their leader grabbed donald trump by the pussy in front of everyone, and made him travel all the way there just to be grabbed by the pussy, and he makes a pussy c̄ his mouth too (it's his trademark)
   - either china is technologically superior, and declares cyberwarfare, or they are technologically inferior liars
   - either governments are organised crime syndicates (tax = extortion,..) where judges implicitly sentence rape (human rights issues on an internationally global scale) in an nᵗʰ world of technological superiority, or governments are idiocracies where doctor zaius (zeus?) isn't held accountable
@@ -171,7 +175,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - in the 1800s gañjā prohibition (medicinal, double standard anti-blasphemy,..)
    - in the 1800s brahman cows bred for meat (cancer, bouncing on the inner boundary of the goldilocks zone,..)
    - in the 1800s pasturisation invention (i lived on raw milk for 3 months, fresh from the udder i hand milked)
-   - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (/hinduism|gañjā/ gone /viral|wild/; gañjā≤1%thc = we've been using it this whole time, and it's protected by federal law #covert_hinduism #covert_paganism #..)
+   - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (/hinduism|gañjā/ gone /viral|wild/; gañjā≤1%thc = we've been using it this whole time, and it's protected by federal law #covert_hinduism #covert_paganism #..) #i_ann_nc̄a #nuua_ftuu
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way; /heavenly|heathenly/ /bodies|personalities/, that ttime of the month,..)
    - homosexuality prohibition (kamasutra)
    - you call yourselves "progressive" (but irl you're just catching up)
@@ -183,11 +187,16 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - the leader of a nation bullshits their way in (what wall? /and|so/ they did pay for it after all!), setting the example as the rolemodel for all government workers are bullshitters, and they are corporately funded, so when we hold exgovernment workers accountable; the richest people will be included aswell aswell
  - business people who mention small claims; they make way more money than they pay you + small claims = lawyers give better legal advice, and /juicy|drinkie/ businesses are ripe for the taking, like a perl
  - there's a fine line between black mail, and white mail; →(longcut v legal action) = blackmail, legal action = whitemail = saved lives = rightmail (o ring accountability) #if-then-else
+ - there's a fine line between selfish offence, and selfless defence; exit clause, de-escalation, aikido,..
  - the only legal legal advice that is legal is consult /law enforcement|floss lawyers|proprietary lawyers|judges/; /hierarchical|nᵗʰ/ opinions (like gods, magicians, shrinks, doctors, surgeons, butchers,.; are you a walking encyclopædia of any"-thing" besides the vedas? some just don't know any better, /lazy|carry|innumerately primed? committee/, tunnel vision, corruption, severance package /grads|upskill|re-employment ops|dole bludgers|professional beggars/,..)
  - human right = /nemo tenetur se ipsum accusare|selective mutism/; it's better not to say a word to law enforcement (they get paid, and want you to do their work for them, because they're lazy), and save it for the judge; just chant the "miranda" mantra (in whatever dialect) #word
  - judges always screw somebody over, it's their job; oneside loses, while the otherside wins
  - judges worship the roman pantheon, so it's best to speak their sacred tongues; "si tacuisses, philosophus mansisses", "nemo tenetur prodere seipsum", "accusare nemo se debet nisi coram Deo", "nemo tenetur armare adversarium contra se", "nemo tenetur edere instrumenta contra se", "nemo tenere prodere se ipsum", "nemo tenetur se ipsum accusare",.. #words #words∘wisdom
  - i have the power, of free speech; i can inform inmates, guards, visitors, and escape to inform the world (like climbing the ladder in black mirror, after skipping stones like a phantom limb experiment) #woke
+ - class, welcome to taught law school
+  - the 1ˢᵗ law of the law is; you donut talk about the law
+  - the 2ⁿᵈ law of the law is; you doughnut talk about the law
+  - the 3ʳᵈ law of the law is; it's not over until the fat lady sings
  - wubba lubba dub dub!!! :D
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
@@ -480,7 +489,7 @@ varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
 aliens lost in space hiding on the otherside of the sūrya; vulcan used the oberserver paradox
-walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)(flower|plant)/, or even bump,.; wwtdd? "what's the worst that could happen? you end up on your knees before your master (just) saying \"ō ṁaster\" over, and over again like a flexible bendy yogi stretching around while playing a game of twister while singing melodious mantras to their maha atma, and next \"-thing\" you know; you're giving him a blowjob!")
+walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)(flower|plant)/, or even bump,.; wwtdd? "well, what's the worst that could happen? you end up on your knees before your ((galley freya; hey good lookin', what's cookin'? the galley division) ttime lord, and) master, (just) saying \"ō ṁaster\" over, and over again like a flexible bendy yogi stretching around while playing a game of twister while singing melodious mantras to their maha atma, and next \"-thing\" you know; you're giving him a blowjob!")
 
 ancient holy(datamining) light speed computer: bamboo(divide(boomerang tech) → subtract(sticks, and stones, may break these /bones|memory rings/) → multiply(gañjā rope)) + candles + data∈{clay,mud,..}(postsubtraction)
 ancient libraries of data, printing press, there's already two copies (autobackup),..
@@ -491,3 +500,4 @@ you are what you eat; not just karma, dharma,..
 s/timeless child/space (child|girl)/
 nana nana nana nana spaceman; space ship nana nanana  na nana na
 s/nana/nano/
+great people let others worship their own gods
