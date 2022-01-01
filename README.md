@@ -47,7 +47,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 [ ] need to find the symbolic purity, and put it here…
  - s/halt/exit clause/
- - blackmail = if-then-else = (call-)or = v
+ - blackmail = if-then-else = (call-)or = v; (blackmail (or do exit_clause)) = (blackmail x perl) 8<< let mkomplex's it needs to be to steal perls like robin hood
  - whitemail = call = eval
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
@@ -160,7 +160,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - ml is loosely characterised as "Lisp with types" coming from the simply types lambda calculus; i think i discovered more last time #the_discovery
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
  [ ] logtalk
- [ ] oops; state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
+ [ ] oops (purely academic; why industrial = academia? point-haired bosses who try hard to think they're cool, hot, sick,..); state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
   - donald trump failed to kick out the /arabic|muslim/ voters who supported him, and the ato; i think they call it the irs?
   - the dprk just bought the plans for nukes from the russians off of the tor network with their bank heists; their leader grabbed donald trump by the pussy in front of everyone, and made him travel all the way there just to be grabbed by the pussy, and he makes a pussy c̄ his mouth too (it's his trademark)
   - either china is technologically superior, and declares cyberwarfare, or they are technologically inferior liars
@@ -197,6 +197,11 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - the 1ˢᵗ law of the law is; you donut talk about the law
   - the 2ⁿᵈ law of the law is; you doughnut talk about the law
   - the 3ʳᵈ law of the law is; it's not over until the fat lady sings
+ - the end
+  - business people are more powerful than governments; dr.whore mktex? dr.whore mkdoor? dr.whore mktmachine? dr.whore mkt? dr.whore mks? dr.whore mk? dr.whore m..m..o!
+  - we know where government workers work; we see c sea c̄ our great eye the $5-0, and it's too /easy|cheap (especially tax evasion)?/ to /lure|manipulate|bribe|infiltrate/ them away
+  - slave market sells home address(es), photos(id, work, sns,..), collaborators(family, friends,..), genetic /relatives|dbs|kbs/ the $5-0 use will be used against them,..
+  - no scarlet pimpernell = ycr,bych
  - wubba lubba dub dub!!! :D
 
 my digital flag is now in a state of superposition between /forward|reverse/ स्वस्तिक, but that's randomness for you so you couldn't even tell when I implemented this feature ∵ ttime is relative
@@ -489,7 +494,7 @@ varāha is the god of the $5-0
 gaṇeśa is the pink elephant god that everyone talks about, but never names; until now.
 https://en.wikipedia.org/wiki/Cock_flag
 aliens lost in space hiding on the otherside of the sūrya; vulcan used the oberserver paradox
-walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)(flower|plant)/, or even bump,.; wwtdd? "well, what's the worst that could happen? you end up on your knees before your ((galley freya; hey good lookin', what's cookin'? the galley division) ttime lord, and) master, (just) saying \"ō ṁaster\" over, and over again like a flexible bendy yogi stretching around while playing a game of twister while singing melodious mantras to their maha atma, and next \"-thing\" you know; you're giving him a blowjob!")
+walking on bhūmi v skateboarding on air v walking on water v walking on fire; stop, drop, and roll (best on the fire; the reason they say keep calm, and always look on the bright side of life; don't panic, nor over-exhurt oneself by running lest you trip, slip, or fall flat on your /(face|brain)(flower|plant)/, or even bump,.; wwtdd? "(well), what's the worst that could happen? you end up on your knees before your ((galley freya; hey good lookin', what's cookin'? the galley division) ttime lord, and) master, (just) saying \"ō ṁaster\" over, and over again like a flexible bendy yogi stretching around while playing a game of twister while singing melodious mantras to their maha atma, and next \"-thing\" you know; you're giving him a blowjob!")
 
 ancient holy(datamining) light speed computer: bamboo(divide(boomerang tech) → subtract(sticks, and stones, may break these /bones|memory rings/) → multiply(gañjā rope)) + candles + data∈{clay,mud,..}(postsubtraction)
 ancient libraries of data, printing press, there's already two copies (autobackup),..
@@ -501,3 +506,4 @@ s/timeless child/space (child|girl)/
 nana nana nana nana spaceman; space ship nana nanana  na nana na
 s/nana/nano/
 great people let others worship their own gods
+mpemba effect: summer = hot shower for air cooling, winter = cold shower for air warming
