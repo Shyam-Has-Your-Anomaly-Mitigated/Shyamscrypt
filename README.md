@@ -199,7 +199,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - human right = /nemo tenetur se ipsum accusare|selective mutism/; it's better not to say a word to law enforcement (they get paid, and want you to do their work for them, because they're lazy), and save it for the judge; just chant the "miranda" mantra (in whatever dialect) #word
  - judges always screw somebody over, it's their job; oneside loses, while the otherside wins
  - judges worship the roman pantheon, so it's best to speak their sacred tongues; "si tacuisses, philosophus mansisses", "nemo tenetur prodere seipsum", "accusare nemo se debet nisi coram Deo", "nemo tenetur armare adversarium contra se", "nemo tenetur edere instrumenta contra se", "nemo tenere prodere se ipsum", "nemo tenetur se ipsum accusare",.. #words #words∘wisdom
- - i have the power, of free speech; i can inform inmates, guards, visitors, and escape to inform the world (like climbing the ladder in black mirror, after skipping stones like a phantom limb experiment) #woke
+ - i have the power, of free speech; i can inform inmates, guards, visitors, and escape to inform the world (like climbing the (snakes on a) ladder in black mirror, after skipping stones like a phantom limb experiment) #woke
  - class, welcome to taught law school
   - the 1ˢᵗ law of the law is; you donut talk about the law
   - the 2ⁿᵈ law of the law is; you doughnut talk about the law
