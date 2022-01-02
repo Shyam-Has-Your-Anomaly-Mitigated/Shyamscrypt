@@ -153,7 +153,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket
-  - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
+  - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores|ryan gosling/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
    - did wikipedia steal from source, or did source steal from wikipedia? source = formal and adaptive methods for automation of parallel programs construction: emerging research and opportunities by anatoliy doroshenko and olena yatsenko
