@@ -54,8 +54,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - kaa = /perlm?ystic/ = fallaki? = unravel(s) = satiety complete = satiated
  - encore;;;
  - cons(car,cdr) = cons(car,cdr)
- - car(cons(/a|h|f|r/,cdr),/a|h|f|r/); soc v boc v..
- - cdr(cons(car,/z|t|r|l/),/z|t|r|l/); eoc
+ - car(cons(/a|h|f|r|f/,cdr),/a|h|f|r|f/); soc v boc v..
+ - cdr(cons(car,/z|t|r|l|s/),/z|t|r|l|s/); eoc
  - bakoom = err
  - papers_please = bureaucratic_warning
 [ ] reading den:
