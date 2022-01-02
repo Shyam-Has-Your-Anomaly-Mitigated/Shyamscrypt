@@ -245,7 +245,7 @@ I hand delivered a calf, and observed him stand, and walk, in the first hour
 dogs understand human language
 parrots speak human language
 apes use human sign language
-we are apes, who can only speak human (sign) language
+we are apes, who can only speak human (sign) language; other species will have to communicate on our behalf, but we are all aliens (this is outerspace)
 planet of the apes is real
 t pose is the gesture for "get hugged"
 
