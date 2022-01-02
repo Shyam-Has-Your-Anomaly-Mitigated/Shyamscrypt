@@ -49,6 +49,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - s/halt/exit clause/
  - blackmail = if-then-else = (call-)or = v; (blackmail (or do exit_clause)) = (blackmail x perl) 8<< let mkomplex's it needs to be to steal perls like robin hood
  - whitemail = call = eval
+ - ravel(s) = ravelation = (self(ie)) revelation
+ - unravel(s) = satiety complete = satiated
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
