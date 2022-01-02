@@ -47,7 +47,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
 
 [ ] need to find the symbolic purity, and put it here…
  - s/halt/exit clause/
- - blackmail = if-then-else = (call-)or = v; (blackmail (or do exit_clause)) = (blackmail x perl) 8<< let mkomplex's it needs to be to steal perls like robin hood
+ - blackmail = if-then-else = (call-)or = v; (blackmail (or do exit_clause)) = (blackmail x perl) 8<< let mkomplex's it needs to be to steal perls like robin hood; i think perl can be contextually sensitive, and the /only|universal|multiversal|broadspectrum/ shortcut
  - whitemail = call = eval
  - kaa = hypnoxaa = ravel(s) = ravelation = (self(ie)) revelation
  - kaa = fallaki? = unravel(s) = satiety complete = satiated
