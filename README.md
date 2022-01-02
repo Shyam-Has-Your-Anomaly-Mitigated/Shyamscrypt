@@ -177,7 +177,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - overthrowing is illegal, but the loophole is a communication network (avoiding middle men) of half the population to force the government to accept specific leadership, and then forcibly gut the government, and hold the exgovernment workers accountable by reintroducing corporal punishment, torture,.. #job_security_is_a_lie #if_someone_claims_who_they_voted_for_they_could_have_a_run_in_or_have_been_framed_or_be_patriotic_or.. #zkp
   - laws against /substance|sustenance/, and even researching them (abn = loophole), are based on outdated propaganda (biased science, nescience..); jon snow
   - tobacco bribed the /government|medical industry/
-  - alcohol kills brain cells
+  - alcohol kills brain cells; the wine industry wants customers to believe their products improve "longevity" (aka neurodegenerativity), but genetics is the primary factor (natural selection v selective breeding)
   - carcinogenic meat is still allowed in hospitals, schools, prisons (free sex, free meat, free food, free shelter,.; no need to study, wfd,..),..
   - the war against hinduism (backfired); because violence wasn't enough to `rm hindu`, because the followers of /abraham|atheism|agnosticism/ are weakminded airheads, because..
    - judges sit up there on their thrones of dead cows ∵ anti-blasphemy laws are a one-sided one-way street (karma; physical manifestation of hell)
