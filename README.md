@@ -52,6 +52,9 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - kaa = hypnoxaa = ravel(s) = ravelation = (self(ie)) revelation
  - kaa = fallaki? = unravel(s) = satiety complete = satiated
  - encore;;;
+ - cons(car,cdr) = cons(car,cdr)
+ - car(cons(/h|f|r/,cdr),/h|f|r/)
+ - cdr(cons(car,/t|r|l/),/t|r|l/)
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
