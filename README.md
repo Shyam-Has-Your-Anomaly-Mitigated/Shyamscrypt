@@ -515,5 +515,5 @@ you are what you eat; not just karma, dharma,..
 s/timeless child/space (child|girl)/
 nana nana nana nana spaceman; space ship nana nanana  na nana na
 s/nana/nano/
-mkgreat people let others worship their own gods v illuminazi
+mkgreat people let others worship their own gods v illuminazi; is the khan (academy) family the biggest?
 mpemba effect: summer = hot shower for air cooling, winter = cold shower for air warming
