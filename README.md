@@ -203,9 +203,10 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - judges worship the roman pantheon, so it's best to speak their sacred tongues; "si tacuisses, philosophus mansisses", "nemo tenetur prodere seipsum", "accusare nemo se debet nisi coram Deo", "nemo tenetur armare adversarium contra se", "nemo tenetur edere instrumenta contra se", "nemo tenere prodere se ipsum", "nemo tenetur se ipsum accusare",.. #words #words∘wisdom
  - i have the power, of free speech; i can inform inmates, guards, visitors, and escape to inform the world (like climbing the (snakes on a) ladder in black mirror, after skipping stones like a phantom limb experiment) #woke
  - class, welcome to taught law school
-  - the 1ˢᵗ law of the law is; you donut talk about the law
-  - the 2ⁿᵈ law of the law is; you doughnut talk about the law
-  - the 3ʳᵈ law of the law is; it's not over until the fat lady sings
+  - the 1ˢᵗ law ∘ the law is; you donut talk about the law
+  - the 2ⁿᵈ law ∘ the law is; you doughnut talk about the law
+  - the 3ʳᵈ law ∘ the law is; it's not over until the fat lady sings
+  - the 4ᵗʰ law ∘ the law is; if you're guilty, and "you know it",..
  - the end
   - business people are more powerful than governments; dr.whore mktex? dr.whore mkdoor? dr.whore mktmachine? dr.whore mkt? dr.whore mks? dr.whore mk? dr.whore m..m..o!
   - we know where government workers work; we see c sea c̄ our great eye the $5-0, and it's too /easy|cheap (especially tax evasion)?/ to /lure|manipulate|bribe|infiltrate/ them away
