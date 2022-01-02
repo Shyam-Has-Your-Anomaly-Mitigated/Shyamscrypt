@@ -244,8 +244,8 @@ animals are more intelligent than previously thought, and I have theories of how
 I hand delivered a calf, and observed him stand, and walk, in the first hour
 dogs understand human language
 parrots speak human language
-apes use sign language
-we are apes
+apes use human sign language
+we are apes, who can only speak human (sign) language
 planet of the apes is real
 t pose is the gesture for "get hugged"
 
