@@ -526,4 +526,5 @@ robo animals lost in space
 arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/, translations,..
 voynich(e)' cabinet of curiosities
 egypt sands rosetta stones
-we have gold v this is where gold is (/(ripe)? for the taking/) v..
+we have gold v this is where gold is (/(ripe)? for the taking/) v.. (c̄ gold; śiva, mohinī, gopeshwar, brahmā(?),..)
+vālmīki = thief = kṛṣṇa
