@@ -523,6 +523,6 @@ cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
 
 (starlinked satellitic) orbital /(ring|computational belt)|(halo|shield)/ (both) of analogously flippable mirrors around the posi(tion of sūrya; what is a ttime ion? temporal ion, temporal entanglement,..); lightspeed communication will take yonks though, but at least we know what to look for, besides starlinked satellite arrays
 robo animals lost in space
-arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/,..
+arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/, translations,..
 voynich(e)' cabinet of curiosities
 egypt sands rosetta stones
