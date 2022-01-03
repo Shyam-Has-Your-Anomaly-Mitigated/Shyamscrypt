@@ -521,4 +521,4 @@ mpemba effect: summer = hot shower for air cooling, winter = cold shower for air
 blue is the warmest colour of the tardis; vertical smooch e smooch
 cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
 
-(starlinked satellitic) orbital /ring|halo/ (both) of flippable mirrors around the posi(tion of sūrya; what is a ttime ion? temporal ion, temporal entanglement,..); lightspeed communication will take yonks though, but at least we know what to look for, besides starlinked satellite arrays
+(starlinked satellitic) orbital /ring|halo|shield/ (both) of flippable mirrors around the posi(tion of sūrya; what is a ttime ion? temporal ion, temporal entanglement,..); lightspeed communication will take yonks though, but at least we know what to look for, besides starlinked satellite arrays
