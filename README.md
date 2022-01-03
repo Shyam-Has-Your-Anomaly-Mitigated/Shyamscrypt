@@ -531,7 +531,7 @@ vālmīki = thief = kṛṣṇa; a body of gold per day
 cornucopia
  light bulb socket
  sensors; including geiger counter,.. (what is a light bulb; definition)
- remove light bulb, and trick the sensors; observer paradox (double slit experiment)
+ remove light bulb, and trick the sensors; observer paradox (double slit experiment c̄ human eyeballs)
  bouncing on the inner boundary of the goldilocks zone
  inversion
 i can fly; plane v jumping v falling v wingsuit v parachute v..
