@@ -520,3 +520,5 @@ mkgreat people let others worship their own gods v illuminazi; is the khan (acad
 mpemba effect: summer = hot shower for air cooling, winter = cold shower for air warming
 blue is the warmest colour of the tardis; vertical smooch e smooch
 cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
+
+orbital /ring|halo/ of flippable mirrors around the posi(tion of sūrya); lightspeed communication will take yonks though, but at least we know what to look for, besides satellite arrays
