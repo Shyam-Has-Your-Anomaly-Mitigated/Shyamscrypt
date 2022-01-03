@@ -527,4 +527,4 @@ arecibo message doesn't account for alternative interpretations; horizontal, rhs
 voynich(e)' cabinet of curiosities
 egypt sands rosetta stones
 we have gold v this is where gold is (/(ripe)? for the taking/) v.. (c̄ gold; śiva, mohinī, gopeshwar, brahmā(?),..)
-vālmīki = thief = kṛṣṇa
+vālmīki = thief = kṛṣṇa; a body of gold per day
