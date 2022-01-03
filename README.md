@@ -539,4 +539,4 @@ those who can fly, can fly like (be careful what you wish for; /blessing|curse/)
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
 pzombies
 
-mutually assure destruction; hatter
+mutually assuræ destruction; hatter
