@@ -533,3 +533,4 @@ cornucopia
  sensors; including geiger counter,.. (what is a light bulb; definition)
  remove light bulb, and trick the sensors; observer paradox (double slit experiment)
  bouncing on the inner boundary of the goldilocks zone
+ inversion
