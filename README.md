@@ -536,3 +536,4 @@ cornucopia
  inversion
 i can fly; plane v jumping v falling v wingsuit v parachute v..
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly
+i am a shapeshifter; aging, amputation, gmo,..
