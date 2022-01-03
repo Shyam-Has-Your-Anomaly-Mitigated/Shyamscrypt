@@ -519,3 +519,4 @@ s/nana/nano/
 mkgreat people let others worship their own gods v illuminazi; is the khan (academy) family the biggest?
 mpemba effect: summer = hot shower for air cooling, winter = cold shower for air warming
 blue is the warmest colour of the tardis; vertical smooch e smooch
+cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
