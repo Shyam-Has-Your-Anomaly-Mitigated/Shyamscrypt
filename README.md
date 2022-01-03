@@ -530,7 +530,7 @@ we have gold v this is where gold is (/(ripe)? for the taking/) v.. (c̄ gold; �
 vālmīki = thief = kṛṣṇa; a body of gold per day
 cornucopia
  light bulb socket
- sensors; including geiger counter,.. (what is a light bulb; definition)
+ sensors; including geiger counter, x-radiatiön,.. (what is a light bulb; definition)
  remove light bulb, and trick the sensors; observer paradox (double slit experiment c̄ human eyeballs)
  bouncing on the inner boundary of the goldilocks zone
  inversion
