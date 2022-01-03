@@ -534,3 +534,5 @@ cornucopia
  remove light bulb, and trick the sensors; observer paradox (double slit experiment)
  bouncing on the inner boundary of the goldilocks zone
  inversion
+i can fly; plane v jumping v falling v wingsuit v parachute v..
+those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly
