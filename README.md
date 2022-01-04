@@ -526,7 +526,7 @@ cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
 robo animals lost in space
 arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/, translations,..
 voynich(e)' cabinet of curiosities
-egypt sands rosetta stones
+egypt sands rosetta stones #superdupervision
 we have gold v this is where gold is (/(ripe)? for the taking/) v.. (c̄ midas; śiva, mohinī, gopeshwar, brahmā(?),..)
 vālmīki = thief = kṛṣṇa; a body of gold per day
 cornucopia
