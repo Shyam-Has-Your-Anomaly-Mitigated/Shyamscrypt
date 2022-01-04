@@ -541,3 +541,4 @@ i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
 pzombies
 
 mutually assuræ destruction; hatter
+sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolution
