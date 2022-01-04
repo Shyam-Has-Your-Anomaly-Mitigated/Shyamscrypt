@@ -535,7 +535,7 @@ cornucopia
  remove light bulb, and trick the sensors; observer paradox (double slit experiment c̄ human eyeballs)
  bouncing on the inner boundary of the goldilocks zone
  inversion
-i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines
+i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
 pzombies
