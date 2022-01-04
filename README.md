@@ -542,3 +542,5 @@ pzombies
 
 mutually assuræ destruction; hatter
 sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolution
+s/language/tongue/; don't underestimate the power of a common man ∵ they use the common tongue to mkscience to mkinfrastructure (and still die in the process, and even eitherside) ∴ somebody gonna getta hurt real bad, iff they are cryptic (hodgepodge tongues; father tongue v mother tongue v my tongue v your tongue v..) v common(err?), but mystics know
+chennai = pineapple, right?
