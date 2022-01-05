@@ -545,5 +545,5 @@ sanskrit is the language of the gods (god perspective v human perspective), whil
 s/language/tongue/ c̄ facial expressions, body gestures,.; don't underestimate the power of a common man ∵ they use the common tongue to mkscience to mkinfrastructure (and still die in the process, and even eitherside) ∴ somebody gonna getta hurt real bad, iff they are cryptic (hodgepodge tongues; father tongue v mother tongue v my tongue v your tongue v..) v common(err?), but mystics (mahā-position; there are no hard, and fast, rules, but there are personalities) know #interpretiverr
 chennai = pineapple, right? bubbleheaded boobytrap = succubus, right? #evaluatesting
 some claim sfx from emotional outbursts towards rice, some claim health benefits from smelling flatulence, some (me, myself, and i) claim loss of ident from transplanting belly brains (and /nervous|tree/ rings, bloody transfusions,..), some (/mma?i/) claim health benefits for pets.. from floral aromatherapy (tree magic; hospitals, schools, prisons,..), some claim s/(empathicity|browsing house episodes; echovirus 11, mimicry, mirror syndrome, synchronisation,..) (thoughty3%)/signed feedback looping (mma?i)/ from gut' moody microbiota #effervescence
-apparently you were all born female #pussy
+apparently you were all born female #pussies
 a matter of import
