@@ -546,5 +546,5 @@ s/language/tongue/ c̄ facial expressions, body gestures,.; don't underestimate 
 chennai = pineapple, right? bubbleheaded boobytrap = succubus, right? #evaluatesting
 some claim sfx from emotional outbursts towards rice, some claim health benefits from smelling flatulence, some (me, myself, and i) claim loss of ident from transplanting belly brains (and /nervous|tree/ rings, bloody transfusions,..), some (/mma?i/) claim health benefits for pets.. from floral aromatherapy (tree magic; hospitals, schools, prisons,..), some claim s/(empathicity|browsing house episodes; echovirus 11, mimicry, mirror syndrome, synchronisation, copycat symptomania,..) (thoughty3%)/signed feedback looping (mma?i)/ from gut' moody microbiota #effervescence
 so apparently you were all born female #pussies
-intelligently designed biocomputing biobots v pussibilities #freewilly
+intelligently designed biocomputing biobots v mahā-positionally assumed pussibilities #freewilly
 a matter of import
