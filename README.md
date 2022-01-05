@@ -524,7 +524,7 @@ cheeky la moose(attaché); s/un petit peu/o?oh pity poo/ #french_palindrome
 
 (starlinked satellitic) orbital /(ring|computational belt)|(halo|shield)/ (both) of analogously flippable mirrors around the posi(tion of sūrya; what is a ttime ion? temporal ion, temporal entanglement,..); lightspeed communication will take yonks though, but at least we know what to look for, besides starlinked satellite arrays
 robo animals lost in space
-arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/, translations,..
+arecibo message doesn't account for alternative interpretations; horizontal, rhs v lhs, boustrophedon, /(in|out)ward/ spirals, mirror, turn, flip, math (hindu numbers), topology, geometry, slides, rotations, analog, digital, /higher|lower/ dimensional, audio, electrotelepathy, /eom|(som|bom)/, transformations (https://youtu.be/gOLO6F7twS0; i'm browsing for pasta, screws,..),..
 voynich(e)' cabinet of curiosities
 egypt sands rosetta stones #superdupervision
 we have gold v this is where gold is (/(ripe)? for the taking/) v.. (c̄ midas; śiva, mohinī, gopeshwar, brahmā(?),..)
@@ -544,3 +544,5 @@ mutually assuræ destruction; hatter
 sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolutionāryān
 s/language/tongue/ c̄ facial expressions, body gestures,.; don't underestimate the power of a common man ∵ they use the common tongue to mkscience to mkinfrastructure (and still die in the process, and even eitherside) ∴ somebody gonna getta hurt real bad, iff they are cryptic (hodgepodge tongues; father tongue v mother tongue v my tongue v your tongue v..) v common(err?), but mystics (mahā-position; there are no hard, and fast, rules, but there are personalities) know #interpretiverr
 chennai = pineapple, right? bubbleheaded boobytrap = succubus, right? #evaluatesting
+some claim sfx from emotional outbursts towards rice, some claim health benefits from smelling flatulence, some (me, myself, and i) claim loss of ident from transplanting belly brains (and /nervous|tree/ rings, bloody transfusions,..), some (/mma?i/) claim health benefits for pets.. from floral aromatherapy, some claim s/(empathicity|browsing house episodes; echovirus 11, mimicry, mirror syndrome, synchronisation,..) (thoughty3%)/signed feedback looping (mma?i)/ from gut' moody microbiota #effervescence
+a matter of import
