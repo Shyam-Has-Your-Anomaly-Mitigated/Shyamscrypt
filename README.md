@@ -538,7 +538,7 @@ cornucopia
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
-pzombies
+pzombies; we all look the same on the inside, including genetically, and even c̄ other species, but what colourace is your /shadow|ashesin/? shadow 'verse of dark(matter,energy,..)ness, and 'holes (bees are half black, and asian; old mcshrek had a b, for bee, c̄ a "you need us" here, and a "you need us" there, "like a ding dong", "needs a belle" 🌹)
 
 mutually assuræ destruction; hatter
 sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolutionāryān
