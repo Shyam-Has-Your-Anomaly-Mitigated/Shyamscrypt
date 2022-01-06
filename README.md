@@ -149,6 +149,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies;
     [ ] can you implement those libraries, or are you incompetent? real hackers hack the longcut for roi; like learning touch typing, and body building that muscle memory #titw
     [ ] @expertsexchange, experts /rtfm|bottoms up (by)? design|(ww)?tdd/; how do i /write|flip/ a bit? study floss alternatives, open hardware, and byte-wise mathematics! how do i mkaudio? study floss alternatives, physics of soundwaves, open hardware, floss drivers,.! how do i mklanguage? study floss alternatives, open hardware, floss virtual machines, floss os, terminal emulators, ipc, filesystem formats, networking protocols,.! how do i mkos? study floss alternatives, graphically designed illusions (like a cyberspationauts' /magical portal|sufficiently advanced wormhole/ cyberspatiotransceiver that mysteriously (doesn't) dials up their bandwidth),.! how do i mkgame? rtfb! #enblaxenment
+    [ ] how do i find the binary file, and change the colour of the text to make my program work? #syntaxhighlighting
    [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
    [ ] all distros; (i'll add the rest of all of this later, but anyone should have /(an)? ideas?/ for this rememberallline)
 [ ] dialects:
@@ -163,7 +164,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - \e for ansii escape characters turns out to be a bug in haskell they couldn't fix; so they went beyond full perl, and s/obvious bug/feature/ (as opposed to perls' s/by product of a feature/not a bug/ ∵ perl is a shortcut (∘shortcuts(∘..)) ∴ perls' nickname is leslie meyers, so resistance is futile, and leslie meyers's more trouble than the voynich manuscript) #so_much_for_parser_combinators__dcg_ftw #alex_mason(?)_∘_canfp_said_he_knows_a_hacker_who_has_an_epic_list_of_haskell_ui/ux_err_fawlty_ivory_tower
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
-  - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl js@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/
+  - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl js@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/ buzzwords@homoiconicity∈{hex,lisp,prolog;trimūrti,śyāmascript,śyāmascrypt}
   - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores|ryan gosling/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
