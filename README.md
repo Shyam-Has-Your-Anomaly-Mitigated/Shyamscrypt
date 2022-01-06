@@ -146,7 +146,9 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    [ ] use ph_ for p,hole = /pee ?hole/
    [ ] use l_ for lazy list
   [ ] use /recursion|append/ for prototyping, use accumulators for optimisation(s)
-  [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies
+  [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies;
+    [ ] can you implement those libraries, or are you incompetent? real hackers hack the longcut for roi; like learning touch typing, and body building that muscle memory #titw
+    [ ] @expertsexchange, experts /rtfm|bottoms up (by)? design|(ww)?tdd/; how do i /write|flip/ a bit? study floss alternatives, open hardware, and byte-wise mathematics! how do i mkaudio? study floss alternatives, physics of soundwaves, open hardware, floss drivers,.! how do i mklanguage? study floss alternatives, open hardware, floss virtual machines, floss os, terminal emulators, ipc, filesystem formats, networking protocols,.! how do i mkos? study floss alternatives, graphically designed illusions (like a cyberspationauts' /magical portal|sufficiently advanced wormhole/ cyberspatiotransceiver that mysteriously (doesn't) dials up their bandwidth),.! how do i mkgame? rtfb! #enblaxenment
    [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
    [ ] all distros; (i'll add the rest of all of this later, but anyone should have /(an)? ideas?/ for this rememberallline)
 [ ] dialects:
