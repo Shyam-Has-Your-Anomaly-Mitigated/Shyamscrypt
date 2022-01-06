@@ -58,6 +58,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - cdr(cons(car,/z|t|r|l|s/),/z|t|r|l|s/); eoc
  - bakoom = err
  - papers_please = bureaucratic_warning
+ - checkpoint ≤ hotpatching
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
@@ -69,7 +70,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] mot = taste-based mnemonics (sweet=diabetes,salty=dehydration,sour=lemonparty,bitter=melonrapty,/hot|chilli/=carcinogenicide,/bland|umami/,thermal,.; rice-cooker-boiled all-vegan-milks $10-ethical-milk canned-tomato-die vegan-cheese yeast-extract{vegan-labelled-vegemite,/yeast-seasoning|yeast-flakes/,yeast-infectious-bread,..} slam-dunked-vegan-wholemeal-bread probably-not-vegan-labelled hydrolysed-vegetable-protein soy-sauce miso .; (iff magic-potion false-fallacy) (iff riced-desktop (or umami-vegan-basmati savoury-vegan-basmati pastry-vegan-basmati)) (iff meta (or canned-corn-kernels canned-magic-beans seeds nuts peanut-butter vegan-butter vegan-mayo vegan-margarine bananas grapes dates staples paperclips ..)))
  [ ] shakespearean' skellingtons in the closet vibes v biblical apple (business shortcuts v edible branches from the tree of knowledge)
  [x] planet of /the|a/ massive(s) prime-mate-ive(s) butt /cheeks?y/ hairy prime-apes jumping on the bed going bananas after prime-(m)ate:b'nana v the mahārājas' new clothes (wax on, wax off)
-  [x] to lie, or not to lie; that is the firefly poethinker, butt iprefer ergo bed (of nails) from post hoc ergo propter hoc
+  [x] to lie, or not to lie; that is the firefly poethinker, butt iprefer ergo bed (of nails) from post hoc ergo propter hoc (mind field s003e007)
  [x] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
   [x] sūrya noun uprise → prólógos verb downword → sūrya noun upset
  [ ] percussive {line,knot-theoretic topological circle,triangle}
@@ -148,7 +149,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] use /recursion|append/ for prototyping, use accumulators for optimisation(s)
   [ ] independence /avoids|prevents|reduces/ (meta)circular dependencies;
     [ ] can you implement those libraries, or are you incompetent? real hackers hack the longcut for roi; like learning touch typing, and body building that muscle memory #titw
-    [ ] @expertsexchange, experts /rtfm|bottoms up (by)? design|(ww)?tdd/; how do i /write|flip/ a bit? study floss alternatives, open hardware, and byte-wise mathematics! how do i mkaudio? study floss alternatives, physics of soundwaves, open hardware, floss drivers,.! how do i mklanguage? study floss alternatives, open hardware, floss virtual machines, floss os, terminal emulators, ipc, filesystem formats, networking protocols,.! how do i mkos? study floss alternatives, graphically designed illusions (like a cyberspationauts' /magical portal|sufficiently advanced wormhole/ cyberspatiotransceiver that mysteriously (doesn't) dials up their bandwidth),.! how do i mkgame? rtfb! #enblaxenment
+    [ ] @expertsexchange, experts /rtfm|bottoms up (by)? design|(ww)?tdd/; how do i /write|flip/ a bit? study floss alternatives, open hardware, and (10 bits ∈ {00,01,10,11}; it's more respectfully appropriate to use the base you're in, so as to avoid miscommunicative confusion) byte-wise mathematics! how do i mkaudio? study floss alternatives, physics of soundwaves, open hardware, floss drivers,.! how do i mklanguage? study floss alternatives, open hardware, floss virtual machines, floss os, terminal emulators, ipc, filesystem formats, networking protocols,.! how do i mkos? study floss alternatives, graphically designed illusions (like a cyberspationauts' /magical portal|sufficiently advanced wormhole/ cyberspatiotransceiver that mysteriously (doesn't) dials up their bandwidth),.! how do i mkgame? rtfb! #enblaxenment
     [ ] how do i find the binary file, and change the colour of the text to make my program work? #syntaxhighlighting
    [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
    [ ] all distros; (i'll add the rest of all of this later, but anyone should have /(an)? ideas?/ for this rememberallline)
@@ -159,12 +160,12 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [ ] mercury(/roman|(trojan horse|laṅkān hanumān)/).
  [ ] (cycl); aindilis(?) ∘ ##prolog gave a course on this, or opencyc(l), but i missed it
  [ ] haskell propagators v http://minikanren.org/#Haskell
-  - miranda dialect by senior devs (on their way out; lazily evaluated) who didn't want to downskill to the more technologically superior lisp that predates n008
+  - miranda dialect by senior devs ($ellouts on their way out; lazily evaluated) who didn't want to downskill to the more technologically superior lisp that predates n008
   - prime 12020 never happend (lazy evaluation is to blame); s/curry/haskell/ proves committee languages compromise (a will only let b have b movie quality features if a gets a feature)
   - \e for ansii escape characters turns out to be a bug in haskell they couldn't fix; so they went beyond full perl, and s/obvious bug/feature/ (as opposed to perls' s/by product of a feature/not a bug/ ∵ perl is a shortcut (∘shortcuts(∘..)) ∴ perls' nickname is leslie meyers, so resistance is futile, and leslie meyers's more trouble than the voynich manuscript) #so_much_for_parser_combinators__dcg_ftw #alex_mason(?)_∘_canfp_said_he_knows_a_hacker_who_has_an_epic_list_of_haskell_ui/ux_err_fawlty_ivory_tower
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
-  - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl js@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/ buzzwords@homoiconicity∈{hex,lisp,prolog;trimūrti,śyāmascript,śyāmascrypt}
+  - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl s/lispscript/js/@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/ buzzwords@homoiconicity∈{hex,lisp,prolog;trimūrti,śyāmascript,śyāmascrypt}
   - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores|ryan gosling/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
@@ -545,7 +546,7 @@ pzombies; we all look the same on the inside, including genetically, and even c�
 
 mutually assuræ destruction; hatter
 sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolutionāryān
-s/language/tongue/ c̄ facial expressions, body gestures,.; don't underestimate the power of a common man ∵ they use the common tongue to mkscience to mkinfrastructure (and still die in the process, and even eitherside) ∴ somebody gonna getta hurt real bad, iff they are cryptic (hodgepodge tongues; father tongue v mother tongue v my tongue v your tongue v..) v common(err?), but mystics (mahā-position; there are no hard, and fast, rules, but there are personalities) know #interpretiverr
+s/language/tongue/ c̄ facial expressions, body gestures,.; don't underestimate the power of a common man ∵ they use the common tongue to mkscience to mkinfrastructure (and still die in the process, and even eitherside) ∴ somebody gonna getta hurt real bad, iff they are dynamic (smalltalk for relevancy) cryptic (hodgepodge tongues; father tongue v mother tongue v my tongue v your tongue v.; postintro = smalltalk a language to a' friend to intro a' friend to "my" language, where "my" is whoevers' language i am using now, but i can use multiple concurrently in my mind) v pseudostatic common(err?), but mystics (mahā-position; there are no hard, and fast, rules, but there are personalities) know #interpretiverr
 chennai = pineapple, right? bubbleheaded boobytrap = succubus, right? #evaluatesting
 some claim sfx from emotional outbursts towards rice, some claim health benefits from smelling flatulence, some (me, myself, and i) claim loss of ident from transplanting belly brains (and /nervous|tree/ rings, bloody transfusions,..), some (/mma?i/) claim health benefits for pets.. from floral aromatherapy (tree magic; hospitals, schools, prisons,..), some claim s/(empathicity|browsing house episodes; echovirus 11, mimicry, mirror syndrome, synchronisation, copycat symptomania,..) (thoughty3%)/signed feedback looping (mma?i)/ from gut' moody microbiota #effervescence
 so apparently you were all born female #pussies
@@ -556,7 +557,7 @@ speed learning, augmented learning, intelligence amplification
 look-a-heads? developmental neuroplasticity
  (pot) holes, (trip) wires, feet, legs, people, cons, cars,.. (captain hindsight said could've looked-a-head)
  weather astrologers, lotteries, oracles, seers, soothsayers, psychics, fortuned tellers, diviners,..
- financial budgeting, investing,..
+ financial budgeting, investing,.. #(p?)?latin(um)?
  reading verbally; when i reboot clocksin∘mellish, i'll try to read a word a head of the word i smalltalk, and do not look back (or reread two words initially; probably); 1 word a head, 2 words a head, 3 words a head,..
  touch typing; 1 word a head, 2 words a head, 3 words a head,..
  meta hacking; /mathematical|computational/ linguistics v linguistic /computations|mathematics/, mahāmantra() can formally verify meta hacks
@@ -569,4 +570,4 @@ one-looks? mahāyogi of memorisation c̄ vedic memory `man dir`, mahāgurukula�
  speed typing
  speed reading
  speed wrapping; speed poetries, quines ((p∘o v src) = (`cat|cp` v meta injection attack)),..
- speed hacking
+ speed hacking; repurposement
