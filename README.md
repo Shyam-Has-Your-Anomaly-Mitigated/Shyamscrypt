@@ -550,3 +550,21 @@ some claim sfx from emotional outbursts towards rice, some claim health benefits
 so apparently you were all born female #pussies
 intelligently designed biocomputing biobots v mahā-positionally assumed pussibilities #freewilly
 a matter of import
+
+speed learning, augmented learning, intelligence amplification
+look-a-heads? developmental neuroplasticity
+ (pot) holes, (trip) wires, feet, legs, people, cons, cars,.. (captain hindsight said could've looked-a-head)
+ weather astrologers, lotteries, oracles, seers, soothsayers, psychics, fortuned tellers, diviners,..
+ financial budgeting, investing,..
+ reading verbally; when i reboot clocksin∘mellish, i'll try to read a word a head of the word i smalltalk, and do not look back (or reread two words initially; probably); 1 word a head, 2 words a head, 3 words a head,..
+ touch typing
+ meta hacking; /mathematical|computational/ linguistics v linguistic /computations|mathematics/, mahāmantra() can formally verify meta hacks
+one-looks? mahāyogi of memorisation c̄ vedic memory `man dir`, mahāgurukula∘thought #egregiac̄lord
+ speed ttt; blindfoled 9
+ speed cubing; blindfolded 54
+ speed chess; blindfolded 64
+ speed sudoku; blindfolded 81
+ speed typing
+ speed reading
+ speed wrapping; speed poetries, quines ((p∘o v src) = (`cat|cp` v meta injection attack)),..
+ speed hacking
