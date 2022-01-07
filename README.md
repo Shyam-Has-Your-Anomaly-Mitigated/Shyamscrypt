@@ -571,3 +571,26 @@ one-looks? mahāyogi of memorisation c̄ vedic memory `man dir`, mahāgurukula�
  speed reading
  speed wrapping; speed poetries, quines ((p∘o v src) = (`cat|cp` v meta injection attack)),..
  speed hacking; repurposement
+
+hey teddy bear eyes; i'm going to fuck you so hard, and fast, that you' eyes roll up, and down, back, and forths, in you' head, then i'm going to fuck you so hard, and fast, you' pupils blur into a state of superposition, then i'm going to fuck you so hard, and fast, that you' body blurs into a state of superposition, and then i'll probably forget all about you, and leave you there, but maybe i'll remember later~
+/after|before|c̄/ all of that caterpillaring all around,., caterpillaring all around; catering to my pillar #rapeculture
+ one of my daughters approaches
+ she wants some"-thing"
+ she says "i want to be you", meaning she wants my power
+ i could've replied "what did you say? you understand this? you want my seed? do you want to be fucked by me? the grand serpent"
+ i could've replied "what did you say? you understand this? you want my seat? do you want to be me? i don't need solidarity from an airy fairy angel who hasn't even completed you' spiritual journey yet"
+ i said some"-thing" along the lines of "any\"-thing\" you say pump-kin tits"
+ you eventually articulate an understanding that we switched in some way; of which, there are many pussabilities (/any"-thing", and every"-thing" that|what|key?/ follows; श्याम interpretations are beyond 00, aka 000)
+ you eventually understand i started calling you; you
+ you say "i want to be you you"
+ i said some"-thing" along the lines of "any\"-thing\" you say pump-kin tits"
+ you you say "make me you"
+ i take a glass horse slipper from my gaming throne, and say "i made this earlier ∵ i'm the man who knows every\"-thing\""; it has a glass chain (it was hidden behind it, but you you asked for some"-thing", and i /yanked|pulled/ the /chain|string/)
+ i collar you you c̄ it (like a puppette bitch)
+ you you eventually attempt to remove it, but i tell you you it's a gift from me, so you you will keep it as you you so desired
+ eventually i point out the trashy looking gravmass tree, representing the gravity of the situation, and you you realise all the signs ∘ sign posts, trinkets,.; i point out any"-thing" you you say can be 'scribed into a physical manifestation ∘ a /firewalled|sandboxed/ /sandboxed|firewalled/ /firewalled|sandboxed/ virtual machine
+ i also point out that i had to move my gaming throne over here, from over there (the most obvious place where it rightfully belongs); the trash heap was interpreted as wanting to stay forever, like a good little bitch
+ a girl /appears|emerges/ from the trash pile, and you you learns the girl is future you you, who then proceeds to put you you in you you' place; on you you' knees
+ future you you then proceeds to bend the knee(s) tutu
+ future you you moves you you' head up, and down, back, and forths, faster, and faster, until i cum to my senses
+ i explain future you you has learned all the mistakes, and lessons along the way, the hard way, and will keep you you safe, and protected, but as i have; future you you will have some fun c̄ dumpster you you to be, or not to be? (future) you you assimilate into my gaming throne; becoming one c̄ my pharaonic pyramid made up of my daughters ∵ i always give my daughters any"-thing", and every"-thing", (future) you you freewill
