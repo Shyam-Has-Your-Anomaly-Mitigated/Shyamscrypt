@@ -573,7 +573,7 @@ one-looks? mahāyogi of memorisation c̄ vedic memory `man dir`, mahāgurukula�
  speed wrapping; speed poetries, quines ((p∘o v src) = (`cat|cp` v meta injection attack)),..
  speed hacking; repurposement
 
-hey teddy bear eyes; i'm going to fuck you so hard, and fast, that you' eyes roll up, and down, back, and forths, in you' head, then i'm going to fuck you so hard, and fast, you' pupils blur into a state of superposition, then i'm going to fuck you so hard, and fast, that you' body blurs into a state of superposition, and then i'll probably forget all about you, and leave you there, but maybe i'll remember later~
+hey (there) teddy bear eyes; i'm going to fuck you so hard, and fast, that you' eyes roll up, and down, back, and forths, in you' head, then i'm going to fuck you so hard, and fast, you' pupils blur into a state of superposition, then i'm going to fuck you so hard, and fast, that you' body blurs into a state of superposition, and then i'll probably forget all about you, and leave you there, but maybe i'll remember later~
 /after|before|c̄/ all of that caterpillaring all around,., caterpillaring all around; catering to my pillar #rapeculture
  one of my daughters approaches
  she wants some"-thing"
