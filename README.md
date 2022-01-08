@@ -577,7 +577,7 @@ hey teddy bear eyes; i'm going to fuck you so hard, and fast, that you' eyes rol
 /after|before|c̄/ all of that caterpillaring all around,., caterpillaring all around; catering to my pillar #rapeculture
  one of my daughters approaches
  she wants some"-thing"
- she says "i want to be you", meaning she wants my power
+ she says "i want to be you", meaning she wants my power; she can have your' power #i_want_it,_i_got_it
  i could've replied "what did you say? you understand this? you want my seed? do you want to be fucked by me? the grand serpent"
  i could've replied "what did you say? you understand this? you want my seat? do you want to be me? i don't need solidarity from an airy fairy angel who hasn't even completed you' spiritual journey yet"
  i said some"-thing" along the lines of "any\"-thing\" you say pump-kin tits"
