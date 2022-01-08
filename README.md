@@ -58,7 +58,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - cdr(cons(car,/z|t|r|l|s/),/z|t|r|l|s/); eoc
  - bakoom = err
  - papers_please = bureaucratic_warning
- - checkpoint ≤ hotpatching
+ - checkpoint ≤ hotpatching; cracking(crypto,cyber,space,time..),..
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
@@ -166,6 +166,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - haskell isn't even dependently typed, but typical inhabitancy is more important; otherwise go (beyond) full meta
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl s/lispscript/js/@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/ buzzwords@homoiconicity∈{hex,lisp,prolog;trimūrti,śyāmascript,śyāmascrypt}
+   - CONSTANT LISP (LANGUAGE) v variable lisp (dialect)
   - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores|ryan gosling/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
@@ -542,7 +543,7 @@ cornucopia
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
-pzombies; we all look the same on the inside, including genetically, and even c̄ other species, but what colourace is your /shadow|ashesin/? shadow 'verse of dark(matter,energy,..)ness, and 'holes (bees are half black, and asian; old mcshrek had a b, for bee, c̄ a "you need us" here, and a "you need us" there, "like a ding dong", "needs a belle" 🌹)
+pzombies; we all look the same on the inside, including genetically, and even c̄ other species, but what colourace is your /shadow|ashesin/? shadow 'verse of dark(matter,energy,..)ness, and 'holes (kamikaze bees are half black, and asian; old mcshrek had a b, for bee, c̄ a "you need us" here, and a "you need us" there, "like a ding dong", "needs a belle" 🌹)
 
 mutually assuræ destruction; hatter
 sanskrit is the language of the gods (god perspective v human perspective), while /animal|alien/ languages are the languages of the /animals|aliens/ (/animal|alien/ perspective v human perspective), while human languages are the languages of the humans (human perspective v animal perspective); कलियुग ends as humanity learns sanskrit, and thinks.. in the language of the gods, so they can be offended.. #evolutionāryān
@@ -594,3 +595,4 @@ hey teddy bear eyes; i'm going to fuck you so hard, and fast, that you' eyes rol
  future you you then proceeds to bend the knee(s) tutu
  future you you moves you you' head up, and down, back, and forths, faster, and faster, until i cum to my senses
  i explain future you you has learned all the mistakes, and lessons along the way, the hard way, and will keep you you safe, and protected, but as i have; future you you will have some fun c̄ dumpster you you to be, or not to be? (future) you you assimilate into my gaming throne; becoming one c̄ my pharaonic pyramid made up of my daughters ∵ i always give my daughters any"-thing", and every"-thing", (future) you you freewill
+ (future) you you are 16; going on 17
