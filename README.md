@@ -516,7 +516,7 @@ walking on bhūmi v skateboarding on air v walking on water v walking on fire; s
 ancient holy(datamining) light speed computer: bamboo(divide(boomerang tech) → subtract(sticks, and stones, may break these /bones|memory rings/) → multiply(gañjā rope)) + candles + data∈{clay,mud,..}(postsubtraction)
 ancient libraries of data, printing press, there's already two copies (autobackup),..
 pain transmits debug signals to brain v (and r r)
-it takes about a decade to replace every cell in the human body; this is only really important if you eat animals
+it takes about a decade to replace every cell in the human body; this is only really important if you eat animals #purification #35000000
 do you eat animals? some people say no, when they really mean yes
 you are what you eat; not just karma, dharma,..
 s/timeless child/space (child|girl)/
