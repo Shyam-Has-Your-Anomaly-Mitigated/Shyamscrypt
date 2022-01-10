@@ -600,3 +600,4 @@ hey (there) teddy bear eyes; i'm going to fuck you so hard, and fast, that you' 
 
 this repo is 100% https://en.wikipedia.org/wiki/GAP_(computer_algebra_system)
 i never even he(a)rd about this before in my life; this whole time even
+block transfer computation; group transmission calculation?
