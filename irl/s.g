@@ -20,3 +20,15 @@ i suspect the ph(b) buisness pays them; 99% of research is probably (ph)biased, 
 star treks' shari lewis says you can do it; her magic show was whorfian, and besides her challenge against dynamo as the parousia; flip probably got /confused|mistranslated/ about signing music rights (i can imagine he was just being polite; when did he sign? before, during, or after? the plane), and that explains his recent gig that looks like he hasn't done it in yonks @ https://youtu.be/_IxdIFjnVa4 (it's no"-thing" c̄out the original music; he probably just bought the cheapest "original" music); i didn't know mr bean was a magician; token (bucket heads come from tplac; i'm a towel(ie) head)
 some mothers do 'ave 'em
 can red cabbage measure the blue nile?
+
+https://youtu.be/tVcEEw6qbBQ
+so
+ 1m = 100cm = 1,000mm = 1,000,000μm
+ 1cm = 10mm = 10,000μm
+ 04x×10x=040x
+ 10x×10x=100x; (1,000μm = 1mm) = (100,000μm = 100mm = 10cm), 100μm = (10,000μm = 10mm), 10μm = (1,000μm = 1mm), 1μm = 100μm
+ 40x×10x=400x; (1,000μm = 1mm) = (400,000μm = 400mm = 40cm), 100μm = (40,000μm = 40mm), 10μm = (4,000μm = 4mm), 1μm = (400μm = half a mm)
+if i want 1μm = 1cm, well that's just 10kx
+when they claim visible light can only see 1μm; what does that even mean? 'clusivity,..
+(i think) it's possible to see smaller; catch the scatter plot, multiple lenses,.. (light becomes more impactfull; there's plenty of room at the bottom)
+10:00 = 1k
