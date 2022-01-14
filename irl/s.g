@@ -37,3 +37,4 @@ it's possible to see nuclear radiation powered nanobots by s/oil immersion/conta
  come on, i can see you, you can see me, we have each others' authentication,.. v /(okay)+/ fine, lets start five "eyes"
 when prime directive becomes section 31, by virtue of asimov' inaction
 diy lens could probably do it solo
+atomic pixels; gold is made up of rgb,..
