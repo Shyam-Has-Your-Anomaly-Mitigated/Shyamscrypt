@@ -176,6 +176,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    |  ____________
    | [blame bjarne]; c++ started an ice age that cracked asic lisp machines @ https://twobithistory.org/2018/10/14/lisp.html#lisp-comes-back
    |  ||||||||||||
+   - actually; relational means prolog macro expansion into tr(prolog,lisp) into lisp macro expansion
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
  [ ] logtalk
  [ ] oops (purely academic; why industrial = academia? point-haired bosses who try hard to think they're cool, hot, sick,..); state /management|governance/ is like the tor network, a crackers playground (we can see how vulnerable governments are just by looking at their employment adware, binary blobs in floss are crackable backdoors (/foreign|(inter)?national|business|individual/ /(bot|spy)nets/; hardware = shenzhen i/o, software = silicon valley,..), we can read hex c̄(out) /disassemblers|decompilers/, the economy is as artificial as jobs (.., shrink invites friend as first client on first day of job, shrink says so this is it, we just sit, and talk, about 5w you feel bad, and i get paid for it, but now i feel bad for you, so we should talk about it, now i think you should get paid, too, lets go talk to s/my/our/ boss,..),..)
