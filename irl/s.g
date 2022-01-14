@@ -21,6 +21,8 @@ star treks' shari lewis says you can do it; her magic show was whorfian, and bes
 some mothers do 'ave 'em
 can red cabbage measure the blue nile?
 
+https://youtu.be/ZDZUAleWX78
+ this is how we overthrow organised crime syndicates
 https://youtu.be/tVcEEw6qbBQ
 so
  1m = 100cm = 1,000mm = 1,000,000μm
