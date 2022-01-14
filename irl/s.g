@@ -38,4 +38,4 @@ it's possible to see nuclear radiation powered nanobots by s/oil immersion/conta
 when prime directive becomes section 31, by virtue of asimov' inaction
 diy lens could probably do it solo
 atomic pixels; gold is made up of rgb,..
-atomic lensing sfx; self-sustaining holowave /project(ion|er)s/; gold doesn't always look gold, not even c̄ /"full"|broad/spectrum∘photons (iff you look close enough,..) #scalability_paradox
+atomic lensing sfx; self-sustaining holowave /project(ion|er)s/; gold doesn't always look gold, not even c̄ /"full"|broad/spectrum∘photons (iff you look close enough,..) #scalability_paradox #simultaneous_equational_reasoning
