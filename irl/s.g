@@ -69,3 +69,7 @@ i need to think about "-thing"s…
 i thought so much that i tripped into the dreaming ttime
 
 some plants are cryptic, but i bet some are commoners
+
+https://youtu.be/Z5Jv0s5mWLE
+ spore drive = black alert = /(awooga)+/
+ 
