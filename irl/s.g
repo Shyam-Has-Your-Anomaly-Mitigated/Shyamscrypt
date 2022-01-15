@@ -52,3 +52,5 @@ teach new plant (generations) some"-thing" through social experiment
 bee relationships; pin prick mnemonist(s), the pollinator(s),..
 
 ttemporal mechanics; are plants yogis?
+
+https://youtu.be/gwBy_9PKmCg?t=5m#that's_where_i'm_upto
