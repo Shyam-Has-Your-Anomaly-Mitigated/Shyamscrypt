@@ -44,3 +44,7 @@ atomic lensing sfx; self-sustaining holowave /project(ion|er)s/; gold doesn't al
 
 /camera|vr|ar/ = the optimal (laser) eye protection; a step closer into the matrix
 /microphones|headsets/ = the optimal ear protection; a step closer into the matrix
+
+plant intelligence-communication experiment
+teach plant (generations) some"-thing" in isolation
+teach new plant (generations) some"-thing" through social experiment
