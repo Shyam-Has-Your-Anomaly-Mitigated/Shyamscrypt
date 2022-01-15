@@ -75,3 +75,6 @@ https://youtu.be/Z5Jv0s5mWLE
 https://youtu.be/Pl-Ojmrs-ic
  other species seem to be exclusively in the flow state ∘ the zone; if only i had no"-thing" better to do
  total immersion = enter the dream state ∘ the dreaming; i remember achieving this s/once/twice/ (both non-lucid, or semi-lucid; like ⅟(microsleep)), and could do it better in my sleep than otherwise c̄out ankhiety
+https://youtu.be/xUN4fwcwrUo
+ https://youtu.be/bHIhgxav9LY
+ super biocomputing
