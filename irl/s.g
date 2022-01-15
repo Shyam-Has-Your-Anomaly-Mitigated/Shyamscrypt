@@ -77,4 +77,4 @@ https://youtu.be/Pl-Ojmrs-ic
  total immersion = enter the dream state ∘ the dreaming; i remember achieving this s/once/twice/ (both non-lucid, or semi-lucid; like ⅟(microsleep)), and could do it better in my sleep than otherwise c̄out ankhiety
 https://youtu.be/xUN4fwcwrUo
  https://youtu.be/bHIhgxav9LY
- super biocomputing
+ super biocomputing mega structure; deep thought…
