@@ -67,3 +67,5 @@ https://youtu.be/fiN6Y7x6FSI
 i need to think about "-thing"s…
 
 i thought so much that i tripped into the dreaming ttime
+
+some plants are cryptic, but i bet some are commoners
