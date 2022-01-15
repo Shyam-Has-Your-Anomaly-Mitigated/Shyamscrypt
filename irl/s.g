@@ -49,7 +49,7 @@ plant intelligence-communication experiment
 teach plant (generations) some"-thing" in isolation
 teach new plant (generations) some"-thing" through social experiment
 
-bee relationships; pin prick mnemonist(s), the pollinator(s),..
+bee(otechnicians) relationships; pin prick mnemonist(s), the pollinator(s),..
 
 ttemporal mechanics; are plants yogis?
 
