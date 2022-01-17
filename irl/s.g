@@ -22,6 +22,7 @@ some mothers do 'ave 'em
 can red cabbage measure the blue nile?
 can red cabbage measure vegan food /colouring|dye/?
 observer paradox; scales (also have an errrange; 200g 0.001g ∓0.005g = 200g 0.01g, so really only good for 0.1g `(not even)`, and then there's the ‘no-fat’ dream,..),..
+chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is litmus paper really colour blind?..
 
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
