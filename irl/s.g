@@ -78,6 +78,7 @@ https://youtu.be/Z5Jv0s5mWLE
 https://youtu.be/Pl-Ojmrs-ic
  other species seem to be exclusively in the flow state ∘ the zone; if only i had no"-thing" better to do
  total immersion = enter the dream state ∘ the dreaming; i remember achieving this s/once/twice/ (both non-lucid, or semi-lucid; like ⅟(microsleep)), and could do it better in my sleep than otherwise c̄out ankhiety
+ s/emacs/keylogger/ + (child) safety computer system to prevent `rm -fr` (`poweroff` to escape from keylogger; or use mouse, and keep hidden in it's holesome home on the moon) + rocking chair + good keyboard (razor arctosa v obvious home row v braille; maybe i should try cherry keys, but they look like only fuckups-who-just-dom't-know-any-better use them)
 https://youtu.be/xUN4fwcwrUo
  https://youtu.be/bHIhgxav9LY
  super biocomputing mega structure; deep thought…
