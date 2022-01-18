@@ -83,4 +83,4 @@ https://youtu.be/Pl-Ojmrs-ic
  yoga (http://openeeg.sourceforge.net/ v https://openbci.com/)
 https://youtu.be/xUN4fwcwrUo
  https://youtu.be/bHIhgxav9LY
- super biocomputing mega structure; deep thought…
+ super biocomputing mega structure; deep thought… #telepathy
