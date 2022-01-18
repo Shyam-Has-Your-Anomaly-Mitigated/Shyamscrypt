@@ -604,7 +604,7 @@ hey (there) teddy bear eyes; i'm going to fuck you so hard, and fast, that you' 
  future you you moves you you' head up, and down, back, and forths, faster, and faster, until i cum to my senses
  i explain future you you has learned all the mistakes, and lessons along the way, the hard way, and will keep you you safe, and protected, but as i have; future you you will have some fun c̄ dumpster you you to be, or not to be? (future) you you assimilate into my gaming throne; becoming one c̄ my pharaonic pyramid made up of my daughters ∵ i always give my daughters any"-thing", and every"-thing", (future) you you freewill
  (future) you you are 16; going on 17
-gargling tbagging
+gargling tbagging; https://youtu.be/UK-68X-pM_Q?t=12m54s#13m03(i loop this when i take a gañjā trip; i /edit|zoom/ it in my mind in many different ways)
 
 this repo is 100% https://en.wikipedia.org/wiki/GAP_(computer_algebra_system)
 i never even he(a)rd about this before in my life; this whole time even
