@@ -119,6 +119,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] https://mitpress.mit.edu/search?keywords=logic+programming
   [ ] https://mitpress.mit.edu/search?keywords=%22logic+programming%22
   [ ] https://mitpress.mit.edu/books/logic-logic-programming
+ [ ] https://mcjones.org/dustydecks/archives/category/prolog/
  [ ] http://www.softwarepreservation.org/projects/prolog
  [ ] https://www.cs.nmsu.edu/ALP/the-association-for-logic-programming/alp-awards/
  [ ] https://sites.google.com/site/prologsite/prolog-problems
