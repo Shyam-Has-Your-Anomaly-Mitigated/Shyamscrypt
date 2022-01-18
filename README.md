@@ -96,7 +96,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
     ~ i have aswell many notes too
  [x] minutes(Y), "This is going to be what I personally recommend" by SHYAM
   ~
- [ ] https://www.ulule.com/documentaire-alain-colmerauer/#about-owner
+ [ ] https://mcjones.org/dustydecks/archives/2021/08/25/1090/
  [ ] I don't think this is good https://learnxinyminutes.com/docs/prolog/
  [ ] this is probably better https://www.youtube.com/watch?v=SykxWpFwMGs
  [ ] she shows "why lp matters" https://www.youtube.com/results?search_query=Aja+Hammerly
