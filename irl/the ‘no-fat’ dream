@@ -8,6 +8,9 @@ product(suitable   , <1%  , rts              , landfill, dead    , ~1y, (clear t
 %product(fresh (organic) fruit∘juggling).
 %product(suitable, 4.6g, 100%, landfill, dead, 30d after open, 1, 230g, coles' chilli crushed). % bought 02/01/2022, emptied half of the jar, opened today, and was smokey inside
 
+% eat, /(o'clock){2,..}|1h between|2'clocks between/, eat; /250g|1c/ rice (2'clocks,1c), max = /(2kg|8c)(÷|%)d/ (⅟100 v %)
+% drink, /o'clock|1'clock between/, drink; /1l|4c/ water, max = /(16l|64c)(÷|%)d/ (⅟100 v %)
+
 % maybe i should jog…
 % jog, long jump jog, jog, high jump jog, jog, sprint,..
 % roshi…
