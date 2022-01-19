@@ -59,6 +59,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - bakoom = err
  - papers_please = bureaucratic_warning
  - checkpoint ≤ hotpatching; cracking(crypto,cyber,space,time..),..
+ - shyamscrypt = ki (crypto keys; magic), shyamscript = mantras (recursive lambdas; a blessing, but a curse if you get stuck, and it doesn't stuck)
+  - maha = every"-thing", mahaki = ki-mantra, mahamantra = mantra-ki; these are how to formally verify meta,..
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
