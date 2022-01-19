@@ -31,7 +31,7 @@ https://youtu.be/CxxGiqaBEPs
 https://youtu.be/QHUrTHYehvI
  i think this is off by one; they should've illustrated the seven counts
 https://youtu.be/Q_X8yKlzbkg
- i prefer relativity; i can use a control, and use proportionate ratios, instead of relying on insufficiently advanced technology (unless the french fudged their numbers for an edge over the competitive race)
+ i prefer relativity; i can use a control, and use proportionate ratio(nal)s, instead of relying on insufficiently advanced technology (unless the french fudged their numbers for an edge over the competitive race)
  i can mark it myself; who needs rulers,..
  i've been thinking about this for a while; equipments, ingredients, recipes,..
  diy rulers,.. #ftw
