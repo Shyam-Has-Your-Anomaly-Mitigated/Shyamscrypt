@@ -30,6 +30,10 @@ https://youtu.be/CxxGiqaBEPs
  ultra pure water, or better, is better than distilled water; reverse osmosis filter, containment (cross) contamination (glass v plastic v metal v..),.. #ph
 https://youtu.be/QHUrTHYehvI
  i think this is off by one; they should've illustrated the seven counts
+https://youtu.be/Q_X8yKlzbkg
+ i prefer relativity; i can use a control, and use proportionate ratios, instead of relying on insufficiently advanced technology (unless the french fudged their numbers for an edge over the competitive race)
+ i can mark it myself; who needs rulers,..
+ i've been thinking about this for a while; equipments, ingredients, recipes,..
 https://youtu.be/iRhGbohdwt4
  measurements must be consistent; /before|mid|after/ marks
 https://youtu.be/tVcEEw6qbBQ
