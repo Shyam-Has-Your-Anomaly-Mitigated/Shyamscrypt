@@ -26,7 +26,12 @@ chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is lit
 
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
+https://youtu.be/CxxGiqaBEPs
+ ultra pure water, or better, is better than distilled water; reverse osmosis filter, containment (cross) contamination (glass v plastic v metal v..),.. #ph
+https://youtu.be/QHUrTHYehvI
+ i think this is off by one; they should've illustrated the seven counts
 https://youtu.be/iRhGbohdwt4
+ measurements must be consistent; /before|mid|after/ marks
 https://youtu.be/tVcEEw6qbBQ
 so
  1m = 100cm = 1,000mm = 1,000,000μm
