@@ -46,7 +46,7 @@ so
  40x×10x=400x; (1,000μm = 1mm) = (400,000μm = 400mm = 40cm), 100μm = (40,000μm = 40mm), 10μm = (4,000μm = 4mm), 1μm = (400μm = half a mm)
 if i want 1μm = 1cm, well that's just 10kx
 when they claim visible light can only see 1μm; what does that even mean? 'clusivity,..
-(i think) it's possible to see smaller; catch the scatter plot, multiple lenses,.. (light becomes more impactfull; there's plenty of room at the bottom)
+(i think) it's possible to see smaller; catch the scatter plot, multiple /lenses|sources/,.. (light becomes more impactfull; there's plenty of room at the bottom)
 10:00 = 1k
 it's possible to see nuclear radiation powered nanobots by s/oil immersion/contact lensing the slides/; fairies (i've already seen atomic bonds c̄ naked eye(s))
  we know all your secrets v well, we might have some secrets you don't know about
