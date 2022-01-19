@@ -26,6 +26,7 @@ chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is lit
 
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
+https://youtu.be/iRhGbohdwt4
 https://youtu.be/tVcEEw6qbBQ
 so
  1m = 100cm = 1,000mm = 1,000,000μm
