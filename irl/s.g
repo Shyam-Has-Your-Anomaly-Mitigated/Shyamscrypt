@@ -27,7 +27,7 @@ chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is lit
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
 https://youtu.be/CxxGiqaBEPs
- ultra pure water, or better, is better than distilled water; reverse osmosis filter, containment (cross) contamination (glass v plastic v metal v..),.. #ph
+ ultra pure water, or better, is better than distilled water; reverse osmosis filter, /containment|equipment(drinking straw pipettes, esd electrolysis,..)/ (cross) contamination (glass v plastic v metal v..),.. #ph
 https://youtu.be/QHUrTHYehvI
  i think this is off by one; they should've illustrated the seven counts
 https://youtu.be/Q_X8yKlzbkg
@@ -55,6 +55,8 @@ when prime directive becomes section 31, by virtue of asimov' inaction
 diy lens could probably do it solo
 atomic pixels; gold is made up of rgb,..
 atomic lensing sfx; self-sustaining holowave /project(ion|er)s/; gold doesn't always look gold, not even c̄ /"full"|broad/spectrum∘photons (iff you look close enough,..) #scalability_paradox #simultaneous_equational_reasoning
+https://youtu.be/HqpzqQJGB4Q
+ who's mike rogers? whose cryptic?
 
 /camera|vr|ar/ = the optimal (laser) eye protection; a step closer into the matrix
 /microphones|headsets/ = the optimal ear protection; a step closer into the matrix
