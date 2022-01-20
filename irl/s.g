@@ -27,7 +27,7 @@ chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is lit
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
 https://youtu.be/BqLH-nTZEOc?t=29s
- the gandalf experiment proves plants, and plant-based foods, are volatile; the hagrid herbs empty bellies, bowels, bladders, (chillies) sinuses, tear ducts, ears, lungs, verbal thoughts, energy, anger management ∘ violent tendencies, sanity check ∘ insanities, ocd,..
+ the gandalf experiment proves plants, and plant-based foods, are volatile (investment roi); the hagrid herbs empty bellies, bowels, bladders, (chillies) sinuses, tear ducts, ears, lungs, verbal thoughts, energy, anger management ∘ violent tendencies, sanity check ∘ insanities, ocd,..
  hello darkness, my old friend (talking c̄ self is healthy to empty it out of your chest); teller, merry & pippin, the wheels on the bus go round & round, irving finkel,..
 https://youtu.be/CxxGiqaBEPs
  ultra pure water, or better, is better than distilled water; reverse osmosis filter, /containment|equipment(drinking straw pipettes, esd electrolysis,..)/ (cross) contamination (glass v plastic v metal v..),.. #ph
