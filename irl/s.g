@@ -26,6 +26,9 @@ chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is lit
 
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
+https://youtu.be/BqLH-nTZEOc?t=29s
+ the gandalf experiment proves plants, and plant-based foods, are volatile; the hagrid herbs empty bellies, bowels, bladders, (chillies) sinuses, tear ducts, ears, lungs, verbal thoughts, energy, anger management ∘ violent tendencies, sanity check ∘ insanities, ocd,..
+ hello darkness, my old friend (talking c̄ self is healthy to empty it out of your chest); teller, merry & pippin, the wheels on the bus go round & round, irving finkel,..
 https://youtu.be/CxxGiqaBEPs
  ultra pure water, or better, is better than distilled water; reverse osmosis filter, /containment|equipment(drinking straw pipettes, esd electrolysis,..)/ (cross) contamination (glass v plastic v metal v..),.. #ph
 https://youtu.be/QHUrTHYehvI
@@ -97,3 +100,7 @@ https://youtu.be/Pl-Ojmrs-ic
 https://youtu.be/xUN4fwcwrUo
  https://youtu.be/bHIhgxav9LY
  super biocomputing mega structure; deep thought… #telepathy #electrotelepathy #etelepathy #digitelepathy #analepathy
+ left its seeds while I was sleeping; mega seeds #s.g #s∘g
+https://youtu.be/BqLH-nTZEOc?t=3m45s
+ hallucinogenics; playing video games (heaven is a place where you tell me all the "-thing"s you want to do; and i (sign)post-it, (permanent)marker-it, (small)talk-it,..)
+ and the vision that was planted in my brain; still remains (observer paradox)
