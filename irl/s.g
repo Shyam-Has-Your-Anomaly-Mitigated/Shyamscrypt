@@ -102,5 +102,5 @@ https://youtu.be/xUN4fwcwrUo
  super biocomputing mega structure; deep thought… #telepathy #electrotelepathy #etelepathy #digitelepathy #analepathy
  left its seeds while I was sleeping; mega seeds #s.g #s∘g
 https://youtu.be/BqLH-nTZEOc?t=3m45s
- hallucinogenics; playing video games (heaven is a place where you tell me all the "-thing"s you want to do; and i (sign)post-it, (permanent)marker-it, (small)talk-it,..)
+ hallucinogenics; playing video games (heaven is a place where you tell me all the "-thing"s you want to do; and i (sign)post-it, (permanent)marker-it, (small)talk-it,.. #the_expert)
  and the vision that was planted in my brain; still remains (observer paradox)
