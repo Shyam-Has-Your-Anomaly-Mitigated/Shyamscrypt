@@ -97,6 +97,8 @@ https://youtu.be/Pl-Ojmrs-ic
  s/emacs/keylogger/ + (child) safety computer system to prevent `rm -fr` (`poweroff` to escape from keylogger; or use mouse, and keep hidden in it's holesome home on the moon) + rocking chair + good keyboard (razor arctosa v obvious home row v braille; maybe i should try cherry keys, but they look like only fuckups-who-just-dom't-know-any-better use them)
  i could probably talk in my sleep; if i really wanted to
  yoga (http://openeeg.sourceforge.net/ v https://openbci.com/)
+  https://youtu.be/GHuxLIpmxYg
+  https://youtu.be/t-_VPRCtiUg
 https://youtu.be/xUN4fwcwrUo
  https://youtu.be/bHIhgxav9LY
  super biocomputing mega structure; deep thought… #telepathy #electrotelepathy #etelepathy #digitelepathy #analepathy
