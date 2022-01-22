@@ -619,3 +619,4 @@ block transfer computation; group transmission calculation?
 tardis' inside isn't moving, while tardis' outside is; https://youtu.be/1TKSfAkWWN0?t=2m04s v https://youtu.be/bHIhgxav9LY
 https://youtu.be/IANBoybVApQ?t=2m#proprietary v https://youtu.be/N7lXymxsdhw?t=1m11s#floss
 https://youtu.be/MFzDaBzBlL0; this is like riding a skateboard c̄ inverted trucks (also facing the same way; i experimented well over a decade ago) #dwyc(n)
+crawl(fullmetaprototyping), walk(formalintelligence), run(worldomination)
