@@ -617,3 +617,4 @@ this repo is 100% https://en.wikipedia.org/wiki/GAP_(computer_algebra_system)
 i never even he(a)rd about this before in my life; this whole time even
 block transfer computation; group transmission calculation?
 tardis' inside isn't moving, while tardis' outside is; https://youtu.be/1TKSfAkWWN0?t=2m04s v https://youtu.be/bHIhgxav9LY
+https://youtu.be/IANBoybVApQ?t=2m#proprietary v https://youtu.be/N7lXymxsdhw?t=1m11s#floss
