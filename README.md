@@ -616,4 +616,4 @@ gargling tbagging; https://youtu.be/UK-68X-pM_Q?t=12m54s#13m03(i loop this when 
 this repo is 100% https://en.wikipedia.org/wiki/GAP_(computer_algebra_system)
 i never even he(a)rd about this before in my life; this whole time even
 block transfer computation; group transmission calculation?
-tardis inside isn't moving, while tardis outside is; https://youtu.be/1TKSfAkWWN0?t=2m04s v https://youtu.be/bHIhgxav9LY
+tardis' inside isn't moving, while tardis' outside is; https://youtu.be/1TKSfAkWWN0?t=2m04s v https://youtu.be/bHIhgxav9LY
