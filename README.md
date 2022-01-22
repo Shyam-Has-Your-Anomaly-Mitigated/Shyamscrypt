@@ -332,7 +332,7 @@ I am safe #4now_until_I_freewill
 decidership, well-informed consent; how will it change me? who I am? formal specification, verification, methods, /(intelligence)?/,..
 
 metahacking
-	ttime /travel|loop/
+ ttime /travel|loop/
 axiom of choice?
 
 the great convergence(s); the great merge(r) #assimilation(postedit)
@@ -480,10 +480,10 @@ optimised (automated) theorem prover(s); dotadiw
 godel ordering; equal?
 ...
 simplification
-	math
-	language
-	prolog
-	shyamscrypt
+ math
+ language
+ prolog
+ shyamscrypt
 logic (gates) languages; loglan, lojban, shyamskrit
 
 vector (); superpositional existence
@@ -629,5 +629,5 @@ https://youtu.be/MFzDaBzBlL0; this is like riding a skateboard c̄ inverted truc
 crawl(fullmetaprototyping), walk(formalintelligence), run(worldomination)
 https://youtu.be/y8mzDvpKzfY; backseat passengers get more nitrox than first class, and it's cheaper too
 https://youtu.be/aoXJfuPaFF8; are these search strats from a genetic algorithm like the 2006 nasa st5 spacecraft antenna? iff rescue = the ultimate answer v eff eff = /err|false|fail/
-https://youtu.be/uFQdcKJUijQ?t=38m; tnt	dynamite from the ac/dc song, was wrong
-https://youtu.be/uFQdcKJUijQ?t=45m15s v	https://youtu.be/INAO97TQl-w
+https://youtu.be/uFQdcKJUijQ?t=38m; tnt dynamite from the ac/dc song, was wrong
+https://youtu.be/uFQdcKJUijQ?t=45m15s v https://youtu.be/INAO97TQl-w
