@@ -63,6 +63,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - maha = every"-thing", mahaki = ki-mantra, mahamantra = mantra-ki; these are how to formally verify meta,..
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
+  [ ] rhs v lhs; yin v yang (i'm half /empty|full/ ∘ https://youtu.be/qpeP4Er5PYE)
  [x] namaste + vulcan salute (from the closest planet to sūrya; burnedt to a crisp v crash landed v size matters collider v magixal mandela effect v..) = (tmnt + mib) × millennium garuḍa, where is(this,the(way))
  [x] ōṁeditational chanting v https://tvtropes.org/pmwiki/pmwiki.php/Main/TickTockTune
   [x] `printf \\ect;time read`
