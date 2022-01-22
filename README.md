@@ -78,6 +78,13 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] lah; they s/say/claim/ we have a 5 to 9 memory, but this can definitely be exceeded, and the s/education system/brits/ blamed
  [ ] percussive {line,knot-theoretic topological circle,triangle}
  [ ] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt
+ [ ] https://www.open.edu.au/courses/subjects?keyword=sanskrit
+  [ ] https://youtu.be/PDQZ9C7yuDg
+  [ ] https://youtu.be/qxVu1CfGNEo
+  [ ] https://youtu.be/_1qAmGdNaFA
+  [ ] https://youtu.be/eQqJkm_q93k
+  [ ] https://youtu.be/s723-3hkUjA
+  [ ] https://youtu.be/wgD8h0ueJFQ
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
   - PL101: "Create your own programming language" (in javascript; for whatever reason, you wouldn't want to use a language processing langauge like prolog?)
@@ -620,3 +627,7 @@ tardis' inside isn't moving, while tardis' outside is; https://youtu.be/1TKSfAkW
 https://youtu.be/IANBoybVApQ?t=2m#proprietary v https://youtu.be/N7lXymxsdhw?t=1m11s#floss
 https://youtu.be/MFzDaBzBlL0; this is like riding a skateboard c̄ inverted trucks (also facing the same way; i experimented well over a decade ago) #dwyc(n)
 crawl(fullmetaprototyping), walk(formalintelligence), run(worldomination)
+https://youtu.be/y8mzDvpKzfY; backseat passengers get more nitrox than first class, and it's cheaper too
+https://youtu.be/aoXJfuPaFF8; are these search strats from a genetic algorithm like the 2006 nasa st5 spacecraft antenna? iff rescue = the ultimate answer v eff eff = /err|false|fail/
+https://youtu.be/uFQdcKJUijQ?t=38m; tnt	dynamite from the ac/dc song, was wrong
+https://youtu.be/uFQdcKJUijQ?t=45m15s v	https://youtu.be/INAO97TQl-w
