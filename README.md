@@ -86,6 +86,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [ ] https://youtu.be/eQqJkm_q93k
   [ ] https://youtu.be/s723-3hkUjA
   [ ] https://youtu.be/wgD8h0ueJFQ
+  [ ] https://youtu.be/RN-cAxSJtiE
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
   - PL101: "Create your own programming language" (in javascript; for whatever reason, you wouldn't want to use a language processing langauge like prolog?)
