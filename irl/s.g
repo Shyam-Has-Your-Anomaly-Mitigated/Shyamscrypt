@@ -24,7 +24,7 @@ can red cabbage measure vegan food /colouring|dye/?
 observer paradox; scales (also have an er³ange; 200g 0.001g ∓0.005g = 200g 0.01g, so really only good for 0.1g `(not even)`, and then there's the ‘no-fat’ dream,..),..
 chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is litmus paper really colour blind?..
 
-i can actually afford a nanopore sequencer
+i can actually afford a nanopore sequencer; maybe (i don't think a grand will get me all i need, and exchange rates are tbc)
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
 https://youtu.be/BqLH-nTZEOc?t=29s
