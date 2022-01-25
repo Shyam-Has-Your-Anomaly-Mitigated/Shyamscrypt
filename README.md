@@ -61,6 +61,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - checkpoint ≤ hotpatching; cracking(crypto,cyber,space,time..),..
  - shyamscrypt = ki (crypto keys; magic), shyamscript = mantra (recursive lambdas; a blessing, but a curse if you get stuck, and it doesn't stuck)
   - maha = every"-thing", mahaki = ki-mantra, mahamantra = mantra-ki; these are how to formally verify meta,..
+ - hagrid = (core)dump
 [ ] reading den:
  [ ] my flag is maha logically primed; is ali a lie?
   [ ] rhs v lhs; yin v yang (i'm half /empty|full/ ∘ https://youtu.be/qpeP4Er5PYE)
