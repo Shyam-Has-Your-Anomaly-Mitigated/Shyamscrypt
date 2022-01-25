@@ -19,7 +19,7 @@ product(suitable   , <1%  , rts              , landfill, dead    , ~1y, (clear t
   % coles' basmati recyke-microplastic-pouch 2s $1.5
   % coles' 1c @ 1 rice v massel' 1c @ 2 rice v 1 o'liquid @ 4 rice
   % i know how to improve packaging tech
-% on the subject of fasting: prefast, sunset, count pairs sunrise to sunset as one each, sunrise, breakfast; this is the clearest way to define variable days #wibbly_wobbly_timey_wimey_burn_my_fat_away
+% on the subject of fasting: prefast, sunset, count pairs sunrise to sunset as one each, sunrise, breakfast; this is the clearest way to define variable days #wibbly_wobbly_timey_wimey_burn_my_fat_away_for_me
 % eat, /(0'clock){2,..}|1h between|2'clocks between/, eat; /250g|1c/ rice (2'clocks,1c), max = /(2kg|8c)(÷|%)d/ (⅟100 v %)
 % drink, /0'clock|1'clock between/, drink; /1l|4c/ water, max = /(16l|64c)(÷|%)d/ (⅟100 v %)
 % [0,1]    : (percents for 24h; 14.4m)      v (percents for 16h; 9.6m)      , where percent=turn
