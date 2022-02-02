@@ -186,6 +186,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - shen ... has a logic-based type system with capabilities beyond even Haskell.
   - the little typer; pi@racket sicp@racket emacs@elisp guix@guile stumpwm@cl s/lispscript/js/@clojurescript java@clojure py@hy webasm@googleschism s/reactive/hotpatching/@s/erlang: the movie@1988/emacs@1976/ buzzwords@homoiconicity∈{hex,lisp,prolog;trimūrti,śyāmascript,śyāmascrypt}
    - CONSTANT LISP (LANGUAGE) v variable lisp (dialect)
+   - r s/should've/cdr/ been a lisp dialect, but /fragmentation|diversification/ = job security; $elloutz don't want their exploits flossed, otherwise the phb will get smart
   - prolog is a theorem prover v coq flag for isabelles' hol(s); pagent(gallinas' cup v isabelles' hole(s) v adas' gash v whores' cockette(; /(hypnotherapists|mentalists)(c̄ hired acto?r(esse)?s)?|illusionists|magicians|witches|big tits zombie whores|ryan gosling/ guard empty chests, after laying their log(s), while casting their spill(s), before cackling away))
   - TODO: i remember employing holmesian' deduction to discover (= (lisp types) ml), ever since it was removed from wikipedia; can't remember the location∘evidence
    - logo is "lisp without brackets"; "intended to be an easier to use lisp" (more difficult to read = more difficult to use)
