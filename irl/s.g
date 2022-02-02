@@ -42,6 +42,8 @@ https://youtu.be/Q_X8yKlzbkg
  diy rulers,.. #ftw
 https://youtu.be/iRhGbohdwt4
  measurements must be consistent; /before|mid|after/ marks
+https://youtu.be/pUwVZUOSTvk?t=9m37s
+ /inferomet(re|er)s/ are nanoscopes, right?
 https://youtu.be/tVcEEw6qbBQ
 so
  1m = 100cm = 1,000mm = 1,000,000μm
