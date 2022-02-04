@@ -11,6 +11,8 @@
 -                i
 -now you can read between the lines in negative space; \n+the eye dot equals, tldr more to come
 +life is a game of snakes, and ladders
+-                                     ; where 𝄞3.5×10⁷ maha mantras = cheat code
+-                                     ; just keep chanting, just keep chanting, chanting, chanting, chanting, what do we do? we chant, chant, chant!
 ~
 -      𝄞3
 -      📐
