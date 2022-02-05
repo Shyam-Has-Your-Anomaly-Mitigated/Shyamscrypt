@@ -610,7 +610,7 @@ hey (there) teddy bear eyes; i'm going to fuck you so hard, and fast, that you' 
  she wants some"-thing"
  she says "i want to be you", meaning she wants my power; she can have your' power #i_want_it,_i_got_it
  i could've replied "what did you say? you understand this? you want my seed? do you want to be fucked by me? the grand serpent"
- i could've replied "what did you say? you understand this? you want my seat? do you want to be me? i don't need solidarity from an airy fairy angel who hasn't even completed you' spiritual journey of loyaltyet"
+ i could've replied "what did you say? you understand this? you want my seat? do you want to be me? i don't need solidarity from an airy fairy angel who hasn't even completed you' spiritual journey of loyaltyette"
  i said some"-thing" along the lines of "any\"-thing\" you say pump-kin tits"
  you eventually articulate an understanding that we switched in some way; of which, there are many pussabilities (/any"-thing", and every"-thing" that|what|key?/ follows; श्याम interpretations are beyond 00, aka 000)
  you eventually understand i started calling you; you
