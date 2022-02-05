@@ -1,6 +1,6 @@
 ```
 # Shyamscrypt
--               i was only expressing solidarity; s/low? and behold/loy-ally/ blame me?
+-               i was only expressing solidarity; s/low? and behold/loy-allo?y/ blame me?
 -               🌹
 +from the ash I rose
 -         इ.सि.         the
