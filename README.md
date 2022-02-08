@@ -636,7 +636,7 @@ tardis' inside isn't moving, while tardis' outside is; https://youtu.be/1TKSfAkW
 https://youtu.be/IANBoybVApQ?t=2m#proprietary v https://youtu.be/N7lXymxsdhw?t=1m11s#floss
 https://youtu.be/MFzDaBzBlL0; this is like riding a skateboard c̄ inverted trucks (also facing the same way; i experimented well over a decade ago) #dwyc(n)
 crawl(fullmetaprototyping), walk(formalintelligence), run(worldomination)
-https://youtu.be/y8mzDvpKzfY; backseat passengers get more nitrox than first class, and it's cheaper too
 https://youtu.be/aoXJfuPaFF8; are these search strats from an upper-class (oops) twit' genetic algorithm like the 2006 nasa st5 spacecraft antenna? iff rescue = the ultimate answer v eff eff = /err|false|fail/
+https://youtu.be/y8mzDvpKzfY; backseat passengers get more nitrox than first class, and it's cheaper too
 https://youtu.be/uFQdcKJUijQ?t=38m; tnt dynamite from the ac/dc song, was wrong
 https://youtu.be/uFQdcKJUijQ?t=45m15s v https://youtu.be/INAO97TQl-w v https://youtu.be/qVKod6Rv6dE
