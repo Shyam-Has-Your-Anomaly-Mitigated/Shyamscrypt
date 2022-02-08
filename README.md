@@ -639,4 +639,4 @@ crawl(fullmetaprototyping), walk(formalintelligence), run(worldomination)
 https://youtu.be/aoXJfuPaFF8; are these search strats from an upper-class (oops) twit' genetic algorithm like the 2006 nasa st5 spacecraft antenna? iff rescue = the ultimate answer v eff eff = /err|false|fail/
 https://youtu.be/y8mzDvpKzfY; backseat passengers get more nitrox than first class, and it's cheaper too
 https://youtu.be/uFQdcKJUijQ?t=38m; tnt dynamite from the ac/dc song, was wrong
-https://youtu.be/uFQdcKJUijQ?t=45m15s v https://youtu.be/INAO97TQl-w v https://youtu.be/qVKod6Rv6dE
+https://youtu.be/uFQdcKJUijQ?t=45m15s v https://youtu.be/INAO97TQl-w v https://youtu.be/qVKod6Rv6dE v https://youtu.be/qVXlIaos37s?t=20m08s; fossilog, blood∘cabbage, whorf(like spot the dog)…hexanoic acid (1.08g)
