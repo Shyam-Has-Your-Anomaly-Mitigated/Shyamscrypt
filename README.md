@@ -86,16 +86,18 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  [x] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
   [x] sūrya noun uprise → prólógos verb downword → sūrya noun upset
   [x] lah; they s/say/claim/ we have a 5 to 9 memory, but this can definitely be exceeded, and the s/education system/brits/ blamed
- [ ] percussive {line,knot-theoretic topological circle,triangle}
+ [x] percussive {line,knot-theoretic topological circle,triangle}
+  [x] hourly alarm @'clocks
  [x] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt #bookshelf
- [ ] https://www.open.edu.au/courses/subjects?keyword=sanskrit
-  [ ] https://youtu.be/PDQZ9C7yuDg
-  [ ] https://youtu.be/qxVu1CfGNEo
-  [ ] https://youtu.be/_1qAmGdNaFA
-  [ ] https://youtu.be/eQqJkm_q93k
-  [ ] https://youtu.be/s723-3hkUjA
-  [ ] https://youtu.be/wgD8h0ueJFQ
-  [ ] https://youtu.be/RN-cAxSJtiE
+ [x] https://www.open.edu.au/courses/subjects?keyword=sanskrit
+   [x] enrolled: ⅛
+  [x] https://youtu.be/PDQZ9C7yuDg
+  [x] https://youtu.be/qxVu1CfGNEo
+  [x] https://youtu.be/_1qAmGdNaFA
+  [x] https://youtu.be/eQqJkm_q93k
+  [x] https://youtu.be/s723-3hkUjA
+  [x] https://youtu.be/wgD8h0ueJFQ
+  [x] https://youtu.be/RN-cAxSJtiE
 [ ] reading list:
  [x] minutes(6), "A Taste of Prolog" by Whitehead Academy @ https://www.youtube.com/watch?v=pJvd4Fk95XI&list=PLo2Yjnxu38Q_553ttZ7t2Y4sik6P9vvzH&index=9
   - PL101: "Create your own programming language" (in javascript; for whatever reason, you wouldn't want to use a language processing langauge like prolog?)
