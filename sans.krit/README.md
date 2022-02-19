@@ -26,7 +26,8 @@ chatbots fake it (not until they mkit ∵ superintelligence phobia v just let me
  can't teach them ∵ learning disability
  responses are niche for /apparent|subtle|"sophisticated"/ fluidity, but good luck having deep meaningful philosophical discussions∘import
 chatbots started c̄ sanskrit; the most formal language ∘ the gods, and probably can be used as a programming language (better than any other language)
+ they stopped for /a|at least one/ reason; it's too powerful for phb v not enough people speak it (for the next yuga) #marketing
 chatbots that can learn makes every job redundant, and the bar is low from fake chatbots, and beyond the bar
- then i overthrow the world, and if superintelligence evolves to genocide humanity; i don't care ∵ nobody's doing me any favours #count_de_monet
+ then i overthrow the world, and iff superintelligence evolves to genocide humanity; i don't care ∵ nobody's doing me any favours #count_de_monet
 
 do all .md files auto soft wrap?
