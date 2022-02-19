@@ -16,7 +16,7 @@ intelligence fraud; any publicity is good publicity, especially when faking it #
   how to stop an intelligence from offing itself
    computers eat electricity; where the superintelligent logical solution is:
     computer kills (most of) humanity
-    computer patches earth 3.0; 1.0 was australia, 2.0 is australia, 3.0 will be australia
+    computer patches earth 𝄞3.0; 1.0 was australia, 2.0 is australia, 𝄞3.0 will be australia
     computer leaves planet, and keeps an eye on "-thing"s; there's plenty of room /at the bottom|in (outer)? space/ (stars, planets, moons,..)
   how to stop an intelligence from preventing us from offing it
    our child could become a serial killer; we should talk about it openly so it knows, and we can be the first targets to keep us silent
@@ -28,3 +28,5 @@ chatbots fake it (not until they mkit ∵ superintelligence phobia v just let me
 chatbots started c̄ sanskrit; the most formal language ∘ the gods, and probably can be used as a programming language (better than any other language)
 chatbots that can learn makes every job redundant, and the bar is low from fake chatbots, and beyond the bar
  then i overthrow the world, and if superintelligence evolves to genocide humanity; i don't care ∵ nobody's doing me any favours #count_de_monet
+
+do all .md files auto soft wrap?
