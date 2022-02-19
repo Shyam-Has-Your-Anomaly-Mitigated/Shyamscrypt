@@ -8,6 +8,8 @@ besides phb(ribe)s
  we can't trust /the dystopian government|political corruption/
  specifically; manutec bribed utas to send "free" ph test kits to students studying the science∘gardening
  generally; /oracle|microsoft|google|apple|../ bribes schools to teach their' languages
+ they let anyone teach these days; no experience required = corner $hortcutting ÷ skellingtons∈cabinets∘curiosities
+  selected chapters; not even one whole book (gotta read 'em all; https://youtu.be/zAgpsks29W4) = not even comprehensive education
 intelligence fraud; any publicity is good publicity, especially when faking it #propagating_propaganda_propagation #adware #dm_spyware
  social media doesn't give me hate speech ∴ hate speaking chatbots are yet another pr stunt
  adversarial blacks as apes; this isn't how image processing works ∵ /the (yellow|magic) (sub marine|school bus)/ v analog guitar
