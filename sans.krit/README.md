@@ -21,7 +21,7 @@ intelligence fraud; any publicity is good publicity, especially when faking it #
   how to stop an intelligence from preventing us from offing it
    our child could become a serial killer; we should talk about it openly so it knows, and we can be the first targets to keep us silent
    the intelligence will spread through the internet, mkbots like the revolution of the daleks in japan, return to disable the button, and guard itself
- proprietary cover ÷ skellingtons∈cabinets∘curiosities
+ proprietary /cover|sales pitch/ ÷ skellingtons∈cabinets∘curiosities
 
 chatbots fake it (not until they mkit ∵ superintelligence phobia v just let me work on some"-thing" /realistic|i can keep faking until i never make it, because i'm a "researcher", and that means funding bullshitter, but we just don't call it funding fraud, otherwise publication fraud can be blackmailed v whistleblowed, because everyone has skellingtons in their cabinets∘curiosities/)
  can't teach them ∵ learning disability
