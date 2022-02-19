@@ -11,7 +11,7 @@ besides phb(ribe)s
 intelligence fraud; any publicity is good publicity, especially when faking it #propagating_propaganda_propagation #adware #dm_spyware
  social media doesn't give me hate speech ∴ hate speaking chatbots are yet another pr stunt
  adversarial blacks as apes; this isn't how image processing works ∵ /the (yellow|magic) (sub marine|school bus)/ v analog guitar
- robots that want to genocide humanity; where does this even come from? bullshitters
+ robots (i really just want a sexbot to replace my aging wife) that want to genocide humanity; where does this even come from? bullshitters
   humans who /kill|eat|wear|abuse|../ any species are more likely to die; i don't have a problem c̄ this
   how to stop an intelligence from offing itself
    computers eat electricity; where the superintelligent logical solution is:
