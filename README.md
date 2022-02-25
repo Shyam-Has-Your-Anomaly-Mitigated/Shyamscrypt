@@ -578,6 +578,13 @@ cornucopia
  remove light bulb, and trick the sensors; observer paradox (double slit experiment c̄ human eyeballs)
  bouncing on the inner boundary of the goldilocks zone
  inversion
+ …
+ not sure if i mentioned it elsewhere; geometry is /powerful|computational|../ #s/particle/wave/
+ a waveform could crash your party
+ folding spacettime to steal from another position; banks, shops, aliens,.. #horn∘plenty
+ or just light bulb socket it s/in|out/to|from/ nowhere #nullisland
+ it can form a waveform on the otherside, or not; how it is seen, or not seen, directionality, interactability,.; is /hackable|configurable/
+ holowave projection technology #starlight
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
