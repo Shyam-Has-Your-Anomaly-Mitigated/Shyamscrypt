@@ -588,6 +588,7 @@ cornucopia
  patterns are like conways' game∘life; so they can hide themselves, but real hackers can /data|system|../ recover
  perfect /triangles|pyramids/, /square|cubes/,.; are easy, but a line is the easiest (ever tried staring into the end of one? cams are the safest goggles! there's many different observations (geometry,filters,..), but most /fires|lights|lasers|fibre optics|../ are imperfect(? for _ /purposes?/))
  the grid is disconnected; otherwise bricking could rm all infrastructure
+ it's like tuning a coat hanger v intelligent design; try not to hang yourself into a blackhole, space, star, /supernovae?/, /nullislands?/,..
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
