@@ -584,7 +584,7 @@ cornucopia
  folding spacettime to steal from another position; banks, shops, aliens,.. #horn∘plenty
  or just light bulb socket it s/in|out/to|from/ nowhere #nullisland
  it can form a waveform on the otherside, or not; how it is seen, or not seen, directionality, interactability,.; is /hackable|configurable/
- holowave projection technology #starlight
+ holowave projection technology #starlight(stars are self-sustaining; meta)
  patterns are like conways' game∘life; so they can hide themselves, but real hackers can /data|system|../ recover
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
