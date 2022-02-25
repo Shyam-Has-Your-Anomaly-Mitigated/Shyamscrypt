@@ -589,7 +589,7 @@ cornucopia
  perfect /triangles|pyramids/, /square|cubes/,.; are easy, but a line is the easiest (ever tried staring into the end of one? cams are the safest goggles! there's many different observations (geometry,filters,..), but most /fires|lights|lasers|fibre optics|../ are imperfect(? for _ /purposes?/))
  the grid is disconnected; otherwise bricking could rm all infrastructure
  it's like tuning a coat hanger v intelligent design; try not to hang yourself into a blackhole, space, star, /supernovae?/, /nullislands?/,..
- mantras have geometric waveforms; this is indicative for the importance of correct pronounciation (verbal, neurofeedback,.; shyamayoga)
+ mantras have geometric waveforms; this is indicative for the importance of correct pronounciation (verbal, neurofeedback, mudrā,.; shyamayoga)
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
