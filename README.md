@@ -579,7 +579,7 @@ cornucopia
  bouncing on the inner boundary of the goldilocks zone
  inversion
  …
- not sure if i mentioned it elsewhere; geometry is /powerful|computational|../ #s/particle/wave/
+ not sure if i mentioned it elsewhere; geometry is /powerful|computational|../ #s/digital|particle/analog|wave/
  a waveform could crash your party
  folding spacettime to steal from another position; banks, shops, aliens,.. #horn∘plenty
  or just light bulb socket it s/in|out/to|from/ nowhere #nullisland
