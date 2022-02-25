@@ -586,6 +586,7 @@ cornucopia
  it can form a waveform on the otherside, or not; how it is seen, or not seen, directionality, interactability,.; is /hackable|configurable/
  holowave projection technology #starlight(stars are self-sustaining; meta)
  patterns are like conways' game∘life; so they can hide themselves, but real hackers can /data|system|../ recover
+ perfect /triangles|pyramids/, /square|cubes/,.; are easy, but a line is the easiest (ever tried staring into the end of one? cams are the safest goggles! there's many different observations (geometry,filters,..), but most /fires|lights|lasers|../ are imperfect)
 i can fly; plane v jumping v falling v wingsuit v parachute v.. #deadlines\.//,
 those who can fly, can fly like (be careful what you wish for; /blessing|curse/); i can fly #pestilence
 i am a shapeshifter; aging, amputation, gmo,.. #fountain∘youth
