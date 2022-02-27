@@ -225,7 +225,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - in the 1800s pasturisation invention (i lived on raw milk for 3 months, fresh from the udder i hand milked)
    - in the 1800s indian indentured system; after african slavery was ended, you enslaved my people, and called us /free(range)? slaves/ (/hinduism|gañjā/ gone /viral|wild/; gañjā≤1%thc = we've been using it this whole time, and it's protected by federal law #covert_hinduism #covert_paganism #..) #i_ann_nc̄a #nuua_ftuu
    - in the 1800s they attempted to discredit bodhidharma 12022∘02∘24@https://en.wikipedia.org/wiki/Bodhidharma#Shaolin_boxing
-   - in the 1800s they attempted to corrupt pronounciation, by teaching sanskrit; read thomas egenes' introduction to sanskrit part 1; bartholome literally starts it off in 1801; fucking 1801; before that it was just jesuit missionaries failing, and in doing so succeeding in giving weakminded /westerners|bullshitters/ reason to 1800s,..
+   - in the 1800s they attempted to corrupt pronounciation, by teaching sanskrit; read thomas egenes' introduction to sanskrit part 1; bartholome literally starts it off in 1801; fucking 18 fucking 01; before that it was just jesuit missionaries failing, and in doing so succeeding in giving weakminded /westerners|bullshitters/ reason to 1800s,..
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way; /heavenly|heathenly/ /bodies|personalities/, that ttime of the month,..)
    - feminism (draupadī)
    - homosexuality prohibition (kamasutra, turd (eyed) gender,..)
