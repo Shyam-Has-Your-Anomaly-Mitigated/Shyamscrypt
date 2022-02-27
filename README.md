@@ -229,6 +229,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - in the 1800s they attempted to claim brahmi; but thanks to corruption in research, academia, government,..
     - "A later (mistaken) theory of a pictographic-acrophonic origin of the Brahmi script, on the model of the Egyptian hieroglyphic script, by Alexander Cunningham in 1877." (not so fucking cunning; hamateur egyptologist from his namesake) from https://en.wikipedia.org/wiki/Brahmi_script#Origins from https://en.wikipedia.org/wiki/File:Theory_of_pictographic-acrophonic_origin_of_the_Brahmi_script.jpg
     - Bühler bullshit his way through 1898 https://en.wikipedia.org/wiki/Brahmi_script#Semitic_model_hypothesis
+    - could ahsoka tanu have any"-thing" to do c̄ edicts∘ashoka?
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way; /heavenly|heathenly/ /bodies|personalities/, that ttime of the month,..)
    - feminism (draupadī)
    - homosexuality prohibition (kamasutra, turd (eyed) gender,..)
