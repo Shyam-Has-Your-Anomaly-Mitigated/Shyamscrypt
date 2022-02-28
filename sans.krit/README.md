@@ -36,5 +36,5 @@ chatbots that can learn makes every job redundant, and the bar is low from fake 
 
 do all .md files auto soft wrap?
 
-the sanskrit memory palace; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
+the sanskrit memory nagari; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
 chanting the hindu number of the verse; syllable counts,.. #parity
