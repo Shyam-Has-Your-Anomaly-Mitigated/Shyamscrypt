@@ -35,3 +35,6 @@ chatbots that can learn makes every job redundant, and the bar is low from fake 
  there's no law against overthrowing alien foreigners, the world, ferengis, the solar system, the galaxy, the 'verse(s),.; but the laws didn't stop the french role models anyway, and they got /away c̄ it|what they want(ed)?/ #iwi,igi
 
 do all .md files auto soft wrap?
+
+the sanskrit memory palace; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
+chanting the hindu number of the verse; syllable counts,.. #parity
