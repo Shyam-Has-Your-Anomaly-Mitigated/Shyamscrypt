@@ -38,4 +38,4 @@ do all .md files auto soft wrap?
 
 the sanskrit memory nagari; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
 chanting the hindu number of the verse; syllable counts,.. #parity
-devanagari means the city of the gods; house building script, where the roof goes on last, and there are millions of gods
+devanagari means the city of the gods; house building script, where the roof goes on last, and there are millions of gods, where god comes from go(d(s)), my spiritual animal!
