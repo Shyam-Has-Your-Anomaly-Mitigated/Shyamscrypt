@@ -55,3 +55,14 @@ how to learn sanskrit
  officially you read the {grammar, dictionary,..} into memory
  now they teach it at the south harmon institute∘technology
 this is the way
+
+how i want to learn sanskrit
+ i want to become lipikara; indo is like spacio
+  i remember being exposed to the concept of devanagari calligraphy #teapot
+  12022.03.02@https://en.wikipedia.org/wiki/Sanskrit#Other_writing_systems
+   i want to train my eye
+   wikidates should check the day before, or all logs, and maybe even 𝄞3 /(inc|ex)lusive/ days before #ttimezones
+  i'm looking for linear alphabetical ordering of indic scripts c̄ stroke order, pronounciation (roman transliteration, ipa (one day i might learn this; partial@omniglot),..)
+  𝄞everyday; lipikara c̄out looking, then /look|trace (printer required|paper to window (manager)?)?/, then freehand; while chanting the pronounciation
+   to be fair; i should do this c̄ every langauge, and improve my handwriting #art_styles
+    only for brahmi (point of origin), devanagari (sanskrit wikipedia; i think),.; maybe even /(south)?east/ scripts, but indic eye training is my higher priority
