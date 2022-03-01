@@ -77,4 +77,17 @@ prabhupada
   the dasavatara dispute (iprefer hindu unification); it would mean accepting mahaprabhu above all others (i think i need to learn bengali to mkwellinformedecision; it's not /sanskrit|the language of the gods/ v i was /born|booktested/ into iskcon = there is much to consider)
  i haven't married an 11 year old yet, nor half my age; a doubling age joke c̄ to mind
   i have popped a ~[5,6] year olds' cherry; we're about the same age, and i think she was the first one, but all the big girls used to pick me up, and carry me around, and then i'd go home c̄ nits (it's the earliest i can remember; it was at murbah, and she might've been the temple presidents daughter, and i might've got kicked out for it, and i think they kicked out my black cat before me (my mum told me it's not coming back; i was the only one who could pick it up, but sometimes it scratched my arms, but it was never a big deal for me, so some other kid probably got scratched #darwin_awared), but i don't remember being told any of this; i went to india when i was 6, and when i returned when i was 7 i didn't know anyone, but before i left i knew everyone, and always greeted newcomers to my home (that being the whole temple; i used to run around, and say hi to everyone, everyday); i remember this guy grew a beard, and i recognised him from before when he visited c̄out it, and i think those were his first two visists, and i think everyone else hanging around made a big deal (as in betting) about my ability to recognise him, but i just ran off to play c̄ my friends, and i felt like an amnesiatic elephant when i returned)
-   a lot of girls have flashed me over the years, but this one flashed me, then ran away, and refused to show me again, and it consumed me; i remember standing on my verandah, and looking out into the jungle (i lived in a mud hut in the mountains; nobody else did), i thought mud cake (i only had boys toys), and the rest is history (she turned down the cake (maybe i should've made it; i remember making crazy sand castles), but i had a backup plan)
+   a lot of girls have flashed me over the years, but this one flashed me, then ran away, and refused to show me again, and it consumed me; i remember standing on my verandah, and looking out into the jungle (i lived in a mud hut in the mountains; nobody else did), i thought mud cake (i only had boys toys, and my hut was made of it), and the rest is history (she turned down the cake (maybe i should've made it; i remember making crazy sand castles), but i had a backup plan)
+ i met krishna before i went to india when i was 6
+  i woke up, and heard peacocks walking on the corrugated roof
+  i walked out side, right after the door, around the lemon grass, to the side of the mud hut; i remember watching my mum cook lemon grass tea, and i thought my mums a witch at that very moment
+  i looked up, and krishna was peering over the edge of the roof, and reached down, and pulled me up to the roof
+  …
+  there were gopis dancing on the roof in place of peacocks
+  …
+  …he asked me want i wanted; i said i want to be a teenage mutant ninja turtle; he laughed, and asked me again…
+  …
+  i went inside, and lay down, and watched the sun rise
+  when my mum woke up, i told her all about it, but i knew she wouldn't believe me, so i said it was a dream
+  i think i've only ever told one other person
+  𝄞
