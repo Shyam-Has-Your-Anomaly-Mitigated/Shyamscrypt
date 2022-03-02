@@ -55,6 +55,9 @@ how to learn sanskrit
    cryptics don't trust the banks; this is where it comes from (for a good reason)
  officially you read the {grammar, dictionary,..} into memory
  now they teach it at the south harmon institute∘technology
+ https://en.wikipedia.org/wiki/Sanskrit_revival
+  https://en.wikipedia.org/wiki/Shastri_(degree)
+   https://en.wikipedia.org/wiki/Acharya
 this is the way
 
 how i want to learn sanskrit
