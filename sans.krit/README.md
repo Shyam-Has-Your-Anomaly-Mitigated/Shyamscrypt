@@ -47,6 +47,7 @@ why sanskrit is never a first language
   this is like playing an unsavable (video)game; iff you mess up, you just wipe the chessboard like a game of 52p(u) = {32,33,34,35,36,.; board, table, opponent, player,..}p(u)
 why sanskrit is spoken scriptlessly
  guru will only teach in a way to know you know every"-thing"; unlike jon snow
+  we call this kung fu linguistics; correctional officer
 how to learn sanskrit
  traditionally guru will only teach kids who are under their s/spell/control/ (the greeks stole it from us, just like /every("-thing"|one)/ else; literally, figuratively,..); nobody is going to sit there teaching you for you to give up (they'll beat it into you 'til death do you part, but not the part where they till the flowers you body mass exercise; this is bharata! as they('ll) beat you to death)
   this is like cryptics; nobody wants to get to know you iff you're just going to bugger off, and iff you ever return they'll probably cut your throat; they'll think you're a /demon|possessed/; when you get to know somebody so well, and they believe in magic, and it feels like a part of them has died; they won't even let you in(vitation only; for your safety ∵ they use the word "gang" to describe some of these cryptic communities)
