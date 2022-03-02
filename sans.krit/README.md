@@ -57,7 +57,7 @@ how to learn sanskrit
  now they teach it at the south harmon institute∘technology
  https://en.wikipedia.org/wiki/Sanskrit_revival
   https://en.wikipedia.org/wiki/Shastri_(degree)
-   https://en.wikipedia.org/wiki/Acharya
+   https://en.wikipedia.org/wiki/Acharya#Acharya_(degree)
 this is the way
 
 how i want to learn sanskrit
