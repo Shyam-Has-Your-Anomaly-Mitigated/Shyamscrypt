@@ -58,6 +58,7 @@ how to learn sanskrit
  https://en.wikipedia.org/wiki/Sanskrit_revival
   https://en.wikipedia.org/wiki/Shastri_(degree)
    https://en.wikipedia.org/wiki/Acharya#Acharya_(degree)
+    https://en.wikipedia.org/wiki/Sanskritisation
 this is the way
 
 how i want to learn sanskrit
