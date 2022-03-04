@@ -110,4 +110,4 @@ religious zealot
  got s/helmet/karma|dharma|Śyāma|../? s/p(ee|iss)pools/35000000/ #sanskritisation #shyamasmriti #Śyāma(va)-Dharmaśāstra #om-shyamaya-namaha #shyaama
 this is the way
 
-i just discovered a secret∘sanskrit #f.tp(rolog)
+i just discovered a secret∘sanskrit #f.tp(rolog #inhabitance)
