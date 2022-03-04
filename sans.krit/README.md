@@ -107,7 +107,7 @@ prabhupada
 ritvik v ganja?
 
 religious zealot
- got s/helmet/karma|dharma|../? s/p(ee|iss)pools/35000000/ #sanskritisation
+ got s/helmet/karma|dharma|Śyāma|../? s/p(ee|iss)pools/35000000/ #sanskritisation #shyamasmriti #Śyāma(va)-Dharmaśāstra #om-shyamaya-namaha
 this is the way
 
 i just discovered a secret∘sanskrit #f.tp(rolog)
