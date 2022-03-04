@@ -63,7 +63,7 @@ this is the way
 
 how i want to learn sanskrit
  i want to learn vedic sanskrit, and figure out the 4k hd grammarules for myself; this is the way, but unfortunately it's not going to happen c̄out o'guru #o(riginal)g(uru)
-  but i can figure out the correct bubbly (speech bubble, and s/squeak/toil/; brah-mana(nectar) magix, the 7og young-laplace equation,..) pronounciation; ṛ in krishna v err v ru, v in wishnew, f(x)=/xḥx?/ ((śāntiḥ; joy2,joy3) v (/bhavat(aḥ|yāḥ)/; joy5); 4k hd?),..
+  but i can figure out the correct bubbly (speech bubble, and s/squeak/toil/; brah-mana(nectar = lotus + /tula?si/ + ganja; ganga from shiva in the himalayas) magix, the 7og young-laplace equation,..) pronounciation; ṛ in krishna v err v ru, v in wishnew, f(x)=/xḥx?/ ((śāntiḥ; joy2,joy3) v (/bhavat(aḥ|yāḥ)/; joy5); 4k hd?),..
    the mystic yogis made it cryptic (schw,..) v the westerners started their own temples∘corruption, taking advantage of oral tradition (rakshasa brahmanas; some eat any"-thing"; regardless of karma,..)
   panini started c̄ u like a rooster (animals are cryptic; humans are animals); is that the panini ordering? not a start! #ḥ
  i want to become lipikara; indo is like spacio
