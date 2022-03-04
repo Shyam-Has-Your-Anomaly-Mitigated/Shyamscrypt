@@ -62,6 +62,10 @@ how to learn sanskrit
 this is the way
 
 how i want to learn sanskrit
+ i want to learn vedic sanskrit, and figure out the 4k hd grammarules for myself; this is the way, but unfortunately it's not going to happen c̄out o'guru #o(riginal)g(uru)
+  but i can figure out the correct bubbly (bubble, and s/squeak/toil/; brah-mana magix) pronounciation; ṛ in krishna v err v ru, v in wishnew, f(x)=/xḥx?/ ((śāntiḥ; joy2,joy3) v (/bhavat(aḥ|yāḥ)/; joy5); 4k hd?),..
+   the mystic yogis made it cryptic (schw,..) v the westerners started their own temples∘corruption, taking advantage of oral tradition (rakshasa brahmanas; some eat any"-thing"; regardless of karma,..)
+  panini started c̄ u like a rooster (animals are cryptic; humans are animals); is that the panini ordering? not a start! #ḥ
  i want to become lipikara; indo is like spacio
   i remember being exposed to the concept of devanagari calligraphy #teapot
   12022.03.02@https://en.wikipedia.org/wiki/Sanskrit#Other_writing_systems
@@ -71,6 +75,8 @@ how i want to learn sanskrit
   𝄞everyday; lipikara c̄out looking, then /look|trace (printer required|paper to window (manager)?)?/, then freehand; while chanting the pronounciation
    to be fair; i should do this c̄ every langauge, and improve my handwriting #art_styles
     only for brahmi (point of origin), devanagari (sanskrit wikipedia; i think),.; maybe even /(south)?east/ scripts, but indic eye training is my higher priority
+    swastika, om,.; where do these come from? indus script! #cryptic_breadcrumbs
+    yantra, mantra,..
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
