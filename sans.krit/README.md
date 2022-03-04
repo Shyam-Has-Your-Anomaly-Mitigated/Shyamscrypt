@@ -104,3 +104,10 @@ prabhupada
   when my mum woke up, i told her all about it, but i knew she wouldn't believe me, so i said it was a dream #hook
   i think i've only ever told one other person
   𝄞
+ritvik v ganja?
+
+religious zealot
+ got s/helmet/karma|dharma|../? s/p(ee|iss)pools/35000000/ #sanskritisation
+this is the way
+
+i just discovered a secret∘sanskrit #f.tp(rolog)
