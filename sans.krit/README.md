@@ -112,5 +112,5 @@ this is the way
 
 i just discovered a secret∘sanskrit #f.tp(rolog #inhabitance)
 responses embed what they are responding to; the science of dice in mahabharata could include transitivity
-names (mine), om, maha mantra,.; one verse can lead to every other verse, as all roads lead to sanskrit #parity
+names (mine), om, maha mantra,.; one verse can lead to every verse, as all roads lead to sanskrit #parity
 self-answering queries
