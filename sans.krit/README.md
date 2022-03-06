@@ -78,7 +78,7 @@ how i want to learn sanskrit
     swastika, om, anjali,.; where do these come from? indus script! #cryptic_breadcrumbs
     yantra, mantra, mudra,..
  shiva-agni /(maha|alpa)-prana|aspiration/
-  candle lit(,) ganja incense,.; smoke, and mirrors
+  candle lit(,) ganja incense,.; smoke, and mirrors #fog
  /ghosavat|aghosa|vocal (chords)?/
   https://en.wikipedia.org/wiki/Pulse_diagnosis#Traditional_Indian_medicine_(Ayurveda_and_Siddha-Veda)
  whispery whisp(ery)
