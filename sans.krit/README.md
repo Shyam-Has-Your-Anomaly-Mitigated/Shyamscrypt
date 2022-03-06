@@ -84,7 +84,8 @@ how i want to learn sanskrit
  whispery whisp(ery)
   palatal is tongue lhs, middle, rhs?
   retroflex is curled back (flattened underside touching roof), straight back (tippy tongue), vertical (tippy tongue), straight forward (tippy tongue), curled forward (flattened topside touching roof),.?
-  retroflex ṣ air lfs, both, rhs?
+  retroflex ṣ air lhs, both, rhs?
+  ś air lhs, both, rhs?
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
