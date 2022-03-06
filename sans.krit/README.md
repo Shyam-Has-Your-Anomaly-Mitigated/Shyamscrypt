@@ -79,6 +79,8 @@ how i want to learn sanskrit
     yantra, mantra, mudra,..
  shiva-agni /(maha|alpa)-prana|aspiration/
   candle lit(,) ganja incense,..
+ /ghosavat|aghosa|vocal (chords)?/
+  https://en.wikipedia.org/wiki/Pulse_diagnosis#Traditional_Indian_medicine_(Ayurveda_and_Siddha-Veda)
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
