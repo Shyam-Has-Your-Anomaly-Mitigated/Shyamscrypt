@@ -1,3 +1,4 @@
+```
 thewebsiteisdown.com (lol; is that self-deprecating humour?) for planned maintenance; this is the 2ⁿᵈ ttime my memory serves me well-enough alone
 we learned turing-complete sanskrit is all that remains after the /entropic|noisy/ waveform of the galactic s/universe/young-laplace equational multiverse/ collapses; like a homoiconic metalist∘instructions https://github.com/Shyam-Has-Your-Anomaly-Mitigated/TeXXiE/blob/master/LaTeX/personal_documentation/shyam.tex#L135
  we are starlight holowave projections; when they go, we go, and most scientists agree on this post-halfdigest
