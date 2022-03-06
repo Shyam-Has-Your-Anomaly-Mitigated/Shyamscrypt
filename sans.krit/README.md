@@ -77,6 +77,8 @@ how i want to learn sanskrit
     only for brahmi (point of origin), devanagari (sanskrit wikipedia; i think),.; maybe even /(south)?east/ scripts, but indic eye training is my higher priority
     swastika, om, anjali,.; where do these come from? indus script! #cryptic_breadcrumbs
     yantra, mantra, mudra,..
+ shiva-agni /(maha|alpa)-prana|aspiration/
+  candle lit(,) ganja incense,..
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
