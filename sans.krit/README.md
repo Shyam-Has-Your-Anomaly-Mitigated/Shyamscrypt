@@ -82,9 +82,9 @@ how i want to learn sanskrit
  /ghosavat|aghosa|vocal (chords)?/
   https://en.wikipedia.org/wiki/Pulse_diagnosis#Traditional_Indian_medicine_(Ayurveda_and_Siddha-Veda)
  whispery whisp(ery)
-  palatal is tongue lhs, middle, rhs?
-  retroflex is curled back (flattened underside touching roof), straight back (tippy tongue), vertical (tippy tongue), straight forward (tippy tongue), curled forward (flattened topside touching roof),.?
-  retroflex ṣ air lhs, both, rhs?
+  s/palatal/talavya/ is tongue lhs, middle, rhs?
+  s/retroflex/murdhanya/ is curled back (flattened underside touching roof), straight back (tippy tongue), vertical (tippy tongue), straight forward (tippy tongue), curled forward (flattened topside touching roof),.?
+  s/retroflex/murdhanya/ ṣ air lhs, both, rhs?
   ś air lhs, both, rhs?
 
 prabhupada
