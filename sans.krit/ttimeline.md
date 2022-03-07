@@ -68,6 +68,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  why would aryansanskrits not support this theory? it's so airheaded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
  indian migration theory; bodhidharma, the shaolin abbotts translator, buddha,..
  china v taiwan
+ any genetic evidence that westerners migrated can't prove they also called themselves aryans, nor had any"-thing" to do c̄ hinduism; besides pilgrimmaging the holy land as converts from indian migration theory, or bringing no"-thing" other than conflict; attempting forced conversion, theft,..
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
