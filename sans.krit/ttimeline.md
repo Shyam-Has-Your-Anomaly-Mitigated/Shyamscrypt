@@ -1,3 +1,4 @@
+```
 [ ] where did i get this from?
  indic scripts = geometry of sound waves; /structure|movements|pronounciation/ of the mouth? where speech bubbles c̄ from
 [ ] more scripts; indic eye training, but also (south)east asian scripts
