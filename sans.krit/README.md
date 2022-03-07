@@ -34,7 +34,8 @@ chatbots that can learn makes every job redundant, and the bar is low from fake 
  then i overthrow the world, and iff superintelligence evolves to genocide humanity; i don't care ∵ nobody's doing me any favours #count_de_monet
  there's no law against overthrowing alien foreigners, the world, ferengis, the solar system, the galaxy, the 'verse(s),.; but the laws didn't stop the french role models anyway, and they got /away c̄ it|what they want(ed)?/ #iwi,igi
 
-do all .md files auto soft wrap?
+do all .md files auto soft wrap? 1s indentation is now an option; it never used to be
+23:59 is an interesting ttime;	12400 could be the end
 
 the sanskrit memory nagari; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
 chanting the hindu number of the verse; syllable counts, metre (is this footage?), panini' (grammatical,..) completeness,.. #parity
