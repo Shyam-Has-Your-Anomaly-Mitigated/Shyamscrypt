@@ -50,6 +50,9 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
  i think after he wrote about indian mathematics, he was probably peer pressured into not referencing it in subsequents; but i haven't read into any of them yet (i just remember reading book titles, and then every"-thing" changed; now idk what's what.‽.)
 [[1158,1162],1227]ce https://en.wikipedia.org/wiki/Genghis_Khan
 [1170,[1240,50]]ce https://en.wikipedia.org/wiki/Fibonacci
+[12ᵗʰ,16ᵗʰ] https://en.wikipedia.org/wiki/Apabhra%E1%B9%83%C5%9Ba
+ Apabhraṃśa literature is a valuable source for the history of North India for the period spanning the 12ᵗʰ to 16ᵗʰ centuries.[3]
+ so this ttime is corrupted
 [13ᵗʰ,17ᵗʰ]ce https://en.wikipedia.org/wiki/Muslim_conquests_in_the_Indian_subcontinent
 𝘺𝘰𝘨𝘪[1486,1534]ce https://en.wikipedia.org/wiki/Chaitanya_Mahaprabhu
  not as widely considered; could be western corruption
@@ -59,7 +62,7 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 𝘺𝘰𝘨𝘪[1887,1920]ce https://en.wikipedia.org/wiki/Srinivasa_Ramanujan
 𝘺𝘰𝘨𝘪[1896,1977]ce https://en.wikipedia.org/wiki/A._C._Bhaktivedanta_Swami_Prabhupada
  western corruption; eitherway #bookchanges(a decade after his apparent death, or i was born a decade after the book changes; i can't remember)
-𝘺𝘰𝘨𝘪[∞,11989,∞]he श्याम
+𝘺𝘰𝘨𝘪[∞,11989,∞]he श्याम 
 
 the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  why would aryansanskrits not support this theory? it's so airheaded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
