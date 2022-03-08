@@ -73,6 +73,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  china v taiwan
  any genetic evidence that westerners migrated can't prove they also called themselves aryans, nor had any"-thing" to do c̄ hinduism; besides pilgrimmaging the holy land as converts from indian migration theory, or bringing no"-thing" other than conflict; attempting forced conversion, theft,..
  why the westerners want to claim hinduism is anyones' best guess; their' claim that they're all going to hell is undisputed, and it's admirable they are recognising our superiority, and questionable why they don't join us, but i guess all that remains, however improbable, must be the truth #karmi(e)s #mayavadi(e)s #..
+ i already accept the abrahamic fact white people, along c̄ everyone else, originated from india; and the fact the followers of abraham, along c̄ atheists, wiped out their genetic intelligence; and that leaves hindus as the dominant master race of humanity; but we know there are more superior races than humanity, like we've always known about spherical planets, and that the 'verse(s) probably don't revolve around here (but maybe somewhere else, per /haps|chance|se|cent|..?/?)
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
