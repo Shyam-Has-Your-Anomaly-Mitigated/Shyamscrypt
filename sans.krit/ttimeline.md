@@ -66,6 +66,7 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 𝘺𝘰𝘨𝘪[1896,1977]ce https://en.wikipedia.org/wiki/A._C._Bhaktivedanta_Swami_Prabhupada
  western corruption; eitherway #bookchanges(a decade after his apparent death, or i was born a decade after the book changes; i can't remember)
 𝘺𝘰𝘨𝘪[∞,11989,∞]he श्याम 
+23:59 is an interesting ttime; 12400 could be the end (2414 from my name; probably when i get bored, and rewrite every"-thing" all over again #meta)
 
 the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  why would aryansanskrits not support this theory? it's so airheaded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
