@@ -1,6 +1,9 @@
 ```
 [ ] where did i get this from?
- indic scripts = geometry of sound waves; /structure|movements|pronounciation/ of the mouth? where speech bubbles c̄ from
+ indic scripts = geometry of sound waves; /structure|movements|pronounciation|corresponding c̄ points∘articulation/ of the mouth? where speech bubbles c̄ from
+ these are probably the only places i have yet to go through; otherwise it's oral ttradition d:
+  [ ] https://sanskritguide.com/the-nature-of-sanskrit/
+  [ ] https://sanskritguide.com/the-consonants-overview/
 [ ] more scripts; indic eye training, but also (south)east asian scripts
 [ ] more stroke orders; i'm going to bruteforce it anyway
 [ ] more pronounciations; i'm going to bruteforce it anyway
