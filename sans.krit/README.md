@@ -89,11 +89,12 @@ how i want to learn sanskrit
   s/retroflex/murdhanya/ is curled back (flattened underside touching roof), straight back (tippy tongue), vertical (tippy tongue), straight forward (tippy tongue), curled forward (flattened topside touching roof),.?
   s/retroflex/murdhanya/ ṣ air lhs, both, rhs?
   ś air lhs, both, rhs?
-  extreme /accentheor(y|em)/; derived from kritical point
+  extreme /accentheor(y|em)/; derived from kritikal point
    k is a parabolick tongue until t; that t is probably therefore k #critical. #𝄞3.
     they only sound different from acoustic dynamics; k is extreme
    t is extreme at teeth
    ṭ is extreme; bending over backwards
+   t, criṭical poinṭ, ṭ #verticality
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
