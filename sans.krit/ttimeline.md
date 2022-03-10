@@ -31,7 +31,7 @@
  https://www.youtube.com/channel/UCTyGM2iA893vccQEStFzKCQ/videos
   iff only i knew what he was saying; or even the language
  https://www.youtube.com/playlist?list=PLiFTimUealiN-_8m_0ehjKWNQm73_Ay6z
-  /westerners|prakrits|monsoons|earthquakes|fires|../ are to blame for every"-thing"; barren backwards language (in)comparison, we invented boustrophedon, we invented roman numerals,..
+  /westerners|prakrits|monsoons|earthquakes|fires|../ are to blame for every"-thing"; barren backwards language (in)comparison, we invented boustrophedon (life is a game of snakes, and ladders; sanskritic is poetic), we invented roman numerals,..
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Shankhalipi
  ornate brahmi; calligraphy?
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Indus_script
