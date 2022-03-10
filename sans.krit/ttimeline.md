@@ -45,6 +45,7 @@
 [[535,518],323]bce https://en.wikipedia.org/wiki/Achaemenid_conquest_of_the_Indus_Valley
 𝘺𝘰𝘨𝘪[3ʳᵈ,2ⁿᵈ]bce https://en.wikipedia.org/wiki/Pingala
 [304,232]bce https://en.wikipedia.org/wiki/Ashoka
+ ash oak (c)a(nd)
 [356,323]bce https://en.wikipedia.org/wiki/Alexander_the_Great
 [327,325]bce https://en.wikipedia.org/wiki/Indian_campaign_of_Alexander_the_Great
 [150bce,400ce] https://en.wikipedia.org/wiki/Invasion_of_India_by_Scythian_Tribes
@@ -92,7 +93,8 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  it's laughable they started a war over this; what is their argument? their ancestors migrated into india, and became the indians today (assimilation; resistance is futile, we are the s/iskcon/ritviks (could be me in the future)?/), but what does that have to do c̄ anyone else? all the aryans migrated to india! they don't even learn the aryan language; prehistoric prakrit, ancient prakrit, old prakrit, middle prakrit, new prakrit, texting prakrit,.; the same can probably be said of every other prakrit #idiocracy
  the wealth of india is just so (in)valuable; westerners will jump down a s(t)inkhole into the depths of hell for it
  abrah(a)m(ā), Abram; eitherway, the wraparound a(ce) #negation #schwa_negation
-  all prakrits lead to sanskrit
+  all prakrits lead to (secret∘)sanskrit
+ we want your yogic powers v we'll turn over every leaf, and every stone, to destroy your magic before it destroys us; barking up the wrong tree, as we speak our minds into the sands of s(hyams')space, and ttime; while observationally³ pen-testing our propaganda by pulling your strings like a puppet #social_engineering #easterners
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
