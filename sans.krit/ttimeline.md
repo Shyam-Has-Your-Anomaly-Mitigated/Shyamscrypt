@@ -91,6 +91,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  i already accept the abrahamic fact white people, along c̄ everyone else, originated from india; and the fact the followers of abraham, along c̄ atheists, wiped out their genetic intelligence; and that leaves hindus as the dominant master race of humanity; but we know there are more superior races than humanity, like we've always known about spherical planets, and that the 'verse(s) probably don't revolve around here (but maybe somewhere else, per /haps|chance|se|cent|..?/?) #snowglobe
  it's laughable they started a war over this; what is their argument? their ancestors migrated into india, and became the indians today (assimilation; resistance is futile, we are the s/iskcon/ritviks (could be me in the future)?/), but what does that have to do c̄ anyone else? all the aryans migrated to india! they don't even learn the aryan language; prehistoric prakrit, ancient prakrit, old prakrit, middle prakrit, new prakrit, texting prakrit,.; the same can probably be said of every other prakrit #idiocracy
  the wealth of india is just so (in)valuable; westerners will jump down a s(t)inkhole into the depths of hell for it
+ abrah(a)m(ā), Abram; eitherway, the wraparound a(ce) #negation #schwa_negation
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
