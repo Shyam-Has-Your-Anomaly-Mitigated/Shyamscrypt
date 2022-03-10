@@ -96,6 +96,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  abrah(a)m(ā), Abram; eitherway, the wraparound a(ce) #negation #schwa_negation
   all prakrits lead to (secret∘)sanskrit
  we want your yogic powers v we'll turn over every leaf, and every stone, to destroy your magic before it destroys us; barking up the wrong tree, as we speak our minds into the sands of s(hyams')space, and ttime; while observationally³ pen-testing our propaganda by pulling your strings like a puppet #social_engineering #easterners
+ hey lets go warship these westerners for their photographic propaganda that we superposition as evidence of their karma we're nicking; we cam't lose!!! :D
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
