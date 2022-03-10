@@ -26,6 +26,12 @@
  i have yet to find stroke order, but gujarati is a breadcrumb; i want cooked rice
   https://link.springer.com/chapter/10.1007%2F978-94-011-1162-1_17
  ankita roy' brahmi: rediscovering the lost script
+ tamil-brahmi
+ slanting brahmi
+ https://www.youtube.com/channel/UCTyGM2iA893vccQEStFzKCQ/videos
+  iff only i knew what he was saying; or even the language
+𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Shankhalipi
+ ornate brahmi; calligraphy?
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Indus_script
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/Gautama_Buddha
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/P%C4%81%E1%B9%87ini
