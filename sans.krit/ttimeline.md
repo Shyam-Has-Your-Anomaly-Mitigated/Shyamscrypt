@@ -30,13 +30,21 @@
  slanting brahmi
  https://www.youtube.com/channel/UCTyGM2iA893vccQEStFzKCQ/videos
   iff only i knew what he was saying; or even the language
+ https://www.youtube.com/playlist?list=PLiFTimUealiN-_8m_0ehjKWNQm73_Ay6z
+  /westerners|prakrits|monsoons|earthquakes|fires|../ are to blame for every"-thing"; barren backwards language (in)comparison, we invented boustrophedon, we invented roman numerals,..
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Shankhalipi
  ornate brahmi; calligraphy?
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Indus_script
+ http://www.safarmer.com/indus/prize.html
+  http://www.safarmer.com/fsw2.pdf
+  http://www.safarmer.com/downloads/
+  http://www.safarmer.com/indus/simpleproof.html
+   the (indus-brahmi) millenia anomaly; tampering c̄ evidence? #egyptian_control
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/Gautama_Buddha
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/P%C4%81%E1%B9%87ini
 [[535,518],323]bce https://en.wikipedia.org/wiki/Achaemenid_conquest_of_the_Indus_Valley
 𝘺𝘰𝘨𝘪[3ʳᵈ,2ⁿᵈ]bce https://en.wikipedia.org/wiki/Pingala
+[304,232]bce https://en.wikipedia.org/wiki/Ashoka
 [356,323]bce https://en.wikipedia.org/wiki/Alexander_the_Great
 [327,325]bce https://en.wikipedia.org/wiki/Indian_campaign_of_Alexander_the_Great
 [150bce,400ce] https://en.wikipedia.org/wiki/Invasion_of_India_by_Scythian_Tribes
@@ -75,13 +83,14 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 23:59 is an interesting ttime; 12400 could be the end (2419 from my name; probably when i get bored, and rewrite every"-thing" all over again #meta)
 
 the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
- why would aryansanskrits not support this theory? it's so airheaded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
+ why would aryansanskrits not support this theory? it's so weakminded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
  indian migration theory; bodhidharma, the shaolin abbotts translator, buddha,..
  china v taiwan
  any genetic evidence that westerners migrated can't prove they also called themselves aryans, nor had any"-thing" to do c̄ hinduism; besides pilgrimmaging the holy land as converts from indian migration theory, or bringing no"-thing" other than conflict; attempting forced conversion, theft,..
  why the westerners want to claim hinduism is anyones' best guess; their' claim that they're all going to hell is undisputed, and it's admirable they are recognising our superiority, and questionable why they don't join us, but i guess all that remains, however improbable, must be the truth #karmi(e)s #mayavadi(e)s #..
  i already accept the abrahamic fact white people, along c̄ everyone else, originated from india; and the fact the followers of abraham, along c̄ atheists, wiped out their genetic intelligence; and that leaves hindus as the dominant master race of humanity; but we know there are more superior races than humanity, like we've always known about spherical planets, and that the 'verse(s) probably don't revolve around here (but maybe somewhere else, per /haps|chance|se|cent|..?/?) #snowglobe
  it's laughable they started a war over this; what is their argument? their ancestors migrated into india, and became the indians today (assimilation; resistance is futile, we are the s/iskcon/ritviks (could be me in the future)?/), but what does that have to do c̄ anyone else? all the aryans migrated to india! they don't even learn the aryan language; prehistoric prakrit, ancient prakrit, old prakrit, middle prakrit, new prakrit, texting prakrit,.; the same can probably be said of every other prakrit #idiocracy
+ the wealth of india is just so (in)valuable; westerners will jump down a s(t)inkhole into the depths of hell for it
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
