@@ -25,6 +25,7 @@
  https://heritage-india.com/brahmi-the-divine-script/
  i have yet to find stroke order, but gujarati is a breadcrumb; i want cooked rice
   https://link.springer.com/chapter/10.1007%2F978-94-011-1162-1_17
+  no internet,.; biopiracy? hey fellowesterners, https://youtu.be/9ZVwJfkM0Eg
  ankita roy' brahmi: rediscovering the lost script
  tamil-brahmi
  slanting brahmi
