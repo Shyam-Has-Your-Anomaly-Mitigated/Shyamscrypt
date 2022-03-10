@@ -26,6 +26,8 @@
  i have yet to find stroke order, but gujarati is a breadcrumb; i want cooked rice
   https://link.springer.com/chapter/10.1007%2F978-94-011-1162-1_17
   no internet,.; biopiracy? hey fellowesterners, https://youtu.be/9ZVwJfkM0Eg
+   https://youtu.be/j9hzK0K1L4I
+    korea stole features∘sound over a millenia, and a half, after panini invented it; i'm planning to take the korean iq test, one day…
  ankita roy' brahmi: rediscovering the lost script
  tamil-brahmi
  slanting brahmi
@@ -33,6 +35,11 @@
   iff only i knew what he was saying; or even the language
  https://www.youtube.com/playlist?list=PLiFTimUealiN-_8m_0ehjKWNQm73_Ay6z
   /westerners|prakrits|monsoons|earthquakes|fires|../ are to blame for every"-thing"; barren backwards language (in)comparison, we invented boustrophedon (life is a game of snakes, and ladders; sanskritic is poetic), we invented roman numerals,..
+  https://www.youtube.com/watch?v=PdO3IP0Pro8&list=PLc4s09N3L2h3HtaAYVqOVKGt2h6wRasw2&index=14
+   we invented rote, but hash∘hashes is ganġa; like memorising over a thousand letterlugical ligatures
+   monogenesisanskrit
+   a 𝘺𝘰𝘨𝘪 probably travelled to ethiopia to hide shyamantaka; i hear they have perfect weather, like shangrila
+   do the koreans know of panini (ordering)? they stole it from us!
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Shankhalipi
  ornate brahmi; calligraphy?
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Indus_script
@@ -41,6 +48,7 @@
   http://www.safarmer.com/downloads/
   http://www.safarmer.com/indus/simpleproof.html
    the (indus-brahmi) millenia anomaly; tampering c̄ evidence? #egyptian_control
+   sanskrit v prakrit; indushankhalipi must consider thisignificance
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/Gautama_Buddha
 𝘺𝘰𝘨𝘪[6ᵗʰ,4ᵗʰ]bce https://en.wikipedia.org/wiki/P%C4%81%E1%B9%87ini
 [[535,518],323]bce https://en.wikipedia.org/wiki/Achaemenid_conquest_of_the_Indus_Valley
@@ -60,6 +68,8 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
   this was mostly for the [9][11], but anu-skrt1002@oua says there's 49 letters; not including numerals
  https://davidya.ca/wp-content/uploads/2014/09/Sanskrit-Devanagari.pdf
   one day i'll track all these changes down
+ https://youtu.be/ckCMuSkauhU
+  there's over a thousand letters
 𝘺𝘰𝘨𝘪[476,550]ce https://en.wikipedia.org/wiki/Aryabhata
 𝘺𝘰𝘨𝘪[5ᵗʰ,6ᵗʰ]ce https://en.wikipedia.org/wiki/Bodhidharma
 [570,632]ce https://en.wikipedia.org/wiki/Muhammad
