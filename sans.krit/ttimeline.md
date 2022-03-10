@@ -94,7 +94,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  it's laughable they started a war over this; what is their argument? their ancestors migrated into india, and became the indians today (assimilation; resistance is futile, we are the s/iskcon/ritviks (could be me in the future)?/), but what does that have to do c̄ anyone else? all the aryans migrated to india! they don't even learn the aryan language; prehistoric prakrit, ancient prakrit, old prakrit, middle prakrit, new prakrit, texting prakrit,.; the same can probably be said of every other prakrit #idiocracy
  the wealth of india is just so (in)valuable; westerners will jump down a s(t)inkhole into the depths of hell for it
  abrah(a)m(ā), Abram; eitherway, the wraparound a(ce) #negation #schwa_negation
-  all prakrits lead to (secret∘)sanskrit
+  all prakrits lead to ((vatican)secret('chives)∘)sanskrit
  we want your yogic powers v we'll turn over every leaf, and every stone, to destroy your magic before it destroys us; barking up the wrong tree, as we speak our minds into the sands of s(hyams')space, and ttime; while observationally³ pen-testing our propaganda by pulling your strings like a puppet #social_engineering #easterners
  hey lets go warship these westerners for their photographic propaganda that we superposition as evidence of their karma we're nicking; we cam't lose!!! :D
 
