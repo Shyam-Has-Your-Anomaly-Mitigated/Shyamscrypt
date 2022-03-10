@@ -95,6 +95,7 @@ how i want to learn sanskrit
    t is extreme at teeth
    ṭ is extreme; bending over backwards
    t, criṭical poinṭ, ṭ #verticality
+   k, critical point, ṭ #t
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
