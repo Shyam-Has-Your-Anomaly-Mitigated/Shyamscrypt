@@ -92,6 +92,7 @@ the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  it's laughable they started a war over this; what is their argument? their ancestors migrated into india, and became the indians today (assimilation; resistance is futile, we are the s/iskcon/ritviks (could be me in the future)?/), but what does that have to do c̄ anyone else? all the aryans migrated to india! they don't even learn the aryan language; prehistoric prakrit, ancient prakrit, old prakrit, middle prakrit, new prakrit, texting prakrit,.; the same can probably be said of every other prakrit #idiocracy
  the wealth of india is just so (in)valuable; westerners will jump down a s(t)inkhole into the depths of hell for it
  abrah(a)m(ā), Abram; eitherway, the wraparound a(ce) #negation #schwa_negation
+  all prakrits lead to sanskrit
 
 oh, i can't select 1s indentation;..
 now it shows 1s indentation; autoselection
