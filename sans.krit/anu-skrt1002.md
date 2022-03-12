@@ -139,3 +139,11 @@ namo namaḥ ।
 What is our saṃskṛta saṃpradāya? In section 2 of The Joy Of Sanskrit, you mention Dr Sadananada Das. In the lectures you mention other names; including Raghavs' father?
 Given most other Westerners are considered apabhraṃśa saṃpradāya, and the historical attacks by the followers of Abraham, and the pronunciation discrepancies (at least three different ṛ in kṛṣṇa, at least two different v in viṣṇu, and śiva; although Viswanatha throws a spanner into the works); I wouldn't be surprised if some saṃskṛta saṃpradāya led to Muslims taking advantage of oral tradition, since Muḥammad was over a millenia ago, or some saṃskṛta saṃpradāya led to Christians taking advantage of oral tradition, since Egenes refers to Jesuit missionaries before the 1800s; an interesting century (can't help but notice they also started publishing Western saṃskṛta books during that time, but only after their missionaries failed, otherwise saṃskṛta, as the final stand for polytheists, would've gone the way of the Egyptians who were still around the time of Jesus, Julius Caesar, Cleopatra, and Alexander; Western apabhraṃśa pronunciation was just a drop in the bucket, but karma is our mokṣa, and their dhik! LOL).
 punar milāmaḥ ॥
+
+Re: saṃpradāya
+by Shyam Nath - Sunday, 13 March 2022, 12:39 AM
+namo namaḥ ।
+The prophecy of rākṣasa born into brāhmaṇa families comes to mind (when I was the gopa of New Gokula; a visitor claimed to be brāhmaṇa by birth, and said he ate animals, someone said as long as no cows, but he replied with whatever tastes good); rākṣasāḥ kalim-āśritya jāyante brahma-yoniṣu (varāha purāṇa).
+There's another prophecy of brāhmaṇa being hunted in the streets by rākṣasa like animals, but I haven't found it yet; the followers of Abraham are a possibility, but the future is in a superposition, so who can say for sure?
+TIL: https://en.wikipedia.org/wiki/Brahmarakshasa
+punar milāmaḥ ॥
