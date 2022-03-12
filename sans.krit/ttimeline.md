@@ -5,6 +5,24 @@
   [ ] https://sanskritguide.com/the-nature-of-sanskrit/
   [ ] https://sanskritguide.com/the-consonants-overview/
 [ ] more scripts; indic eye training, but also (south)east asian scripts
+ https://en.wikipedia.org/wiki/Sanskrit#Other_writing_systems
+  Gujarati, Bangla, Odia and major south Indian scripts
+  Brahmi script
+   * i'm graphically drawn to my audible calling; i'm audibly called to my graphical drawing
+  The Sanskrit language written in some Indic scripts exaggerate angles or round shapes, but this serves only to mask the underlying similarities.
+  Nagari script favours symmetry set with squared outlines and right angles.
+   * i'm graphically drawn to my audible calling; i'm audibly called to my graphical drawing
+  In contrast, Sanskrit written in the Bangla script emphasizes the acute angles
+  while the neighbouring Odia script emphasizes rounded shapes and uses cosmetically appealing "umbrella-like curves" above the script symbols.
+  In the south, where Dravidian languages predominate, scripts used for Sanskrit include the Kannada, Telugu, Malayalam and Grantha alphabets.
+ https://en.wikipedia.org/wiki/Ola_leaf
+  Sinhala letters are round-shaped and are written from left to right. They are the most circular-shaped script found in the Indic scripts.
+   https://en.wikipedia.org/wiki/Sinhala_script
+    It is also related to ancient Kannada script (see Kadamba script).
+     https://en.wikipedia.org/wiki/Kadamba_script
+      https://en.wikipedia.org/wiki/Kannada_script#Writing_order
+       * i'm graphically drawn to my audible calling; i'm audibly called to my graphical drawing
+ play the blame game for wikidates
 [ ] more stroke orders; i'm going to bruteforce it anyway
 [ ] more pronounciations; i'm going to bruteforce it anyway
 
