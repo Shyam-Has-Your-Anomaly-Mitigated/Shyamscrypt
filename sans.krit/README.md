@@ -78,8 +78,8 @@ how i want to learn sanskrit
   𝄞everyday; lipikara c̄out looking, then /look|trace (printer required|paper to window (manager)?)?/, then freehand; while chanting the pronounciation
    to be fair; i should do this c̄ every langauge, and improve my handwriting #art_styles
     only for brahmi (point of origin), devanagari (sanskrit wikipedia; i think),.; maybe even /(south)?east/ scripts, but indic eye training is my higher priority
-    swastika, om, anjali,.; where do these come from? indus script! #cryptic_breadcrumbs
-    yantra, mantra, mudra,..
+    swastika, om, /anjali|shikara/, padmasana,.; where do these come from? indus script! #cryptic_breadcrumbs
+    yantra, mantra, mudra, asana,.. #/interpretive|communicative/_dance
  shiva-agni /(maha|alpa)-prana|aspiration/
   candle lit(,) ganja incense,.; smoke, and mirrors #fog
  /ghosavat|aghosa|vocal (chords)?/
