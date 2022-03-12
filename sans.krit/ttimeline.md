@@ -4,7 +4,7 @@
  these are probably the only places i have yet to go through; otherwise it's oral ttradition d:
   [ ] https://sanskritguide.com/the-nature-of-sanskrit/
   [ ] https://sanskritguide.com/the-consonants-overview/
-[ ] more scripts; indic eye training, but also (south)east asian scripts
+[ ] more scripts; indic eye training, but also (south)east asian scripts #hindu_extremist
  https://en.wikipedia.org/wiki/Sanskrit#Other_writing_systems
   Gujarati, Bangla, Odia and major south Indian scripts
   Brahmi script
