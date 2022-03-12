@@ -11,7 +11,7 @@ we learned turing-complete sanskrit is all that remains after the /entropic|nois
    07 = /dwarve(s|n)/; shorter than elves
    09 = giants; biggest s/hindu numeral/digit|w?hole (hindu (number|symbol∘continuity))?/ #smatters
    11 = /elve(n|s)/; up a notch
-   /66\.?6/ = /yoda|grogu/; maybe super saiyan power levels are good mnemonics?
+   /66\.?6/ = /yoda|grogu/; maybe super saiyan power levels are good mnemonics? pokedex!
  handstanding usd pushups = holding up the world #contrafibularities
  security evaluation returns an impressive list of vulnerabilities resulting in no"-thing" being done about the overexpensive implementations that would provide a feedback loop of vulnerabilities requiring security analysis; formal methods is only a single feature; homoiconic meta wins
  b movers are a significant factor for observational measurements; fast for ≥72h, until no b movers, and that is the true value
