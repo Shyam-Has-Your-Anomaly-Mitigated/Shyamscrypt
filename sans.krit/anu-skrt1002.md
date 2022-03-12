@@ -155,5 +155,5 @@ The second prophecy: "As the 10,000 year period of the Golden Age within Kali-yu
 The Human Era is about 12,000 years old; based on the oldest known temple (probably; Kurzgesagt called it "The First Temple").
 It's funny how Jesus was born at a time when all other pagans, on all continents, were dually either destroyed, or to be destroyed; I'm so Hindu, I'm blindly intoxicated by it!!! :D
 I can relate to the Jedi (memory mind tricks); saṃskṛta is the spoken force (measured in decibels; or maybe it's the dark matter that holds it all together?), and self-realisations of enlightenment our lightsayer (formal logical reasoning).
-Life is too short, and all is temporary; saṃskṛta is my only goal (Loglan, Lojban, and Prolog, are all prākṛta; who needs definite clause grammars? or maybe saṃskṛta…).
+Life is too short, and all is temporary; saṃskṛta is my only goal (Loglan, Lojban, and Prolog, are all prākṛta; who needs definite clause grammars? or maybe saṃskṛta..).
 punar milāmaḥ ॥
