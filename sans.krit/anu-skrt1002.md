@@ -41,3 +41,101 @@ sanskrit is the mother of all languages; even if aryan invasion theorists deny i
  archæological prospecting is as good as a divining rod
 mudrā = kinesthetic learning
 muhūrta = 48m; humans are only able to concentrate on some"-thing" for one muhūrta
+
+above was from the first week lecture
+
+Re: Devanagari: ṛ and ṝ
+by Shyam Nath - Sunday, 6 March 2022, 12:14 PM
+Maybe it's the old style like a (अ), and ā (आ), from the first week, and o (ओ), and au (औ), from this week? I can't even find Unicode for Egenes' devanāgarī, nor your' devanāgarī; but it looks like Omniglot uses your' devanāgarī. I checked devanāgarī, and nandināgarī, Unicodes; Unicode doesn't appear to support nāgarī (if it does; Wikipedia doesn't know about it yet), but it does support brāhmī (which is older than nāgarī, so I'm disappointed they don't support nāgarī).
+https://en.wikipedia.org/wiki/Devanagari#Unicode
+https://en.wikipedia.org/wiki/Nandinagari_(Unicode_block)
+https://omniglot.com/writing/sanskrit.htm
+
+Re: Devanagari: ṛ and ṝ
+by Shyam Nath - Sunday, 6 March 2022, 12:47 PM
+Maybe it's like Bāḷabōdha; "a slightly modified style of the Devanagari script used to write the Marathi language and the Korku language".
+https://en.wikipedia.org/wiki/Balbodh
+
+Re: Devanagari: ṛ and ṝ
+by Shyam Nath - Sunday, 6 March 2022, 8:28 PM
+Wikipedia indicates Egenes' a (अ) is ancient; does that mean they're vedic? Because we're learning classic first.
+https://en.wikipedia.org/wiki/Devanagari#Old_forms
+I just noticed the Chandas font supports Siddharthas' ṛ (ओ) and ṝ (औ); I wonder if it was made in the 90s…
+https://en.wikipedia.org/wiki/Chandas_(typeface)
+
+Re: Devanagari: ṛ and ṝ
+by Shyam Nath - Monday, 7 March 2022, 9:38 AM
+https://davidya.ca/wp-content/uploads/2014/09/Sanskrit-Devanagari.pdf
+That document suggests there is a modern style, but it's missing आ (ā), and ओ (o), and their ल (ḷ) has a different stroke order; so they must be ultramodern styles from the neoteric lipikara.
+
+Re: Devanagari Keyboard
+by Shyam Nath - Thursday, 10 March 2022, 7:12 PM
+What do we use for Linux? So far I've tried compose key, unicode input (shift+ctrl+u 221a=√), copy, and paste.
+
+Textbooks.
+by Shyam Nath - Thursday, 10 March 2022, 8:46 PM
+Number of replies: 0
+Are there any other books for all 10 saṃskṛta courses ANU has to offer besides these?
+A Sanskrit Grammar For Students by MacDonell (9ᵗʰ edition); I assume this is the one we need.
+A Vedic Grammar For Students by MacDonell (5ᵗʰ edition); I don't know if we need this one?
+Sanskrit Grammar by Whitney (12ᵗʰ edition); I'll probably get the hard cover, but the design looks like it suits paper back.
+A Sanskrit Reader: Text, Vocabulary And Notes by Lanman (6ᵗʰ edition); I don't know if we need this one? I found it on the OUA website.
+So far, I found them all at mlbdbook.com; so that's where I'm going to order them once they figure out Egenes' Introduction To Sanskrit (revised international edition; they used to have about 10 different pages, then I sent an email about it, they didn't respond, but I checked, and they reduced it to two pages per book, then I sent an email about the first book; the paper back listed 408 pages, while the hard cover listed 386 pages; they didn't respond, but I checked now, and it looks like they merged them into one page, but it only lists the paper back price for one book; maybe it'll stay that way as a new discount, but I don't think so; they're not very communicative, at all; so I don't know if any of these changes to their website are from my emails, and their chat system didn't work before I started emailing them).
+I just realised both of MacDonells' books have both paper back, and hard cover; but they are merged into a single page, with one price, and no way to select which one; like Egenes…
+
+I'm preparing to memorise all saṃskṛta, but I'm missing this, and can't find it anywhere.
+by Shyam Nath - Friday, 11 March 2022, 6:37 AM
+Number of replies: 0
+namo namaḥ
+Can you provide the melody for deśādhikārābhijñā? Including how to say its' name?
+punar milāmaḥ
+
+Week 2
+by Shyam Nath - Friday, 11 March 2022, 6:31 AM
+Number of replies: 2
+namo namaḥ
+    During meditation, I noticed the pattern of nouns ending in am from Spoken Sanskrit, and I think √jal is the root, and jala is the stem, for jalam; so jalamami is aśuddham, but jalāmi is śuddham? (I am literally 3 quarters water, and majority rounds up, but it could be figuratively poetic; like in Zuì Quán.)
+    The indeclinability of kutra; means kutrāsi is aśuddham, but kutra bhavasi is śuddham?
+    kim is saṃskṛta, but ki is not? What is the response to makkomas kim? jayati! (So far every Vocabulary section of The Joy Of Sanskrit ends with makkomas-sūtras; I haven't looked at Week 3, yet.)
+    Is everything valid in saṃskṛta, but left to interpretation, as long as you follow the rules? I've been making assumptions about saṃdhi.
+punar milāmaḥ
+
+i guess indentation means numbered list? for now it does, until otherwise; unless i forget
+
+Re: Week 2
+by Shyam Nath - Saturday, 12 March 2022, 11:01 AM
+namo namaḥ
+1. toyaṁ bhavāmi is how I think you say "I am water.", and patraṁ jalāmi might be "I water a leaf."; Wikipedia says saṃskṛta is Subject-Object-Verb, but I haven't checked the references.
+2. smarāmi ca śuddham bhavāmi ca; I am no longer sure that only, nor all, nouns end in am, like uttamam, śuddham, and aśuddham.
+3. After watching the second lecture; I think ki, and jaya, might be synonymous; like toyaṁ, and patraṁ, from BG9.26.
+4. smarāmi could be interpreted as "I think"; much to learn, I still have.
+punar milāmaḥ
+
+Re: Week 2
+by Shyam Nath - Saturday, 12 March 2022, 12:03 PM
+namo namaḥ
+kim akurvata sañjaya; I remember that from BG1.1, from when I first, and last, attempted to memorise the bhagavad-gītā (I didn't get very far, but now I'm learning saṃskṛta so I don't need to memorise the Roman, nor word-for-word, nor English); and it's the only place, in the city of the gods, where I can remember what first.
+punar milāmaḥ
+
+I just learned that devanāgarī has over a thousand letters‽
+by Shyam Nath - Thursday, 10 March 2022, 7:04 PM
+Number of replies: 1
+I'm expecting to memorise over a thousand devanāgarī letters‽
+https://youtu.be/ckCMuSkauhU
+I think pāṇini beat the Koreans at features of sound; I'm interested to take the Korean IQ test, one day… (Maybe next Tuesday, but I want to get ahead of this course by a week, and find time to memorise all the saṃskṛta; so maybe a Tuesday after that, assuming it'll only take a morning; but maybe i need to get ahead of myself by a week, and 10 days…)
+https://youtu.be/j9hzK0K1L4I
+
+Re: I just learned that devanāgarī has over a thousand letters‽
+by Shyam Nath - Saturday, 12 March 2022, 5:43 PM
+namo namaḥ ।
+https://www.type-together.com/devanagari-type-anatomy
+That website also has type anatomy for Greek, Hebrew, Arabic, and Portuguese (Estereográfica?).
+punar milāmaḥ ॥
+
+saṃpradāya
+by Shyam Nath - Saturday, 12 March 2022, 11:12 PM
+Number of replies: 0
+namo namaḥ ।
+What is our saṃskṛta saṃpradāya? In section 2 of The Joy Of Sanskrit, you mention Dr Sadananada Das. In the lectures you mention other names; including Raghavs' father?
+Given most other Westerners are considered apabhraṃśa saṃpradāya, and the historical attacks by the followers of Abraham, and the pronunciation discrepancies (at least three different ṛ in kṛṣṇa, at least two different v in viṣṇu, and śiva; although Viswanatha throws a spanner into the works); I wouldn't be surprised if some saṃskṛta saṃpradāya led to Muslims taking advantage of oral tradition, since Muḥammad was over a millenia ago, or some saṃskṛta saṃpradāya led to Christians taking advantage of oral tradition, since Egenes refers to Jesuit missionaries before the 1800s; an interesting century (can't help but notice they also started publishing Western saṃskṛta books during that time, but only after their missionaries failed, otherwise saṃskṛta, as the final stand for polytheists, would've gone the way of the Egyptians who were still around the time of Jesus, Julius Caesar, Cleopatra, and Alexander; Western apabhraṃśa pronunciation was just a drop in the bucket, but karma is our mokṣa, and their dhik! LOL).
+punar milāmaḥ ॥
