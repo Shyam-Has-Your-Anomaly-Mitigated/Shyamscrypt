@@ -155,5 +155,47 @@ The second prophecy: "As the 10,000 year period of the Golden Age within Kali-yu
 The Human Era is about 12,000 years old; based on the oldest known temple (probably; Kurzgesagt called it "The First Temple").
 It's funny how Jesus was born at a time when all other pagans, on all continents, were dually either destroyed, or to be destroyed; I'm so Hindu, I'm blindly intoxicated by it!!! :D
 I can relate to the Jedi (memory mind tricks); saṃskṛta is the spoken force (measured in decibels; or maybe it's the dark matter that holds it all together?), and self-realisations of enlightenment our lightsayer (formal logical reasoning).
-Life is too short, and all is temporary; saṃskṛta is my only goal (Loglan, Lojban, and Prolog, are all prākṛta; who needs definite clause grammars? or maybe saṃskṛta..).
+Life is too short, and all is temporary; saṃskṛta is my only satisfiable goal (Loglan, Lojban, and Prolog, are all prākṛta; who needs definite clause grammars? or maybe saṃskṛta..).
+punar milāmaḥ ॥
+
+Re: lesson 3 exercises
+by Shyam Nath - Sunday, 13 March 2022, 12:57 PM
+namo namaḥ ।
+The parsing codes are abbreviations of the classifications.
+Classification: gacchati is present indicative, active, third person, singular.
+Abbreviation, or parsing code: gacchati is pres. indic. act. 3ʳᵈ per. sing.
+I think it's like Latin names (binomial nomenclature, or scientific name; but they're completely arbitrary); I learned about this in Science Of Gardening by UTAS; it was made up by Carl von Linné so he could attach his Latin name Linnaeus at the end of over 9000 species of plants that were already known by common names, and is the most obnoxious case of biopiracy, and job fraud, I'm aware of; like Cat in Red Dward, mama tat, and mama etat, were his catchphrases.
+punar milāmaḥ ॥
+
+Re: Another Lesson 3 Exercise Question
+by Shyam Nath - Sunday, 13 March 2022, 1:29 PM
+namo namaḥ ।
+I don't think parsing codes are meant to be spoken.
+punar milāmaḥ ॥
+
+Re: Vocabulary in Text Format
+by Shyam Nath - Sunday, 13 March 2022, 10:10 PM
+namo namaḥ ।
+These are all my transliterations I copy, and paste; I'm thinking about memorising their Unicodes like I did for: √
+Roman: āīūṛṝḷṅñṭḍṇśṣṃḥ
+Vedic: ẖḫ
+I've only encountered this in all the weekly verses so far ("On Practice", "On Ornaments", and "Here, there and everywhere"); no where else, yet: ṁ
+punar milāmaḥ ॥
+
+Nand
+by Shyam Nath - Sunday, 13 March 2022, 1:48 PM
+Number of replies: 1
+namo namaḥ ।
+    A na ca B = A and (not B)?
+    A na ca, and the B is attached to the na?
+    So gacchāmi ca na ca gacchati is the same?
+    gacchāmi (na gacchati) ca?
+punar milāmaḥ ॥
+
+Picture of Shyam Nath
+In reply to Shyam Nath
+Re: Nand
+by Shyam Nath - Sunday, 13 March 2022, 3:20 PM
+namo namaḥ ।
+5. na ca pṛcchati na ca vadati = na pṛcchati na ca vadati?
 punar milāmaḥ ॥
