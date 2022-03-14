@@ -207,3 +207,23 @@ Bhagavad-Gītā As It Is includes saṃpradāya in the beginning; also a pronunc
 Bablu Das' mṛdaṅga book mentions four saṃpradāya; writing, "Mandarini is no longer pure and is not accepted by our acariyas".
 Now I think of saṃskṛta, and I believe it to be a matter of import. All our fears made true. All is porous. All is broken. I must retrace. There's so much work to be done. Iff my experience holds true. Oh, this confounded situation. (http://www.chakoteya.net/DoctorWho/39-2.html)
 punar milāmaḥ ॥
+
+Re: I just learned that devanāgarī has over a thousand letters‽
+by Shyam Nath - Monday, 14 March 2022, 8:15 PM
+namo namaḥ ।
+छजक
+I just recognised my first saṃskṛta!!! :D
+https://en.wikipedia.org/wiki/Bakhshali_manuscript
+Now I know how they did it; how they know how they know what they know about it ∵ I don't know śāradā, yet.
+I feel like Neo in The Matrix, seeing the code of the melodic multiverse; I can read saṃskṛta!
+punar milāmaḥ ॥
+
+Re: saṃpradāya
+by Shyam Nath - Monday, 14 March 2022, 9:34 PM
+namo namaḥ ।
+dhanyavādaḥ ।
+punar milāmaḥ ॥
+
+and i never posted in (student) forums ever again; unless it's graded
+i'll continue to read them, and answer other students questions; but keep them to myself
+i'm a (real) hacker; i satisfy my own querious goals in life
