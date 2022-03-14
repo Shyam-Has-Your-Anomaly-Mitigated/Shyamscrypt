@@ -205,5 +205,5 @@ by Shyam Nath - Monday, 14 March 2022, 4:41 PM
 namo namaḥ ।
 Bhagavad-Gītā As It Is includes saṃpradāya in the beginning; also a pronunciation guide in the back, but I couldn't find this online, and my copy of the first edition is in a box somewhere (the only edition authorised by prabhupāda; if I ever get initiated, it'll be ṛtvik; I'm following in his footsteps by being educated by a Westerner; you wouldn't happen to be Scottish, /and|or/ Christian, in some way? https://vedabase.io/en/library/spl/1/2/).
 Bablu Das' mṛdaṅga book mentions four saṃpradāya; writing, "Mandarini is no longer pure and is not accepted by our acariyas".
-Now I think of saṃskṛta, and I believe it to be a matter of import. All our fears made true. All is porous. All is broken. I must retrace. There's so much work to be done. Iff my experience holds true. Oh, this confounded situation.
+Now I think of saṃskṛta, and I believe it to be a matter of import. All our fears made true. All is porous. All is broken. I must retrace. There's so much work to be done. Iff my experience holds true. Oh, this confounded situation. (http://www.chakoteya.net/DoctorWho/39-2.html)
 punar milāmaḥ ॥
