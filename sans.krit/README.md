@@ -134,3 +134,8 @@ responses embed what they are responding to; the science of dice in mahabharata 
 names (mine), om, maha mantra,.; one verse can lead to every verse, as all roads lead to sanskrit #parity
 self-answering queries
 all other languages are prakrit
+
+i just discovered another secret∘sanskrit; spiralling coils of self-replicating dna ∘ colourful water dragon #reincarn@3 #reinmut@3 #reinvent@3
+swastika stones; egyptian scuff marks the spot #scratchies #nepalese
+hindu /extremist|supremacist|literalist/ #terrorist
+bank interest is my $econd $ource of income
