@@ -96,6 +96,7 @@ how i want to learn sanskrit
    ṭ is extreme; bending over backwards
    t, criṭical poinṭ, ṭ #verticality
    k, critical point, ṭ #t
+  duality: brahmacari = singular, grhastha = dual, sannyas = plural
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
