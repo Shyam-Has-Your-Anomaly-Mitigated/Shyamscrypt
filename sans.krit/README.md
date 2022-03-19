@@ -97,7 +97,7 @@ how i want to learn sanskrit
    t, criṭical poinṭ, ṭ #verticality
    k, critical point, ṭ #t
   duality: brahmacari = singular, grhastha = dual, sannyas = plural
-  unkown gender? use masculine by default; deva as a plural is usually inclusive of devi, just like "the gods" is usually inclusive of goddess
+  unkown gender? use masculine by default; deva as a plural is usually inclusive of devi, just like "the gods" is usually inclusive of goddess; third gender is probably too specific, and rarer, even iff it does exist for every genderisation
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
