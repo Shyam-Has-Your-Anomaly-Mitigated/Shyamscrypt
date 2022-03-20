@@ -80,6 +80,8 @@ how i want to learn sanskrit
     only for brahmi (point of origin), devanagari (sanskrit wikipedia; i think),.; maybe even /(south)?east/ scripts, but indic eye training is my higher priority
     swastika, om, /anjali|shikara/, padmasana,.; where do these come from? indus script! #cryptic_breadcrumbs
     yantra, mantra, mudra, asana,.. #/interpretive|communicative/_dance
+  bamboo reed pens are like olivanders wand shop; i chose 2 (thickest, and thinnest) of each (hollow, and blocked) that eckersley's had
+  magic books; gotta read 'em all
  shiva-agni /(maha|alpa)-prana|aspiration/
   candle lit(,) ganja incense,.; smoke, and mirrors #fog
  /ghosavat|aghosa|vocal (chords)?/
