@@ -99,7 +99,31 @@ how i want to learn sanskrit
    t, criṭical poinṭ, ṭ #verticality
    k, critical point, ṭ #t
   duality: brahmacari = singular, grhastha = dual, sannyas = plural
-  unkown gender? use masculine by default; deva as a plural is usually inclusive of devi, just like "the gods" is usually inclusive of goddess; third gender is probably too specific, and rarer, even iff it does exist for every genderisation
+  unknown gender? use masculine by default; deva as a plural is usually inclusive of devi, just like "the gods" is usually inclusive of goddess; third gender is probably too specific, and rarer, even iff it does exist for every genderisation
+  s/complex vowels/samyukta/
+   /ai|au/: /flat|continuous/ (/air?|awe/) v /curved|tonal/ (/h?ai|ow/) v /wave²|discontinuous/ (/a i|a u/)
+  v: some rules are that after a consonant, or some"-thing" like that (viswanatha is my assumption), it is more w than v, otherwise v, but others maintain vw 'vwersally (some are more vvw than vw, or vww)
+  mccomas taylor: -sampradaya, err
+  iskcon: +sampradaya, ri; we can assume this comes from mahaprabhu (by process of mahaprabhu [1486,[1533,1534]], svarupa +6 goswamis [1488,1598], krishnadasa [1496,.?], narottama [1466,.?],., visvanatha [1626,1708],., 1800s,., jagannatha [1776,1894], gaurakisora [1838,1915], bhaktivinoda [1838,1914]' son s/goju/bhaktisiddhanta/ [1874,1937], bhaktivedanta [1896,1977]), but the further back is always more iff-fee (westerners)
+   https://www.iskconmysore.org/acharyas-our-sampradaya/
+   https://en.wikipedia.org/wiki/Template:Chaitanya_sampradaya
+   https://en.wikipedia.org/wiki/Template:Modern_Gaudiya_Vaishnavas
+    i'm always suspicious of the 1800s
+  bangla(?): ru, but why isn't iskcon?
+  how did english change from ..-old-middle-new-.? instant v gradual
+  prakrit v religion
+  https://en.wikipedia.org/wiki/Sanskrit_revival
+   jesus [-4,[30,33]]
+   muhammad [570,632]
+   westerners; followers of abraham, and atheism, alike
+    your magic is in your language? now you're not allowed to use it anymore (nevermind the rest of your people)
+    we will destroy all your lipi(kara) magic; and any evidence of horse (fossilised ahes? karmi, mayavadi,..)
+    we will kill your family if you don't help us (bush) track down your 𝘺𝘰𝘨𝘪,..
+   jesuit missionaries
+   1800s westerner apabhramsa pronounciation
+   "The 1991 Indian census reported 49,736 fluent speakers of Sanskrit.[9]"
+    but all hindus know sanskrit from mahamantra,..
+   "There are 2,360,821 total speakers of Sanskrit in India, as of 2011.[6]"
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
