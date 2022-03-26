@@ -126,6 +126,15 @@ how i want to learn sanskrit
    "The 1991 Indian census reported 49,736 fluent speakers of Sanskrit.[9]"
     but all hindus know sanskrit from mahamantra,..
    "There are 2,360,821 total speakers of Sanskrit in India, as of 2011.[6]"
+ instead of mccomas' mudras, i use my hands to count syllables; 400+ mudras
+  https://swordstoday.ie/mathematics-do-you-know-the-rare-indian-method-of-counting-up-to-400-digits-with-ten-fingers/
+  http://www.gregapodaca.com/numerography/files/027.html
+  http://www.gregapodaca.com/numerography/files/017.html
+  http://www.gregapodaca.com/numerography/files/011.html
+  http://www.gregapodaca.com/numerography/files/010.html
+ i just stumbled upon a great libraric source of cow(knowledge, and wisdom; also a wak in the /face(palm(istry)?)?|(fore(skin)?)?head/ to s/knock/know/ some sense into me)
+  https://sanskrit.inria.fr/portal.html
+   they don't just research coq (flag) maintenance,..
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
