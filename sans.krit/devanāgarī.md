@@ -1,3 +1,4 @@
+```
 lipikara; ink per stroke most of the ttime, but some strokes need more, or less
 i have bamboo reed pens, and indian liquid ink (ash + water; sundried chinese stick ink molded into 卐), but i need a chinese ink stone, and pipette
 i have air dry clay, and many tools
