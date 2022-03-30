@@ -84,6 +84,7 @@ how i want to learn sanskrit
   magic books; gotta read 'em all
  shiva-agni /(maha|alpa)-prana|aspiration/
   candle lit(,) ganja incense,.; smoke, and mirrors #fog
+  candle + audiometer(db); meter measures metre
  /ghosavat|aghosa|vocal (chords)?/
   https://en.wikipedia.org/wiki/Pulse_diagnosis#Traditional_Indian_medicine_(Ayurveda_and_Siddha-Veda)
  whispery whisp(ery)
@@ -126,7 +127,7 @@ how i want to learn sanskrit
    "The 1991 Indian census reported 49,736 fluent speakers of Sanskrit.[9]"
     but all hindus know sanskrit from mahamantra,..
    "There are 2,360,821 total speakers of Sanskrit in India, as of 2011.[6]"
- instead of mccomas' mudras, i use my hands to count syllables; 400+ mudras
+ instead of mccomas' mudras, i use my hands to count syllables; 400+ mudras #shyama-mudra
   https://swordstoday.ie/mathematics-do-you-know-the-rare-indian-method-of-counting-up-to-400-digits-with-ten-fingers/
   http://www.gregapodaca.com/numerography/files/027.html
   http://www.gregapodaca.com/numerography/files/017.html
@@ -135,6 +136,10 @@ how i want to learn sanskrit
  i just stumbled upon a great libraric source of cow(knowledge, and wisdom; also a wak in the /face(palm(istry)?)?|(fore(skin)?)?head/ to s/knock/know/ some sense into me)
   https://sanskrit.inria.fr/portal.html
    they don't just research coq (flag) maintenance,..
+ https://en.wikipedia.org/wiki/Nirukta#Discussion
+  yaska, nirukta 1.[18,20], forbids memorisation∈ignorance ∴ i reverse prabhupada; english translation, then word-for-word, then sanskrit #as_she_spreads_out_her_body,_like_a_wife_desiring_her_husband
+ indic scripts prevent double vowels; semitiC scripts completely dropped vowels altogether
+  monistic vowels v dualistic vowels v pluralistic u; rusters go u uu uū, where ū can be longer than 𝄞3 counts
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
