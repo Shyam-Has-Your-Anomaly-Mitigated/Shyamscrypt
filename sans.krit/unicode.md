@@ -1,19 +1,22 @@
 ```
 u̠221a √
 u̠0320 ̠ COMBINING MINUS SIGN BELOW #ℂ
-u̠0331 ̱ COMBINING MACRON BELOW #ℝ
-u̠25CC ◌ DOTTED CIRCLE #ℂ
+u̠0331 ̱ COMBINING MACRON BELOW
+u̠25cc ◌ DOTTED CIRCLE #ℂ
 u̠0341 ◌́ COMBINING ACUTE TONE MARK #ℝ
 u̠0301 ◌́ COMBINING ACUTE ACCENT
+u̠0303 ◌̃ COMBINING TILDE
 u̠0304 ◌̄ COMBINING MACRON; tṛtīyā
 u̠0307 ◌̇ COMBINING DOT ABOVE
 u̠0323 ◌̣ COMBINING DOT BELOW
+u̠032e ◌̮ COMBINING BREVE BELOW
 
 touch typing c̄ roman,.; i'll call it √lipikara (maybe s/√/卐/; lipikara isn't a root, where the root of a root is wonderful, where /either|both/ of those roots can be pluralised, and there's an S in 卐, but it needs to be rotated, or spinning, iff animated c̄ flapping garudas, and metallic /(w|ch)ing/ sounds, maybe eagle /s(i|o)ng/,..)
  key mapping cfg: static v dynamic(rng@memory)
  /augmented learning|intelligence amplification/: better than heat map (err v velocity), ~articulation = datamining temporal entanglement at every /scale|lvl|xp|dimension|../ + /genetic|evolutionary/ mitigation∘anomalies #pussy-/ball|pill/-titties
 my flag is /śyāma-s(v|u)astika/
 
+https://en.wiktionary.org/wiki/Appendix:Unicode/Combining_Diacritical_Marks
 https://en.wikipedia.org/wiki/Combining_character#Unicode_ranges
 wikipedia hover text make it easier to learn unicode scripts
  https://en.wikipedia.org/wiki/Devanagari#Unicode
