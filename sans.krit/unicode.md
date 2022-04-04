@@ -42,7 +42,7 @@ wikipedia hover text make it easier to learn unicode scripts
       https://en.wikipedia.org/wiki/Dramatic_Prakrit
       https://en.wikipedia.org/wiki/Hybrid_Sanskrit
       they just want higher political status, and social acceptance in varnashrama #greedie
-      i'm still contemplating adam, and eve, in the garden of ravana (v khana); the similarities of (d v r) v (v v t) v holy /dh?am/ v (the original (hanu)man v monkey magic forbidden peaches) v..
+      i'm still contemplating adam, and eve, in the garden of ravana (v khana); the similarities of (d v r) v (v v t) v holy /dh?am/ v (the original (hanu)man v monkey magic forbidden peaches) v (d v v; shivam v shīva #schw) v..
      https://en.wikipedia.org/wiki/Divine_language
      https://en.wikipedia.org/wiki/Sacred_language
      https://en.wikipedia.org/wiki/Adams_Bridge
