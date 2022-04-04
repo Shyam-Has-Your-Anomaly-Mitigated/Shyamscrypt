@@ -37,6 +37,12 @@ wikipedia hover text make it easier to learn unicode scripts
    https://timesofindia.indiatimes.com/videos/city/hyderabad/now-digitised-palm-leaf-manuscripts-can-be-accessed-at-andhra-universitys-dr-vs-krishna-library/videoshow/88632718.cms?from=mdr
     nadi could be ask lots of questions, and write down all the positive queries; in my experience the ink dries quickly on printing paper
     is it tamil script, or the tamil tongue? do they all consider it to be a language of the gods? along side sanskrit? in a one /way|sided/ relationship? proto language of the gods?
+      madras express is culturally biased; iskcon' bangla mantras do not elevate bangla to godhood like londo murari of centauri′
+      https://en.wikipedia.org/wiki/Prakrit#Status
+      https://en.wikipedia.org/wiki/Dramatic_Prakrit
+      https://en.wikipedia.org/wiki/Hybrid_Sanskrit
+      they just want higher political status, and social acceptance in varnashrama #greedie
+      i'm still contemplating adam, and eve, in the garden of ravana (v khana); the similarities of (d v r) v (v v t) v holy /dh?am/ v (the original (hanu)man v monkey magic forbidden peaches) v..
      https://en.wikipedia.org/wiki/Divine_language
      https://en.wikipedia.org/wiki/Sacred_language
      https://en.wikipedia.org/wiki/Adams_Bridge
