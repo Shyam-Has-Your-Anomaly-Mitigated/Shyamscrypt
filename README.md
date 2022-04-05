@@ -232,6 +232,9 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
     - could ahsoka tanu have any"-thing" to do c̄ edicts∘ashoka? carbon dating isotopes, is what this is really allāh about (are-ah ya absolutely sure? kkk so let me get this straight; they burn the cross ∵ they hate jesus? like book burning, right?); ✝breeding (latin cross, not hebrew; roman, not abrahamic; italian, not /near|middle/ western)
     - do aryan invasion theorists shop at /wooll?ies/ https://youtu.be/6JwEYamjXpA&t=41m (subliminal training to perceive hindus as the biggest threat to (inter)national security as early as possible @ https://youtu.be/Q3GanzFA9cM?t=4m#श्याम⁰1¹w²i³)
     - every mathematician knows how to algebraically divide by zero to prove any"-thing" by forgetting shyam rules, every statistician knows how to corrupt graphs, every prostitute knows how to fake it 'till they make it (the customer always c̄ first), every politician knows how to compete for upper class bullshitter of the term, every logician knows how to fallacise formal methods, every pollster knows how to ask leading questions,..
+   - in the 1800s heinrich schliemann conveniently discovered "swastika", but for sauwastika; the discovery (legal /wr?it/) is probably a cryptic language, and troy is sri lanka
+   - in the 1900s they staged two "world wars", just to make a big deal about it, and "defeated" swastika, and enlisted hindus to fight against it, but for azad hind; as krishna was dually represented
+   - in the 1900s they partitioned india into pakistan, and bangladesh, to reduce our representation, but also focus it like a holy magnifying glass burner
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way; /heavenly|heathenly/ /bodies|personalities/, that ttime of the month,..)
    - feminism (draupadī)
    - homosexuality prohibition (kamasutra, turd (eyed) gender,..)
@@ -259,6 +262,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - the 3ʳᵈ law ∘ the law is; it's not over until the fat lady sings
   - the 4ᵗʰ law ∘ the law is; if you're guilty, and "you know it",.. (cuff your hands)
   - the 5ᵗʰ law ∘ the law is; there's no such "-thing" as standard practice (iff every lawyer can't reproduce identical contracts ∵ they'ren't "legal" contracts, or the law couldn't change, and certain job securities would be made needed like a hole in the head)
+  - the 6ᵗʰ law ∘ the law is; fines are the official bureaucratic bribe ∴ rich people're allowed to break the law
  - the end
   - business people are more powerful than governments; dr.whore mktex? dr.whore mkdoor? dr.whore mktmachine? dr.whore mkt? dr.whore mks? dr.whore mk? dr.whore m..m..o!
   - we know where government workers work; we see c sea c̄ our great eye the $5-0, and it's too /easy|cheap (especially tax evasion)?/ to /lure|manipulate|bribe|infiltrate/ them away
