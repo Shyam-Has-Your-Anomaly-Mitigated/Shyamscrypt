@@ -20,13 +20,14 @@ svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)�
 ग = ᳣ + । + ꣻ
 र = ग - । + Stroke
 ख = र + व + Stroke
-म = ग + ᳔
+म = ग +  ᳔
 य = ग + ॖ
 स = र + म = र + य
-न
+न =  ᳔ + a; maybe `tr a $andhi`
 
 āīūṛṝḷṅñṭḍṇśṣṃḥ
 vedic: ẖḫ
 i've only encountered this in all the verse so far, no where else: ṁ
 wikipedia: ō (there's another one, but I can't remember… bakhshâlî is probably a different language)
 ā́∈fruitā́ryān @ https://en.wikipedia.org/wiki/Aryan
+ probably arabic,.. @ https://en.wikipedia.org/wiki/%C4%80%CC%81r%C4%83dus
