@@ -17,7 +17,16 @@ svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)�
 (Ⅶ i after put circle up over, 2ⁿᵈ /on over|over|?across (negated cross)?/)
 (i have 2 letters per Ⅰ Ⅱ Ⅲ Ⅴ Ⅵ Ⅸ)
 
+ग = ᳣ + । + ꣻ
+र = ग - । + Stroke
+ख = र + व + Stroke
+म = ग + ᳔
+य = ग + ॖ
+स = र + म = र + य
+न
+
 āīūṛṝḷṅñṭḍṇśṣṃḥ
 vedic: ẖḫ
 i've only encountered this in all the verse so far, no where else: ṁ
 wikipedia: ō (there's another one, but I can't remember… bakhshâlî is probably a different language)
+ā́∈fruitā́ryān @ https://en.wikipedia.org/wiki/Aryan
