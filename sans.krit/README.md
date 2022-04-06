@@ -140,6 +140,7 @@ how i want to learn sanskrit
   yaska, nirukta 1.[18,20], forbids memorisation∈ignorance ∴ i reverse prabhupada; english translation, then word-for-word, then sanskrit #as_she_spreads_out_her_body,_like_a_wife_desiring_her_husband
  indic scripts prevent double vowels; semitiC scripts completely dropped vowels altogether
   monistic vowels v dualistic vowels v pluralistic u; rusters go u uu uū, where ū can be longer than 𝄞3 counts
+ sanskrit is always spoken, even when /rea?d/; so it is only ever heard #pzombie #neuroplasticity
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
