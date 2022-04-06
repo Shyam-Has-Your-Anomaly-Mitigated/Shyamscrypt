@@ -140,7 +140,7 @@ how i want to learn sanskrit
   yaska, nirukta 1.[18,20], forbids memorisation∈ignorance ∴ i reverse prabhupada; english translation, then word-for-word, then sanskrit #as_she_spreads_out_her_body,_like_a_wife_desiring_her_husband
  indic scripts prevent double vowels; semitiC scripts completely dropped vowels altogether
   monistic vowels v dualistic vowels v pluralistic u; rusters go u uu uū, where ū can be longer than 𝄞3 counts
- sanskrit is always spoken, even when /rea?d/; so it is only ever heard #pzombie #neuroplasticity
+ sanskrit is always spoken, even when /rea?d|writ(ten)?/; so it is only ever heard #pzombie #neuroplasticity
  sanskrit only needs to be heard once; respoke until list-ened into memory boutique, where ttime is the currency exchange to keep it on the shelves, and the shelf life is influenced by the forgetting curve, hype cycle,., before hearing more
 
 prabhupada
