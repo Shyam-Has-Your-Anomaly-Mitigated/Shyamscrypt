@@ -45,6 +45,7 @@ wikipedia hover text make it easier to learn unicode scripts
       i'm still contemplating adam, and eve, in the garden of ravana (v khana); the similarities of (d v r) v (v v t) v holy /dh?am/ v (the original (hanu)man v monkey magic forbidden peaches) v (d v v; shivam v shīva #schw) v..
        it's possible schwa insertion exists in hybrid sanskritic semitick (halfrights) languages; "i'll just (half)right it down, instead of memorising"; and now i'm committed to memorising vedanga, before any"-thing" else #lesson-learned
        amrta = holy grail, /shiva?/ had a pretty bow, and valmiki rama←mara = adama from battlestar galactica, who lifted it #dyel?
+       i've seen a white camel sacrifice, but idk any vedic significance yet; karmi words of the mayavædȧs (i'm confused about mayavadi sannyasi, where mahaprabhu took sannyasa from one, and they should all read lord caitanya in five features aka adi-lila ch7), shaktism' animal sacrifice including sati (its' better to leave it up to their' karma, dharma, shyama,.; including↔especially learning sanskrit,.; no (peer) pressure (falling on deaf ears) #titw), kalki' white horse,..
      https://en.wikipedia.org/wiki/Divine_language
      https://en.wikipedia.org/wiki/Sacred_language
      https://en.wikipedia.org/wiki/Adams_Bridge
