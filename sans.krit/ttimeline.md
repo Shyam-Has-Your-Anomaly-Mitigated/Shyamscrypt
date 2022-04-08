@@ -57,6 +57,11 @@
    we invented rote, but hash∘hashes is ganġa; like memorising over a thousand letterlugical ligatures
    monogenesisanskrit
    a 𝘺𝘰𝘨𝘪 probably travelled to ethiopia to hide shyamantaka; i hear they have perfect weather, like shangrila
+    hebrew looks nagari, and all others probably grew from /derivable|investigatæble/ sanskrit roots, where the regionalocal sounds `cdr` changed v they intensionally prakritised on purpose v.; /indra?/ = zues = thor =.. #cryptic
+     https://en.wikipedia.org/wiki/Seven_Wise_Masters
+      /acha?-arya/ became arch-bishop
+    archaeology can be abused for carbon dating; inks (winsor & newton make indian ink from chinese ink sticks), dyes, and other preservatives
+     but there are other(chemical,..)ways to fake it 'til you make it, while linguistics is abused by not /accessing|buying|considering|deliberating|emancipating|finding|getting/ all the acquisitional (meta)data assets
    do the koreans know of panini (ordering)? they stole it from us!
 𝒍𝒊𝒑𝒊[∞]bce https://en.wikipedia.org/wiki/Shankhalipi
  ornate brahmi; calligraphy?
