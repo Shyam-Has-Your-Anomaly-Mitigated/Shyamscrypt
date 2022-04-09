@@ -1,4 +1,5 @@
 ```
+namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?tranced mind|../ control the strange solar flares into a supernova, like /f(app|uck)ing/ as i came in like a wrecking ball, while seismography can be used to /see|hear|../ epicantscuttle, but we could target other /constellations|galaxies|../, and it could boomerang from milliways reading sspacettime'↔reality, but is datamining observationally paradoxical? it is iff you try to change the "future", which is everywhere through ttemporal entanglement
 # Shyamscrypt
 -               i was only expressing solidarity; s/low? and behold/loy-allo?y (chocolate salty beskar dragonballs)?/ blame me?
 -               🌹
