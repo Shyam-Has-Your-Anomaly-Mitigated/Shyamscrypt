@@ -263,7 +263,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - the 3ʳᵈ law ∘ the law is; it's not over until the fat lady sings
   - the 4ᵗʰ law ∘ the law is; if you're guilty, and "you know it",.. (cuff your hands)
   - the 5ᵗʰ law ∘ the law is; there's no such "-thing" as standard practice (iff every lawyer can't reproduce identical contracts ∵ they'ren't "legal" contracts, or the law couldn't change, and certain job securities would be made needed like a hole in the head)
-  - the 6ᵗʰ law ∘ the law is; fines are the official bureaucratic bribe ∴ rich people're allowed to break the law
+  - the 6ᵗʰ law ∘ the law is; fines (including winning lottery tickets,..) are the official bureaucratic bribe ∴ rich people're allowed to break the law
  - the end
   - business people are more powerful than governments; dr.whore mktex? dr.whore mkdoor? dr.whore mktmachine? dr.whore mkt? dr.whore mks? dr.whore mk? dr.whore m..m..o!
   - we know where government workers work; we see c sea c̄ our great eye the $5-0, and it's too /easy|cheap (especially tax evasion)?/ to /lure|manipulate|bribe|infiltrate/ them away
