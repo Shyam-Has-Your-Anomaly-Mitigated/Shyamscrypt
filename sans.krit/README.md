@@ -143,7 +143,7 @@ how i want to learn sanskrit
   monistic vowels v dualistic vowels v pluralistic u; rusters go u uu uū, where ū can be longer than 𝄞3 counts
  sanskrit is always spoken, even when /rea?d|writ(ten)?/; so it is only ever heard #pzombie #neuroplasticity
  sanskrit only needs to be heard once; respoke until list-ened into memory boutique, where ttime is the currency exchange to keep it on the shelves, and the shelf life is influenced by the forgetting curve, hype cycle,., before hearing more
- as an experiment; s/put|place/throw|toss/ parts of speech scattered on the stage (for dramatic entrance; s/graffiti/confetti fireworks/) in order of choreography to exercise their necks, but for the focus points #hypno
+ as an experiment; s/put|place/throw|toss/ parts∘speech scattered on the stage (for dramatic entrance; s/graffiti/confetti fireworks/) in choreograffical ordering to exercise their necks (along the journey), but for the focus points #hypno
   tempo, velocity; suspense,..
 
 prabhupada
