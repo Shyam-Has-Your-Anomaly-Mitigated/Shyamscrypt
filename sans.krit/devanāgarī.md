@@ -5,6 +5,7 @@ i have air dry clay, and many tools
 I want to learn computer fonts (using free/open source software), animation (stroke orders), traditional calligraphy, palm leaf manuscripts, birch bark manuscripts, clay tablet manuscripts, dyed textiles (prayer flags), carving (wood whittling, stone chiselling, and glass etching), and maybe even metallurgical artefacts (signatory wax seal stamps), alphabet soup, calligraphy cakes, and whatever else is out there, but only if they can be done vegan, or better (without killing plants).
 ; as I was typing this, I spontaneously decided that I want to make a Sanskrit temple, by hand (starting with models to perfect the design; maybe using microsurgical tools, if I can afford them).
  this is different; you can tell; it's obvious;
+temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a shoe will be off with their head rolled into the ten eternal flames as a vedic sacrifice; we'll use interrogative eeg lie detectors (better than dune, and like in blackkklansman; succeed x perl) to mksure it will never fall to any government,.. (you can only enter iff you agree to assassinate our enemies (tdd; stepwise refinement) should they succeed, and you survive)
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
