@@ -9,6 +9,7 @@ temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a
  no technology will be allowed in (including watches(for the temporal(ly) impaired), hearing aids, pacemakers,..); there'll be wands(https://youtu.be/c_0E1XJP33E?t=216), portals(doorway frames), (/gold|metal/,..)detectors,..
  Also need a [hoover](https://en.wikipedia.org/wiki/Vacuum), a [shield](https://en.wikipedia.org/wiki/Faraday_cage), and [the sound barrier](https://en.wikipedia.org/wiki/Anechoic_chamber). #tamperproof #observerparadox #..
  we'll have anti /drone|aircraft|satellite|../ defenses, and a nuclear self destruct; it'll be like the vatican, butt ww³ʳᵈ
+ mantras will provide safe passage (vedanga proves how well you know sanskrit; off the top of your head v off with your head); graceful degradation (like from googles' long lost lesson on s/separation/segregation/∘languages v iff is(enabled,js) next yoda before cowth imbetween siddoost #षेध्युस् #षेध्यस् #षेध्यूस्) will ensure failsafe traps
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
