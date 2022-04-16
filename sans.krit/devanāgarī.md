@@ -12,6 +12,7 @@ temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a
  mantras will provide safe passage (vedanga proves how well you know sanskrit; off the top of your head v off with your head); graceful degradation (like from googles' long lost lesson on s/separation/segregation/∘languages v iff is(enabled,js) next yoda before cowth imbetween siddoost #षेध्युस् #षेध्यस् #षेध्यूस्) will ensure failsafe traps
  blindfold + handcuffs + solartrip; it'll fire flood you out iff you don't make it #weakmindedness
  a thousand shaolin poles; just like in the mover (i always thought thousand layer was like layers of /pastry|pasta/, like lasagne; or some"-thing"…)
+ only sanskrit will be "spoken"; mātrā v akṣara v.. #internalisation #leap∘faith #..
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
