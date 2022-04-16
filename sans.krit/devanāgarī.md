@@ -16,6 +16,7 @@ temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a
  no castes, crutches, wheelchairs, walking sticks (blindmans' bluff), piercings (tattoos might be allowed, but only if they're sanskrit, and cobra; fruitaryan when we upstream mkpurification, butt we'll have controlled diet(ary requirements) for ☣️bo☣️, and now i understand ca(,..)!!! :D), jewelry, clothing, nanotechnology,.; maybe we'll provide dandas (i don't think they're necessary (except for fighting your way in; then you must guard x perl))
  turbans can cover eeg, while paduka are like socks
  हरि ಪಾಟರ್ s/stairs/walls|poles (for interpretive pole dancing)|stairs|../; tentacle rape monster (in(to) space?) comes to mind #smoke_and_mirror_maze_dimension
+ we'll have rama' archery(flip + s/horse/don't want to break its' back/ = shot + gun; are guns just modern archery? as lasers are to the future), krishna' flute(s), narada' well(/al?so?/ for the training montage), hiranyakasipu' epicanthill (life for a life, until we lure them away) that is /smaller|shorter|../ than shiva' mountain, manu' boat, indicalligraffiti competitions, chanting /parrots|cows|ants|../,.; it'll be like s/disneyland/yogiloka/, where fasting is another cheatcode into the physical manifestations of sanskrit x perl, where chakra will be off with a head start after spray, and taze (cryptic avoids attention∈{government,..} by filtering my audience)
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
