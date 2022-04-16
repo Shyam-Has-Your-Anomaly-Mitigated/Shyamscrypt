@@ -19,6 +19,7 @@ temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a
  we'll have rama' archery(flip + s/horse/don't want to break its' back/ = shot + gun; are guns just modern archery? as lasers are to the future), krishna' flute(s), narada' well(/al?so?/ for the training montage), hiranyakasipu' epicanthill (life for a life, until we lure them away) that is /smaller|shorter|../ than shiva' mountain, manu' boat, indicalligraffiti competitions, chanting /parrots|cows|ants|../,.; it'll be like s/disneyland/yogiloka/, where fasting is another cheatcode into the physical manifestations of sanskrit x perl, where chakra will be off with a head start after spray, and taze (cryptic avoids attention∈{government,..} by filtering my audience)
  .
  .
+ .
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
