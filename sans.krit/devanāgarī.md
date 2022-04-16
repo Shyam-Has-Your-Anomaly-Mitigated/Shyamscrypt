@@ -6,6 +6,7 @@ I want to learn computer fonts (using free/open source software), animation (str
 ; as I was typing this, I spontaneously decided that I want to make a Sanskrit temple, by hand (starting with models to perfect the design; maybe using microsurgical tools, if I can afford them).
  this is different; you can tell; it's obvious;
 temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a shoe will be off with their head rolled into the ten eternal flames as a vedic sacrifice; we'll use interrogative eeg lie detectors (better than dune, and like in blackkklansman; succeed x perl) to mksure it will never fall to any government,.. (you can only enter iff you agree to assassinate our enemies (tdd; stepwise refinement) should they succeed, and you survive)
+ no technology will be allowed in (including watches(for the temporal(ly) impaired), hearing aids, pacemakers,..); there'll be wands(https://youtu.be/c_0E1XJP33E?t=216), portals(doorway frames), (/gold|metal/,..)detectors,..
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
