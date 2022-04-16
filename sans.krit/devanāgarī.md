@@ -14,6 +14,7 @@ temple∘sanskrit will be like in kung fu yoga, and anyone even tries to touch a
  a thousand shaolin poles; just like in the mover (i always thought thousand layer was like layers of /pastry|pasta/, like lasagne; or some"-thing"…)
  only sanskrit will be "spoken"; mātrā v akṣara v.. #internalisation #leap∘faith #..
  no castes, crutches, wheelchairs, walking sticks (blindmans' bluff), piercings (tattoos might be allowed, but only if they're sanskrit, and cobra; fruitaryan when we upstream mkpurification, butt we'll have controlled diet(ary requirements) for ☣️bo☣️, and now i understand ca(,..)!!! :D), jewelry, clothing, nanotechnology,.; maybe we'll provide dandas (i don't think they're necessary (except for fighting your way in; then you must guard x perl))
+ turbans can cover eeg, while paduka are like socks
 
 (i do two of these as my first line @a4)
 svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)↑bakhshālī Ⅰ १ Ⅱ २ Ⅲ ३ Ⅳ ४ Ⅴ ५ Ⅵ ६ Ⅶ ७ Ⅷ ८ Ⅸ ९ rūpya ꠸
