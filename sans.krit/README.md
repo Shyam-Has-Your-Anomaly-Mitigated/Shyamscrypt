@@ -106,7 +106,7 @@ how i want to learn sanskrit
    /ai|au/: /flat|continuous/ (/air?|awe/) v /curved|tonal/ (/h?ai|ow/) v /wave²|discontinuous/ (/a i|a u/)
     could be contextual, s/sandhi/samdhi/,..
     /e|o/ are the /flat|continous/ (/air?|awe/); process of dalek, where extermination of the anomalous, whatever remaining, however improbable, must be the pure blood (genetic niche(an); iff except(ion) fo(u)r ḍ=ḷ=l,..)
-  v: some rules are that after a consonant, or some"-thing" like that (viswanatha is my assumption), it is more w than v, otherwise v, but others maintain vw 'vwersally (some are more vvw than vw, or vww)
+  v: some rules are that after a consonant, or some"-thing" like that (viswanatha is my assumption), it is more w than v, otherwise v, but others maintain vw 'vwersally (some are more vvw than vw, or vww) #biggest-dickus
   mccomas taylor: -sampradaya, err
   iskcon: +sampradaya, ri; we can assume this comes from mahaprabhu (by process of mahaprabhu [1486,[1533,1534]], svarupa +6 goswamis [1488,1598], krishnadasa [1496,.?], narottama [1466,.?],., visvanatha [1626,1708],., 1800s,., jagannatha [1776,1894], gaurakisora [1838,1915], bhaktivinoda [1838,1914]' son s/goju/bhaktisiddhanta/ [1874,1937], bhaktivedanta [1896,1977]), but the further back is always more iff-fee (westerners)
    https://www.iskconmysore.org/acharyas-our-sampradaya/
