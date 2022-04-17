@@ -48,6 +48,10 @@ wikipedia hover text make it easier to learn unicode scripts
        i've seen a white camel sacrifice, but idk any vedic significance yet; karmi words of the mayavædȧs (i'm confused about mayavadi sannyasi, where mahaprabhu took sannyasa from one, and they should all read lord caitanya in five features aka adi-lila ch7), shaktism' animal sacrifice including sati (its' better to leave it up to their' karma, dharma, shyama,.; including↔especially learning sanskrit,.; no (peer) pressure (falling on deaf ears) #titw), kalki' white horse,..
        https://omniglot.com/writing/sanskrit.htm
         sanskrit is not written in tamil (nor gurmukhi)
+       https://www.nybooks.com/articles/2022/04/07/hearing-the-ramayana-again-wendy-doniger/
+        the cyco pope v the cyco popo #infiltration #compromisation #understanding
+        roman bigollo pinocchio v vatican secret archiwes #ewery-sperm's-sacredz
+        v v v #वेन्यूर्ꣻदन्ꣻविथ्ꣻॱॱॱ #वेन्यूर्ꣻदन्ꣻवित्ह्ꣻॱॱॱ #वेन्यूर्ꣻदन्ꣻचꣻॱॱॱ
      https://en.wikipedia.org/wiki/Divine_language
      https://en.wikipedia.org/wiki/Sacred_language
      https://en.wikipedia.org/wiki/Adams_Bridge
