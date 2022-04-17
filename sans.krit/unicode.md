@@ -50,7 +50,7 @@ wikipedia hover text make it easier to learn unicode scripts
         sanskrit is not written in tamil (nor gurmukhi)
        https://www.nybooks.com/articles/2022/04/07/hearing-the-ramayana-again-wendy-doniger/
         the cyco pope v the cyco popo #infiltration #compromisation #understanding
-        roman big(---fr)oḷḷo pinocchio v vatican sæcré(🤧habi)t archiwes #ewery-sperm's-sacredz
+        roman big(---fr)oḷḷo pin(dh)occhio v vatican(al) sæcré(🤧habi)t archiwes #ewery-sperm's-sacredz
         v v v #वेन्यूर्ꣻदन्ꣻविथ्ꣻॱॱॱ #वेन्यूर्ꣻदन्ꣻवित्ह्ꣻॱॱॱ #वेन्यूर्ꣻदन्ꣻचꣻॱॱॱ
      https://en.wikipedia.org/wiki/Divine_language
      https://en.wikipedia.org/wiki/Sacred_language
