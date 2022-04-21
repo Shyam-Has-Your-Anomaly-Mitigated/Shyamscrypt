@@ -25,6 +25,8 @@ observer paradox; scales (also have an er³ange; 200g 0.001g ∓0.005g = 200g 0.
 chemical caveat emptor; /c̄(out)?/ MY CABBAGES/‽|,/ how do i prove it? is litmus paper really colour blind?..
 
 monty python teaches how to recognise different types of trees from quite a long way away
+ slapdick comedy /sketch(es)|(m(ove)?r)scribble/ $ell$ #jackass
+  /declarative|recursive/ pussy sketch; someone walks into a room, and /declares|proclaims/ "I am a /vagina|pussy/", and the /a?typical/ response is "(yeah) we know", or "(and) you look like one (aswell)", followed by "we should mksketch of this", and "including this",.. #4t+2
 i can actually afford a nanopore sequencer; maybe (i don't think a grand will get me all i need, and exchange rates are tbc)
 https://youtu.be/ZDZUAleWX78
  this is how we overthrow organised crime syndicates
