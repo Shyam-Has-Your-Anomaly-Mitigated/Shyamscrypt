@@ -235,7 +235,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
     - every mathematician knows how to algebraically divide by zero to prove any"-thing" by forgetting shyam rules, every statistician knows how to corrupt graphs, every prostitute knows how to fake it 'till they make it (the customer always c̄ first), every politician knows how to compete for upper class bullshitter of the term, every logician knows how to fallacise formal methods, every pollster knows how to ask leading questions,..
    - in the 1800s heinrich schliemann conveniently discovered "swastika", but for sauwastika; the discovery (legal /wr?it/) is probably a cryptic language, and troy is sri lanka
     - swastika = crossschwa = stikaschwa = svastika #valmiki
-     - enlightenment = lightsayer = supersayin(g)s = iphoned यु, phonetically; sanskrit is everywhere, and every"-thing", in a superposition #codebasesystem
+     - enlightenment = lightsayer = supersayin⒢s = iphoned यु, phonetically; sanskrit is everywhere, and every"-thing", in a superposition #codebasesystem
    - in the 1900s they staged two "world wars", just to make a big deal about it, and "defeated" swastika, and enlisted hindus to fight against it, but for azad hind; as krishna was dually represented
    - in the 1900s they partitioned india into pakistan, and bangladesh, to reduce our representation, but also focus it like a holy magnifying glass burner
    - public holidays in australia aren't multicultural (but they do worship the roman pantheon in more than one way; /heavenly|heathenly/ /bodies|personalities/, that ttime of the month,..)
