@@ -69,14 +69,15 @@ trailing spaces for datamining purposes @/firefox|github|unix distro (non-bsd)|.
 computers should provide analog voltages, or cfg err proximity thresholds #lincos
  we can use them for /err|single event upset (when attention+seeking couples attend (in disguise; like sluts @ incel event upset)?)?|particle|cosmic ray|solar flare|gravitational waves|waves|can(era)nic(rophone)|../ detection
 firefox crashed, but i printed screen before, and shirorekha was the only /addition|change/; actually, it looks like i was about to type "headline#news", so i `cdr` lost some"-thing", and now i've /changed|added/ more
-i'm going to lose all my data; renouncement is no longer a choice, but sanskrit (memorisation, lipikara,..) will save me https://youtu.be/85-p9EIEVUA#puppystyle
+i'm going to lose all my data; renouncement is no longer axiom∘choice, but sanskrit (memorisation, lipikara,..) will save me https://youtu.be/85-p9EIEVUA#puppystyle
  all businesses will crash; it'll improve my employment opportunities in rebuilding survivable floss (redundancies manage risks involving flushing years of expenses down the drain), so that's my plan; just wait until 12025, wait until seek.com.au is rehacked from scratch c̄out /libs|../, and then ddospam the world, then get richer than snoop dogg
  wouldn't it be nice if the world was /vegan|floss|shyams' long-term plan|../
- w²i³ willn't be diplomatic, nor superintelligence,.; it'll be india launching more missiles at pakistan, and just about everyone else who joins in the party.bomb; like off c̄ their heads @kingsman
+ w²i³ willn't be diplomatic, nor superintelligence,.; it'll be india launching more missiles at pakistan (https://www.rvcj.com/india-accidentally-firing-a-missile-at-pakistan-sparks-a-hilarious-meme-fest-on-twitter/), and just about everyone else who joins in the party.bomb; like off c̄ their heads @kingsman
   panic /buying|looting|rioting|../; criminals will take advantage of surveillance
   the website is down; probably for good, unless they refilm it, or learn how to read sspacettime
+  expect more biopiracy, like https://www.rvcj.com/germany-claims-of-inventing-leaf-plates-after-years-of-hard-work-twitterati-cant-stop-loling/#1800s
 maybe i should start inking programs
- text recognition
+ text recognition @shyamalipi; i can do this now, and finish shyamskrit later
  prolog, lisp, perl, smalltalk; the fourmost foremost productive languages
  emacs
  operating system; no more /ms|apple|../
