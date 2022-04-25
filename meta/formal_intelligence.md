@@ -7,7 +7,7 @@ by providing "valid" respones = stunted growth, and development
 by providing alternative perspective = stunt ed growth (playing chess without knowing it's "chess")
                                                         no board layout, pieces,..
                                                                      ^linear anyway; computers are dimensionless, like speedreading warez, but we like to think of them as one dimensional
-goal + reason = input = /(0|1)(∵)(sic; i squiggled these, and the curvies where for what c̄s next)?.*/ = /(-|+)(∵).*/∴
+goal + reason = input = /(0|1)(∵)(sic; i squiggled these, and the curvies wʰere for what c̄s next)?.*/ = /(-|+)(∵).*/∴
 (-init = do some"-thing" #peerpressure) v (+init = inactivity is allow(alidat)ed)
 should hith be allowed to init? @who? @name, goal(±v∓), ∵reason, (∴response) = msg
 ^i only had most of this squiggled
@@ -53,3 +53,12 @@ anyone who evolved handwriting first, knows space is ambiguous #no"-thing"ness
 /packaging(box(e|ing)s(initialisation|termination)?|wrappings)?/ = \n #pkg #cfg
 
 i want to compose git c̄(a) keylogger c̄(a) /guix|nix/ c̄(a),.; i'll probably call it 卐warez卐 (the and lhs schwa overlines the and rhs schwa underlines; superoot, composed of 2s=0)
+
+/vedic references|logs|../ are /opti(o|n)nal/; bitrot (fancy shorts, mal(mfg), cosmic rays, ssd,..), meta(do what you cam't,..), cracks(exploited vulnerabilities, theft,..),..
+the same msg-hp; reduplication test, like the copycat test (context∘responses is not the only subject matter for the expert system check up dogg …), like the dwyc(n) test, like the superintelligence test (crack the vm, sandbox, firewall, worldomination,..), mahaintelligence test (karma, dharma, shyama,..),..
+kryten already set the bar for the turing test
+the chinese room
+ language /teaching|learning/; from another languages (not necessarily the same birds; multiple = one new language) perspective
+ lincos
+ intelligence
+ …
