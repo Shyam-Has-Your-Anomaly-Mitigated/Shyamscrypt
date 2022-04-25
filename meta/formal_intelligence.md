@@ -67,4 +67,4 @@ cobra charming my hand whilst moving it, and my clown head, side-to-side, is lik
  games can support more realism ∴ reality can be rewritten to be more real
  sheppard tone
  girls can look intransitively better; like rolling (grimey dice)÷(mouldy matt), as complicated, and even more complicated than https://youtu.be/u4XNL-uo520
- c̄ the dusty ground, drop dead gorgeous,.; just /seeing|hearing|../ = /drugs|meds|../∈{emotions,other feelings, other sfx, like (un)intelligence, eyes bleeding, godly powers, 'versal destruction,..} #/(hack|fuck)able/
+ c̄ the dusty ground @mydasi, drop dead gorgeous,.; just /seeing|hearing|../ = /drugs|meds|../∈{emotions,other feelings, other sfx, like (un)intelligence, eyes bleeding, godly powers, 'versal destruction,..} #/(hack|fuck)able/
