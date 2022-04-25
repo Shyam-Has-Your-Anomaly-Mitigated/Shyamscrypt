@@ -49,7 +49,7 @@ msg would beec̄ " [X] meta msg []", where ttime∈meta
  so " [X] [X] ttime sspaciocoordinates [] [X] what is the ttime mr dogg or [] []", where sspacial_coordinates = add(ressable)_places; is specio a word? it is now!!! :D
   maybe " [X] to [X] from msg [] []" v " [X] meta msg []", where meta = " [X] to from []", and to' ttime will be variably empty for docommentation purposes             #superpositio(nal)ness
 no data for a long ttime is either one space, or many spaces; it's better to be explicit, and leave spaces for artful padding #cfg
-anyone, who evolved handwriting first, knows space is ambiguous #no"-thing"ness
+anyone, who evolved handwriting 1ˢᵗ, knows space is ambiguous #no"-thing"ness
 /packaging(box(e|ing)s(initialisation|termination)?|wrappings)?/ = \n #pkg #cfg
 
 i want to compose git c̄(a) keylogger c̄(a) /guix|nix/ c̄(a),.; i'll probably call it 卐warez卐 (the and lhs schwa overlines the and rhs schwa underlines; superoot, composed of 2s=0)
@@ -63,7 +63,7 @@ the chinese room
  intelligence
  …
 
-cobra charming my hand whilst moving it, and my clown head, side-to-side, is like walking past trees; it looks more 3d, more real(istic) #perception
+cobra charming my hand whilst moving it, and my clown head, side-to-side, is like walking past trees in a geo; it looks more 3d, more real(istic) #perception
  games can support more realism ∴ reality can be rewritten to be more real
  sheppard tone
  girls can look intransitively better; like rolling (grimey dice)÷(mouldy matt), as complicated, and even more complicated than https://youtu.be/u4XNL-uo520
