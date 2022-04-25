@@ -49,16 +49,22 @@ msg would beec̄ " [X] meta msg []", where ttime∈meta
  so " [X] [X] ttime sspaciocoordinates [] [X] what is the ttime mr dogg or [] []", where sspacial_coordinates = add(ressable)_places; is specio a word? it is now!!! :D
   maybe " [X] to [X] from msg [] []" v " [X] meta msg []", where meta = " [X] to from []", and to' ttime will be variably empty for docommentation purposes             #superpositio(nal)ness
 no data for a long ttime is either one space, or many spaces; it's better to be explicit, and leave spaces for artful padding #cfg
-anyone who evolved handwriting first, knows space is ambiguous #no"-thing"ness
+anyone, who evolved handwriting first, knows space is ambiguous #no"-thing"ness
 /packaging(box(e|ing)s(initialisation|termination)?|wrappings)?/ = \n #pkg #cfg
 
 i want to compose git c̄(a) keylogger c̄(a) /guix|nix/ c̄(a),.; i'll probably call it 卐warez卐 (the and lhs schwa overlines the and rhs schwa underlines; superoot, composed of 2s=0)
 
 /vedic references|logs|../ are /opti(o|n)nal/; bitrot (fancy shorts, mal(mfg), cosmic rays, ssd,..), meta(do what you cam't,..), cracks(exploited vulnerabilities, theft,..),..
-the same msg-hp; reduplication test, like the copycat test (context∘responses is not the only subject matter for the expert system check up dogg …), like the dwyc(n) test, like the superintelligence test (crack the vm, sandbox, firewall, worldomination,..), mahaintelligence test (karma, dharma, shyama,..),..
+the same msg-hp; reduplication test, like the copycat test (context∘responses is not the only subject matter for the expert system check up dogg …), like the dwyc⒩ test, like the superintelligence test (crack the vm, sandbox, firewall, worldomination,..), mahaintelligence test (karma, dharma, shyama,..),..
 kryten already set the bar for the turing test
 the chinese room
  language /teaching|learning/; from another languages (not necessarily the same birds; multiple = one new language) perspective
  lincos
  intelligence
  …
+
+cobra charming my hand whilst moving it, and my clown head, side-to-side, is like walking past trees; it looks more 3d, more real(istic) #perception
+ games can support more realism ∴ reality can be rewritten to be more real
+ sheppard tone
+ girls can look intransitively better; like rolling (grimey dice)÷(mouldy matt), as complicated, and even more complicated than https://youtu.be/u4XNL-uo520
+ c̄ the dusty ground, drop dead gorgeous,.; just /seeing|hearing|../ = /drugs|meds|../∈{emotions,other feelings, other sfx, like (un)intelligence, eyes bleeding, godly powers, 'versal destruction,..} #/(hack|fuck)able/
