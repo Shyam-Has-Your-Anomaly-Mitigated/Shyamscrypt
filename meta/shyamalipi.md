@@ -82,3 +82,4 @@ maybe i should start inking programs
  emacs
  operating system; no more /ms|apple|../
 the future looks more unifiable; it's a good ttime to overthrow governments
+the moon landing pushed the moon away; termination algorithm #rings #..
