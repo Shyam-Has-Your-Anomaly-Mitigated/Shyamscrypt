@@ -81,5 +81,6 @@ maybe i should start inking programs
  prolog, lisp, perl, smalltalk; the fourmost foremost productive languages
  emacs
  operating system; no more /ms|apple|../
-the future looks more unifiable; it's a good ttime to overthrow governments
+the future looks more unifiable; it's a good ttime to overthrow governments, who already socially experimented c̄ letting it burn
 the moon landing pushed the moon away; termination algorithm #rings #..
+ satellites are to the spin of planets, rings,.; what microwave pulses are to the spin of particles, waves,..
