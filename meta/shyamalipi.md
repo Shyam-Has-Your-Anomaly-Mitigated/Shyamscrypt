@@ -83,4 +83,4 @@ maybe i should start inking programs
  operating system; no more /ms|apple|../
 the future looks more unifiable; it's a good ttime to overthrow governments, who already socially experimented c̄ letting it burn
 the moon landing pushed the moon away; termination algorithm #rings #..
- satellites are to the spin of planets, rings,.; what microwave pulses are to the spin of particles, waves,..
+ satellites are to the spin of planets, rings,.; what microwave pulses are to the spin of particles, waves,.. #observation_paradise
