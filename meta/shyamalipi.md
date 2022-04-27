@@ -77,6 +77,7 @@ i'm going to lose all my data; renouncement is no longer axiom∘choice, but san
   the website is down; probably for good, unless they refilm it, or learn how to read sspacettime
   expect more biopiracy, like https://www.rvcj.com/germany-claims-of-inventing-leaf-plates-after-years-of-hard-work-twitterati-cant-stop-loling/#1800s
 maybe i should start inking programs
+ take advantage of free energy to mk(computers,scanners,robots,weapons,..); lightspeed(holy dm, double slit), ftl(quantum eraser), recyke(tin cans + glass + plastic + cardboard + paper +..),..
  text recognition @shyamalipi; i can do this now, and finish shyamskrit later
  prolog, lisp, perl, smalltalk; the fourmost foremost productive languages
  emacs
