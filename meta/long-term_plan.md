@@ -40,4 +40,4 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
    optimal tweezers to optimal tweezers to..
     they can mfg, and self-destruct to hide themselves, mv around inside; it's like holowave projection, but holoparticle projection instead
      giant me nudie "running my homeworld" in my birthday suit on my birthday every birthday, "levitation" (brasupport,..), strip super models c̄ my xray vision, walk through walls, "disarm" enemies,..
-education; reimplement linguistics, math, prolog, unix,.. #diy
+comprehensiv education; reimplement linguistics, mathematics, mathing, computing, hacking, unix,.. #diy
