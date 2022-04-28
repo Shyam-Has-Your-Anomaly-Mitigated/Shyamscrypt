@@ -43,3 +43,4 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
 comprehensiveducation; reimplement linguistics, mathematics, mathing, computing, hacking, emacs, unix,.. #diy
 afterlife xp: start c̄ rng linguistics, including body language (octopussy of all demos); vision is probably harder to adapt to, but for mirrors,..
  mix photons, phonons,..
+ phantom limb, tardising (put hand on wall, put other hand through doorway, "through" /hand|wall/),..
