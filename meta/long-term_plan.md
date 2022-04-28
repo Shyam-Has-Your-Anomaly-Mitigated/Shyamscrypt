@@ -1,0 +1,24 @@
+no mods; black mirror blocks, but for physical presence
+rooms
+ you apply to enter the room; i'll get to bookings later
+ everyone in the room has to agree to let you in
+ you can autoconditionally cfg hack them in, based on histats; physical violence, triggers,.. (i'm the exception #godmode)
+ application order takes precedence
+punctuality is a sign∘intelligence; mental health(based economy)
+bookings; you can book as far into the future as you want, but if you `cancel<miss, where earlier<soonervlater`, then you lose mental health points
+like chopsticks; ask, before act; look, before leap; make a mistake, and you s/lose/gain/ fewer mental health points; positivity is like evolutionary tiers
+ puzzle game example; you have to 100% a tier to climb the ladder, it's not necessarily progressive (a chess intelligence can't win nots, and not-nots; t³), and a "buggy" (socially experimental) intelligence serves as a reminder (and a jackpot; both positive, negative, neutral,..)
+  an early tier: you have a button to check solution #training_wheels
+  a later tier: the button is removed, and you gain fewer mental health points if you use it again, even for testing software; the same rules apply to every discipline; get it right the first ttime #hill_climbing
+no blindspots = no cheaters
+a potential problem, where popularity measures contribution; good for entertainment, bad for evil troublemakers, probably bad for science,..
+ratings, and feedback, are ~
+ you get mental health points for doing both; we can dm it, and advance language processing
+ should ratings be positive, {positive|negative|neutral}, numbers, percentages,.; how many /positive|negative/ key presses is better than holding duration, and you can do both to match feedback
+ sanskrit ratings are worth more points; if you're willing to risk your' karma
+ eeg is good feedback, access /counts|duration/ are also good feedback; eeg dm for one hit wonders
+ is this needed anymore? how we judge? self-reflection? let people choose how they want to live, and dm evolution from the social experiment, or award points for dm
+points reset to zero every day; no possession, no hoarding, no /days off|holidays/,..
+fasting gives physical health points, meditating (eeg inception waves) gives mental health points; so yogis can afford a water pipe like jackie chan had in the desert jacket, and also a bong, and ganja,..
+ but you have to book it, and be punctual,.; otherwise all your favourites will be overpriced (most of the ttime), unless rng is on your side, but it's a gamble, like /weather|roulette|../ reports
+actually sanskrit should be worthless; you only learn iff you want to
