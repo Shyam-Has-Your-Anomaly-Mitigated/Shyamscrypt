@@ -36,3 +36,7 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
  where to put it? what's it made of? now it's ≥11k, but towering above tidal level
  this was after thinking about transplanting forked roots to remove smaller roots wrapped around it, or transplanting the smaller roots, iff it's more survivable
  lasers are optimal indoor lighting
+  there's plenty of sspace at the bottom
+   optimal tweezers to optimal tweezers to..
+    they can mfg, and self-destruct to hide themselves, mv around inside; it's like holowave projection, but holoparticle projection instead
+     giant me nudie "running my homeworld" in my birthday suit on my birthday every birthday, "levitation" (brasupport,..), strip super models c̄ my xray vision, walk through walls, "disarm" enemies,..
