@@ -35,3 +35,4 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
  how many gs? it should be variable, but we want to preserve life, death,..
  where to put it? what's it made of? now it's ≥11k, but towering above tidal level
  this was after thinking about transplanting forked roots to remove smaller roots wrapped around it, or transplanting the smaller roots, iff it's more survivable
+ lasers are optimal indoor lighting
