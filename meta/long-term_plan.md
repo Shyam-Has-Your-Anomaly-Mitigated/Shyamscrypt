@@ -42,3 +42,4 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
      giant me nudie "running my homeworld" in my birthday suit on my birthday every birthday, "levitation" (brasupport,..), strip super models c̄ my xray vision, walk through walls, "disarm" enemies,..
 comprehensiveducation; reimplement linguistics, mathematics, mathing, computing, hacking, emacs, unix,.. #diy
 afterlife xp: start c̄ rng linguistics, including body language (octopussy of all demos); vision is probably harder to adapt to
+ mix photons, phonons,..
