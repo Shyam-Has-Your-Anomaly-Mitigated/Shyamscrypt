@@ -31,7 +31,7 @@ maybe you shouldn't access source, until you implement the spec; this'll progres
 you just learn hacking, and hack bots to mkbots, then hack those bots to "implement the spec"; this is the optimal safety standard, along c̄ virtual labs,..
 we have to do the math to decide whether paper is physically /better|healthier|sustainable/ than digital,.. (mental health, physical health, environmental health,.; /processing|plant cycles|../ v /energy costs|thermal dmg|../)
 comparison is a good rating system, and can be circularly complex (not theory, but practicæl); you can compare apples to apples, oranges to mozart, pencils to porn,..
-digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctioning,..), size-mic,.; multiscan(life detection), vacwm,..
+digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctioning,..), size-mic,.; multiscan(surface, 3d extraction, life detection,..), vacwm,..
  how many gs? it should be variable, but we want to preserve life, death,..
  where to put it? what's it made of? now it's ≥11k, but towering above tidal level
  this was after thinking about transplanting forked roots to remove smaller roots wrapped around it, or transplanting the smaller roots, iff it's more survivable
