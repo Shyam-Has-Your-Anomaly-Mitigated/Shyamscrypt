@@ -1,5 +1,6 @@
+```
 no mods; black mirror blocks, but for physical presence
-rooms
+sspaces
  you apply to enter the room; i'll get to bookings later
  everyone in the room has to agree to let you in
  you can autoconditionally cfg hack them in, based on histats; physical violence, triggers,.. (i'm the exception #godmode)
@@ -22,3 +23,6 @@ points reset to zero every day; no possession, no hoarding, no /days off|holiday
 fasting gives physical health points, meditating (eeg inception waves) gives mental health points; so yogis can afford a water pipe like jackie chan had in the desert jacket, and also a bong, and ganja,..
  but you have to book it, and be punctual,.; otherwise all your favourites will be overpriced (most of the ttime), unless rng is on your side, but it's a gamble, like /weather|roulette|../ reports
 actually sanskrit should be worthless; you only learn iff you want to
+references from contributions distribute points; you get more points if you do it properly, but we'll dm what lookup you access, and source trails will be credited
+we value newer (more recent) contributions more, but we charge less for them, orn't (bookings,..); economical bubbles
+it's more intelligent to be fully booked, but it's a blessing, and a curse
