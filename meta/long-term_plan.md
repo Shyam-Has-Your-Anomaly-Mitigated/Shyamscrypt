@@ -26,3 +26,7 @@ actually sanskrit should be worthless; you only learn iff you want to
 references from contributions distribute points; you get more points if you do it properly, but we'll dm what lookup you access, and source trails will be credited
 we value newer (more recent) contributions more, but we charge less for them, orn't (bookings,..); economical bubbles
 it's more intelligent to be fully booked, but it's a blessing, and a curse
+software can auto, and boost health points, but for bugs
+maybe you shouldn't access source, until you implement the spec; this'll progress our technological advancement, and you get cheaper resource allocation; this goes for all products, but to make a chair out of wood; you need to prove your knowledge of carpentry for the safety standards
+you just learn hacking, and hack bots to mkbots, then hack those bots to "implement the spec"; this is the optimal safety standard, along c̄ virtual labs,..
+we have to do the math to decide whether paper is physically /better|healthier|sustainable/ than digital,.. (mental health, physical health, environmental health,..)
