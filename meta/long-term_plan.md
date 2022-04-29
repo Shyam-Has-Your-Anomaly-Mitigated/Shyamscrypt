@@ -30,7 +30,7 @@ software can auto, and boost health points, but for bugs
 maybe you shouldn't access source, until you implement the spec; this'll progress our technological advancement, and you get cheaper resource allocation; this goes for all products, but to make a chair out of wood; you need to prove your knowledge of carpentry for the safety standards
 you just learn hacking, and hack bots to mkbots, then hack those bots to "implement the spec"; this is the optimal safety standard, along c̄ virtual labs,..
 we have to do the math to decide whether paper is physically /better|healthier|sustainable/ than digital,.. (mental health, physical health, environmental health,.; /processing|plant cycles|../ v /energy costs|thermal dmg|../)
-comparison is a good rating system, and can be circularly complex (not theory, but practicæl); you can compare apples to apples, oranges to mozart, pencils to porn,..
+comparison is a good rating system, and can be circularly complex (not theory, but practicæl); you can compare apples to apples, oranges to mozart, pencils to porn,.. (specificity v generality)
 digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctioning,..), size-mic,.; multiscan(surface, 3d extraction, life detection,..), vacwm,..
  how many gs? it should be variable, but we want to preserve life, death,..
  where to put it? what's it made of? now it's ≥11k, but towering above tidal level
@@ -42,6 +42,7 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
      giant me nudie "running my homeworld" in my birthday suit on my birthday every birthday, "levitation" (brasupport,..), strip super models c̄ my xray vision, walk through walls, "disarm" enemies,..
 comprehensiveducation; reimplement linguistics, mathematics, mathing, computing, hacking, emacs, unix,.. #diy
  p(rolog)(n)g tests
+ how do you mathematically express the second half? 1-½=½
 afterlife xp: start c̄ rng linguistics, including body language (octopussy of all demos); vision is probably harder to adapt to, but for mirrors, dizzy filming, zoomoving>3d,..
  mix photons, phonons,..
  phantom limb, tardising (put hand on wall, put other hand through doorway, "through" /hand|wall/),..
