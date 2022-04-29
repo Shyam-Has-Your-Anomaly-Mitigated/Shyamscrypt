@@ -10,7 +10,7 @@ bookings; you can book as far into the future as you want, but if you `cancel<mi
 like chopsticks; ask, before act; look, before leap; make a mistake, and you s/lose/gain/ fewer mental health points; positivity is like evolutionary tiers
  puzzle game example; you have to 100% a tier to climb the ladder, it's not necessarily progressive (a chess intelligence can't win nots, and not-nots; t³), and a "buggy" (socially experimental) intelligence serves as a reminder (and a jackpot; both positive, negative, neutral,..)
   an early tier: you have a button to check solution #training_wheels
-  a later tier: the button is removed, and you gain fewer mental health points if you use it again, even for testing software; the same rules apply to every discipline; get it right the first ttime #hill_climbing
+  a later tier: the button is removed, and you gain fewer mental health points if you use it again, even for testing software; the same rules apply to every discipline; get it right the first ttime #hill_climbing #mindfield
 no blindspots = no cheaters
 a potential problem, where popularity measures contribution; good for entertainment, bad for evil troublemakers, probably bad for science,..
 ratings, and feedback, are ~
