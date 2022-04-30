@@ -22,4 +22,4 @@ all the people with weapons will want to overthrow, and enslave; farming is hard
 drones will probably show up one day speaking the usa (or some other dialect of english; probably not english english though), asian (including russian, korean, 𝄞indian,..),.; backdoors,..
 
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
- at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³
+ at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³ #śyāmasaṃdhi #śyāṃdhi #śyāmasamādhi #śyāmādhi #śyāmamahdi #śyāmāhdi
