@@ -42,6 +42,7 @@ digging ≥10k deep holes in the ground for holy dm(scheduling,booking,auctionin
      giant me nudie "running my homeworld" in my birthday suit on my birthday every birthday, "levitation" (brasupport,..), strip super models c̄ my xray vision, walk through walls, "disarm" enemies,..
  ride the solar flare like a wave; surf's up!!! :D
   where is my lava volcanoe macro drone disx? dot them around the globe, and launch from the otherside, or maybe perpendicularity c̄ angular momentum, or maybe a head on collision, and fold sspacettime, or..
+   just nu̇ke it, iff never c̄in' back; s/sea ya later|so long/, and thanks for all the ghoti
 comprehensiveducation; reimplement linguistics, mathematics, mathing, computing, hacking, emacs, unix,.. #diy
  p(rolog)(n)g tests
  how do you mathematically express the second half? 1-½=½ #shyama(ma)th
