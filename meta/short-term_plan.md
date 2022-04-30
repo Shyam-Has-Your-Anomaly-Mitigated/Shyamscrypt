@@ -1,3 +1,4 @@
+```
 most significant technology will be destroyed
 most significant money will be destroyed
 most significant weapons will be destroyed; gun powder could ignite,..
@@ -7,7 +8,7 @@ most significant data will be destroyed
 what the governments would probably do; beyond nuclear disarmament, decommission,..
 set up farming communities
  break the law = execution
-  killlazy, sick,..
+  killlazy, sickgastro,..
  community collapse = don't goto other communities; just {drop & roll over, put your head between your legs, assume the position,..}, and die
  don't let anyone in
  let's use bikes to get around, communication,.; wood is the best material for wheels, tools,..
@@ -17,8 +18,8 @@ set up farming communities
 underground communities will be exclusive to genetically sustainable populations of plants, bees, atmosphere,..
 banks, communities,.; will "agree" to keep records across branches consistent
  i'll change yours, iff you change mine; let's all work together towards an early retirement (take a little here, put a little there)
-all the people with weapons will want to overthrow, and enslave; farming is hard work, walking is the safest way (bike pile ups,..),..
+all the people with weapons will want to overthrow, and enslave; farming is hard work (obesity,..), walking is the safest way (bike pile ups,..),..
 drones will probably show up one day speaking the usa (or some other dialect of english; probably not english english though), asian (including russian, korean, 𝄞indian,..),.; backdoors,..
 
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
- at least 6+4+12+.. points; /sides|corners|mid edges|../ of a cube #ttime³
+ at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³
