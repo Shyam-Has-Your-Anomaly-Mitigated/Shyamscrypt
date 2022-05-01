@@ -53,7 +53,7 @@ capsule (hotels)
 shower = 1m water, 1s soap, 1m water; full pressure, variables increase ttime
  standardisation until ..; duck curves,..
  bath is more economical; shower is exponential x perl
-  public is more economical than shared is more economical than private; shower before bath #japanese
+  moshpit (well-informed consent #ayor) is more economical than public is more economical than shared is more economical than private; shower before bath #japanese
    social circle sharing is less economical than diversification; gotta /meet|know|remember (names|faces|..)?/ 'em all
    hairy v hairless v std v dts v.; segregation∘sspace(s)
     (hairless goto hairy) is more economical than (hairy goto hairless; shyam rules, means well-informed consent can cost श्याम points); (dts goto std) is more economical than (std goto dts iff quarantine) ∵ quarantine is always isolation, unless you want to risk entrapment, but it's really just a subset∘std, until 100% dts
