@@ -59,3 +59,8 @@ shower = 1m water, 1s soap, 1m water; full pressure, variables increase ttime
     (hairless goto hairy) is more economical than (hairy goto hairless; shyam rules, means well-informed consent can cost श्याम points); (dts goto std) is more economical than (std goto dts iff quarantine) ∵ quarantine is always isolation, unless you want to risk entrapment, but it's really just a subset∘std, until 100% dts
 official software is more economical than diy is more economical than yid; incentivising unanimous decisions, rather than waiting until someone crawls, or i go dim, or somehow i dm the seo,.. #nhie
 all sspace = well-informed consent
+decisions
+ /support|for|positivity|../
+ iprefer /this to that|that to this/; comparating
+ negativity requires (formal, but we won't be explicit about it) feedback so intelligence can judge mental health points to filter decidership
+  only deciders can observe implicits; this tests my maharaja censorshipropaganda,.. (like costing श्याम points, where my points are constant; deciders can wake up to constant points, based on the barrier to entry as a reminder of evolutionary histats)
