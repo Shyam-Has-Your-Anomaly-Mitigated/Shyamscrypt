@@ -49,3 +49,10 @@ comprehensiveducation; reimplement linguistics, mathematics, mathing, computing,
 afterlife xp: start c̄ rng linguistics, including body language (octopussy of all demos); vision is probably harder to adapt to, but for mirrors, dizzy filming, zoomoving>3d,..
  mix photons, phonons,..
  phantom limb, tardising (put hand on wall, put other hand through doorway, "through" /hand|wall/),..
+capsule (hotels)
+shower = 1m water, 1s soap, 1m water; full pressure, variables increase ttime
+ standardisation until ..; duck curves,..
+ bath is more economical; shower is exponential x perl
+  public is more economical than shared is more economical than private; shower before bath #japanese
+   social circle sharing is less economical than diversification; gotta /meet|know|remember (names|faces|..)?/ 'em all
+   hairy v hairless v std v.; segregation∘sspace(s)
