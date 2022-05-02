@@ -15,7 +15,7 @@ set up farming communities
  everyone farms, guards, studies,..
  sit tight, and wait for the scientists to mktechnology (backdoored,.; besides the implementers overthrowing, enslaving,..)
  there might be a faraday bunker, meds, foods,.; x marks the spot, where a message says "we took yours, and we'll drop 'round in a few weeks to mvin; just to let you know"
- submerged surveillance prevents "the burn"; https://www.youtube.com/watch?v=MpApxmvcd3M
+ submerged /surveillance|electrical infrastructure|electronics|../ prevents "the burn"; https://www.youtube.com/watch?v=MpApxmvcd3M
 underground communities will be exclusive to genetically sustainable populations of plants, bees, atmosphere,..
 banks, communities,.; will "agree" to keep records across branches consistent
  i'll change yours, iff you change mine; let's all work together towards an early retirement (take a little here, put a little there)
