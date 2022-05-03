@@ -2,6 +2,8 @@
 neutrality v competitivity
  memorable moments are rewarding
  learn from mistakes
+ https://www.youtube.com/watch?v=_JfbPq6vHcA
+  positive psychological passion (the pursuit∘happyness; having fun in the environmental sun #contagiousmiles) v negative attention seeking (wanting to do better; being a good sport stuck in the proverbial fort #determination) #priming
 provide (historic) context, where each cryptic context is its' own language, and perfect memory c̄s at a cost to benefit ratio(n)
 by providing "valid" respones = stunted growth, and development
 by providing alternative perspective = stunt ed growth (playing chess without knowing it's "chess")
