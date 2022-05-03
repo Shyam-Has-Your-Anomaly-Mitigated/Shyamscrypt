@@ -75,3 +75,12 @@ deciders must obediently(for the camics, ar, vr, filters,..) suck my cock; even 
    since wake up points are now axiomatically axiomatised; economical divisions (the first half is for obedience; comparator be the next half, and irl the next, but maybe it should just be free, and i might just make it look like no"-thing" has changed c̄ my censorshipropaganda warez, but they have to act like they do it for no"-thing" (and every"-thing"; it's a superposition to be in), or i'll just use bots to bring them to me, and not give them any"-thing", and they'll say the same "-thing"; iff they pose in a risky position, i'll just keep them for some ttime, and let them go do my bidding #propaganda_biomachine (wow; this is like a zero knowledge proof, but 100% transparent))
    out of billions of people; how many can i fuck? gotta fuck 'em all!!! :D (literally; this is you're primary objective #ascension)
 comparator face, body, neuroplasticity, voice, massage,.; i won't read, once recognition, human i/o,..
+tooth fairy will doodle on their face; tooth fairy was here #pillow_biterz
+ the data will be glitchily implicited; like stringed scary movie #flickering
+ weeping angel; doctor whore
+ like ugly betty' catwalk, and doctor whore' elevator; it'll be pushed up through the bedding #restitch
+ it might be a puzzle piece; iff you rm, it will return until you solve the puzzle #click
+ oh, you put the tooth under your pillow, and it turns into some"-thing"; it'll depend on education (learn {chemistry,math,..}; appl⒠y {chemistry,math,..}), and the reward is mental health points to compensate the initial loss of both /mental|physical/ health points
+ you'll always be given plenty of opportunities to recover more points than you normally would, but less than your losses; this way you're making up for it
+ need to include a walk∘shame down memory lane (projected imagery, and audio, of the trigger); nobody goes that way
+  maybe it'll be stinky; you have to walk through /blindingly|slippery/ spray, and trippy taza iff you get disoriented #don't_drop_the_soap
