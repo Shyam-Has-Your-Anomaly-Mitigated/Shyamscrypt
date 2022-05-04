@@ -1,5 +1,5 @@
 ```
-most significant technology will be destroyed; pesticides, meds, ammo,..
+most significant technology will be destroyed; pesticides, meds, ammo, tools, cloth,..
 most significant money will be destroyed
 most significant weapons will be destroyed; gun powder could ignite,..
 most significant data will be destroyed
@@ -13,7 +13,7 @@ set up farming communities
  community collapse = don't goto other communities; just {drop & roll over, put your head between your legs, assume the position,..}, and die
  don't let anyone in
  let's use bikes to get around, communication,.; wood is the best material for wheels, tools,..
- everyone farms, guardshifts, studies,..
+ everyone well buckets, farms, guardshifts, studies,..
  sit tight, and wait for the scientists to mktechnology (backdoored,.; besides the implementers overthrowing, enslaving,..)
  there might be a faraday bunker, meds, foods,.; x marks the spot, where a message says "we took yours, and we'll drop 'round in a few weeks to mvin; just to let you know"
  submerged /surveillance|electrical infrastructure|electronics|../ prevents "the burn"; https://www.youtube.com/watch?v=MpApxmvcd3M
