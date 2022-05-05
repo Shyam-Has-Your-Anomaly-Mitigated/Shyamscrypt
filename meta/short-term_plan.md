@@ -23,6 +23,7 @@ banks, communities,.; will "agree" to keep records across branches consistent
 all the people with weapons will want to overthrow, and enslave; farming is hard work (obesity, redundant crops, hand pollination v greenhouse gassed bees (parasites v thermal radiation v..),..), walking is the safest way (bike pile ups,..),..
  sleep is an exploitable vulnerability; hostage sitch scenarios
 drones will probably show up one day speaking the usa (or some other dialect of english; probably not english english though), asian (including russian, korean, 𝄞indian,..),.; backdoors,..
+my long term plan will /hunt|eat|../ them; gladiators, hunger games, keep what you kill (bone age), zardos,.. #fresh_flesh
 
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
  at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³ #śyāmasaṃdhi #śyāṃdhi #śyāmasamādhi #śyāmādhi #śyāmamahdi #śyāmāhdi
