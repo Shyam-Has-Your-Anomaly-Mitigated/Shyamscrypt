@@ -1,3 +1,4 @@
+```
 interpreter = vm
 compiler = tr
 parallel processing = raid
@@ -11,8 +12,8 @@ dcg
 
 shyamachine(s); i didn't know what to name this, now i do
 syntacticless hex; data, hacking, and mathing c̄ hindu numbers #gödelling
- 1ˢᵗ byte = instruction
- 2ⁿᵈ byte = parameter litʰp
+ 1ˢᵗ s/byte/hindu number c̄ leading unicode/ = instruction
+ 2ⁿᵈ s/byte/hindu number c̄ leading unicode/ = parameter litʰp
  byte is cfg; what is a word again? cfg also
   hindu numbers; cfg (श्याम, axioms,..)
  maybe i should support compatibility c̄ existing instruction sets; wait until after though
