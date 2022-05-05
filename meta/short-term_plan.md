@@ -14,7 +14,7 @@ set up farming communities
  don't let anyone in
  let's use bikes to get around, communication,.; wood is the best material for wheels, tools,..
  everyone well buckets, farms, guardshifts, studies,..
- sit tight, and wait for the scientists to mktechnology (backdoored,.; besides the implementers overthrowing, enslaving,..)
+ sit tight, and wait for the scientists to mktechnology (backdoored,.; besides the /implementers|hackers|crackers|rocket launchers|military dictatorship deployers|../ overthrowing, enslaving,..)
  there might be a faraday bunker, meds, foods,.; x marks the spot, where a message says "we took yours, and we'll drop 'round in a few weeks to mvin; just to let you know"
  submerged /surveillance|electrical infrastructure|electronics|../ prevents "the burn"; https://www.youtube.com/watch?v=MpApxmvcd3M
 underground communities will be exclusive to genetically sustainable populations of plants, bees, atmosphere,..
