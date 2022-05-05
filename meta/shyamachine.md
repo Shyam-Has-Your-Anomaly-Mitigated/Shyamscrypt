@@ -17,6 +17,6 @@ syntacticless hex; data, hacking, and mathing c̄ hindu numbers #gödelling
  byte is cfg; what is a word again? cfg also
   hindu numbers; cfg (श्याम, axioms,..)
  maybe i should support compatibility c̄ existing instruction sets; wait until after though
- iff registers; instruction followed by register sized hindu number
+ iff registers; register sized instruction followed by register sized hindu number
 
 brain(plant) gotta poop; gonna back to my roots
