@@ -25,7 +25,7 @@ iff the termination condition (iff outcome)
 atemporal reversal; cdr /perspectively|perceptionaly|../ rewind sspacettime
 atemporal 'versal; this cdr explain dark matter
 viral nanobots cdr; simulation conveyor belt at any /dimension|scale|scope|../
-don't even need to beam light into /eyeballs|googlieye nipples|../; just viral nanobot the brainplant stem, optic nerve,..
+don't even need to beam light into /eyeballs|googlieye nipples|../; just viral nanobot the brainplant stem, optic nerve,.. (instructional illusings; inclusing the viral nanobots, brainplant, perception,..)
 
 erstwhile; what do i want my /unixz distro|litʰp emactʰ|../' name to be, orn't? pencil porn!!! :D
 shyamos #snd's_not_dos
