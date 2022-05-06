@@ -29,6 +29,6 @@ don't even need to beam light into /eyeballs|googlieye nipples|../; just viral n
 
 erstwhile; what do i want my /unixz distro|litʰp emactʰ|../' name to be, orn't? pencil porn!!! :D
 shyamos #snd's_not_dos
-shyamxp #(((in)ception)e)gg
+shyamxp #(((in)ception)e)gg#references
 shyamix; λ calculus ∘ magic cauldron #isourcerawr
 shyamachine #vm
