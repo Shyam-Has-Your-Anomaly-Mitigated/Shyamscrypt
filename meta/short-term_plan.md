@@ -1,15 +1,16 @@
 ```
-most significant technology will be destroyed; pesticides, meds, ammo, tools, cloth,..
+most significant technology will be destroyed; pesticides, meds, ammo, tools, cloth, communication (emergency services),..
 most significant money will be destroyed
 most significant weapons will be destroyed; gun powder could ignite,..
 most significant data will be destroyed
 …
 
 what the governments would probably do; beyond nuclear disarmament, decommission,..
-set up farming communities
+set up genetically sustainable farming communities; the /animal|flu (i haven't been sick since the start of the pandemic; when i was 𝄞walking in the rain c̄out umbrella, but now i have golf umbrella for the winds, but maybe i should check wind in the weather reports for the umbrella∘invisibility to dodge traffic)|growing food to feed food|../ free ones have the highest survivability
  break the law = execution
   killlazy, sickgastro,..
   en(glish)-slave-men-t(and, biscuits) v prison escapists
+  breeding program; parents must die (by torture iff unlawful (); where law is based on chance-a-lot v pain tolerance v (super)stition v refer-en-dumb v refer-end-um v..)
  community collapse = don't goto other communities; just {drop & roll over, put your head between your legs, assume the position,..}, and die
  don't let anyone in
  let's use bikes to get around, communication,.; wood is the best material for wheels, tools,..
