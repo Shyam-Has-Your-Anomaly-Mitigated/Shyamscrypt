@@ -10,7 +10,7 @@ set up genetically sustainable farming communities; the /animal|flu (i haven't b
  break the law = execution
   killlazy, sickgastro,..
   en(glish)-slave-men-t(and, biscuits) v prison escapists
-  breeding program; parents must die (by torture iff unlawful (); where law is based on chance-a-lot v pain tolerance v (super)stition v refer-en-dumb v refer-end-um v..)
+  breeding program; parents must die (by torture iff unlawful (); where law is based on chance-a-lot (probably weather-based) v pain tolerance v (super)/stition|natural/ v refer-en-dumb v refer-end-um v..)
  community collapse = don't goto other communities; just {drop & roll over, put your head between your legs, assume the position,..}, and die
  don't let anyone in
  let's use bikes to get around, communication,.; wood is the best material for wheels, tools,..
