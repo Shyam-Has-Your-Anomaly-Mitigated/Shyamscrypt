@@ -30,5 +30,5 @@ don't even need to beam light into /eyeballs|googlieye nipples|../; just viral n
 erstwhile; what do i want my /unixz distro|litʰp emactʰ|../' nament to be, orn't? pencil porn!!! :D
 shyamos #snd's_not_dos
 shyamxp #(((in)ception)e)gg#references
-shyamix; λ calculus ∘ magic cauldron #isourcerawr
+shyamix; λ calculus ∘ magic cauldron #isourcerawr*9
 shyamachine #vc
