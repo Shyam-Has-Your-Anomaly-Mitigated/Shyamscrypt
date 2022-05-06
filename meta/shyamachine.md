@@ -31,4 +31,4 @@ erstwhile; what do i want my /unixz distro|litʰp emactʰ|../' name to be, orn't
 shyamos #snd's_not_dos
 shyamxp #(((in)ception)e)gg#references
 shyamix; λ calculus ∘ magic cauldron #isourcerawr
-shyamachine #vm
+shyamachine #vc
