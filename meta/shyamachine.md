@@ -20,3 +20,14 @@ syntacticless hex; data, hacking, and mathing c̄ hindu numbers #gödelling
  iff registers; register sized instruction followed by register sized hindu number
 
 brain(plant) gotta poop; gonna back to my roots
+
+iff the termination condition (iff outcome)
+atemporal reversal; cdr /perspectively|perceptionaly|../ rewind sspacettime
+atemporal 'versal; this cdr explain dark matter
+viral nanobots cdr; simulation conveyor belt at any /dimension|scale|scope|../
+
+erstwhile; what do i want my /unixz distro|litʰp emactʰ|../' name to be, orn't? pencil porn!!! :D
+shyamos #snd's_not_dos
+shyamxp #(((in)ception)e)gg
+shyamix; λ calculus ∘ magic cauldron #isourcerawr
+shyamachine #vm
