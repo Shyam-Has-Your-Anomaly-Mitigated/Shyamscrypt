@@ -40,6 +40,11 @@ svastika(÷)suastika (tilted)卐 ōṃ ॐ śūnya brahmagupta↓(÷). ०(÷)�
 स = र + म = र + य
 न =  ᳔ + a; maybe `tr a $andhi`
 
+the jungle book needs to go here; oh, it's r /to(o,)?/ s/dh?i/kha/ too
+ cough-crypto-cough; this is a good way to teach this concept
+devanasandhi∘r; left-to-right, top-to-bottom; top r is before, bottom r is after; even though top r is furthest to the right, and bottom r is furthest to the left, as in `īrgrā`; ईर्ग्रा; well, now that's s/confusing/exceptional/!
+ do any prakrits support recursive sandhi?
+
 āīūṛṝḷṅñṭḍṇśṣṃḥ
 vedic: ẖḫ
 i've only encountered this in all the verse so far, no where else: ṁ
