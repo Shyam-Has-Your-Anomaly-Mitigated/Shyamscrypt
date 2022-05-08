@@ -32,7 +32,7 @@ ttemporal ordering can be arbitrary, but it's better to be consistent, unless yo
   a move can be represented by board states
 
 snakes, and ladders, involves multiple personalities
- [@ dice+ श्याम+1∵ [+ (λx∘,x(x))(λx∘1,x(x))]∴ give me a better roll this time!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!]
+ [@ dice+ श्याम+1∵ [+ (λx∘,x(x))(λx∘1,x(x))]∴ give me a better roll this ttime!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!]
   then we need to use vedic references in our ∴response for confirmation bias; it should include the full pkg (including ttimestamps), unless testing paranormal psychic abilites
   ttime is /meta|contextual/
 
