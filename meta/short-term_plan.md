@@ -6,6 +6,7 @@ most significant data will be destroyed
 …
 
 what the governments would probably do; beyond nuclear disarmament, decommission,..
+preemptively eeg exorcistential crisis threatening community espalloc
 set up genetically sustainable farming communities; the /animal|flu (i haven't been sick since the start of the pandemic; when i was 𝄞walking in the rain c̄out umbrella, but now i have golf umbrella for the winds, but maybe i should check wind in the weather reports for the umbrella∘invisibility to dodge traffic)|growing food to feed food|../ free ones have the highest survivability
  break the law = execution
   killlazy, sickgastro,..
