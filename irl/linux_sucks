@@ -48,5 +48,5 @@ what is the airspeed velocity of a holy graillladen swallow in the castle anthra
   prolog (parallel) cache, then prove; autosatisfiability, and other formal methods; like {synchronisation,back(track)ing (up,..),..} to save ttime,..
    maybe i should just commit to minikanren÷tʰcheme, and dabble in the /(f|embedd)able/; dependently-typed dtʰl for homoiconic metaprogramming
     storing state∘program
-     cache, and /single event upset|user interrupt|ttime|nᵗʰ instruction|../; nᵗʰ instruction is probably the most optimal, wrapped in ttempåwooga x perl #parallelio
+     (parallel) caches/, and \/single event upset|user interrupt|ttime|nᵗʰ instruction|..\/; nᵗʰ instruction is probably the most optimal, wrapped in ttempåwooga x perl #parallelio
      set variables, including program counter; i used to do this more hardcore #recovery
