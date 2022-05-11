@@ -220,7 +220,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - tobacco bribed the /government|medical industry/
   - alcohol kills brain cells; the wine industry wants customers to believe their products improve "longevity" (aka neurodegenerativity), but genetics is the primary factor (natural selection v selective breeding)
   - carcinogenic meat is still allowed in hospitals, schools, prisons (free sex, free meat, free food, free shelter,.; no need to study, wfd,..),..
-  - the war against hinduism (backfired); because violence wasn't enough to `rm hindu`, because the followers of /abraham|atheism|agnosticism/ are weakminded airheads, because..
+  - the war against hinduism (backfired); because violence wasn't enough to `rm hindu`, because the followers of /abraham|atheism|agnosticism/ are weakminded airheads, because.. #toppomā́ryāns∘saṃskṛta
    - judges sit up there on their thrones of dead cows ∵ anti-blasphemy laws are a one-sided one-way street (karma; physical manifestation of hell)
    - in the 1800s gañjā prohibition (medicinal, double standard anti-blasphemy,..)
    - in the 1800s brahman cows bred for meat (cancer, bouncing on the inner boundary of the goldilocks zone,..)
