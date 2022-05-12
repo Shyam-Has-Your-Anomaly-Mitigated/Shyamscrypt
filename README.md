@@ -182,7 +182,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
     [ ] how do i learn touch typing? buy a keyboard that makes it difficult to eye ball it v /memorise|visualise/ by sight
    [ ] all dialects; tr(isomorphism expansion s/is to/-->/ macro(preprocess) expansion)
    [ ] all distros; (i'll add the rest of all of this later, but anyone should have /(an)? ideas?/ for this rememberallline)
-  [ ] tail called s/hermes/io/ could `rm cuts`; io backtracking awooga #lunarसtransmachines
+  [ ] tail called s/hermes/io/ could `rm cuts`; io backtracking awooga #lunarसtransmy(dix)cheese
 [ ] dialects:
  [ ] swipl().
  [ ] (racket racklog minikanren datalog); need to update the other repo redatalog
