@@ -85,3 +85,5 @@ maybe i should start inking programs, including musical notation; scratching aud
 the future looks more unifiable; it's a good ttime to overthrow governments, who already socially experimented c̄ letting it burn
 the moon landing pushed the moon away; termination algorithm #rings #..
  satellites are to the spin of planets, rings,.; what microwave pulses are to the spin of particles, waves,.. #observation_paradise
+ observer paradox(tor)
+  observable universe = (expansion of the universe v we're in a bubble holo'verse #tread-mill)
