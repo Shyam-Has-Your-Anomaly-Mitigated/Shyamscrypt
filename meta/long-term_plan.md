@@ -100,3 +100,4 @@ i got so stone; this is the latest, and greatest, i'll hing it out later #algebr
 
 {wife beaters, any other abuse,..} are psychological experiments; called the angels of death; for iff they die, you get arrested c̄out "fair" trial (for white people only; everyone knows that; even the black judges follow their ways, and (religious, discriminatious,.; views, morals,..) (but we all know it's just black face; who knows them personally? 6° is middle-manned; epic spy battle going on)
 baby swapping is an intelligence test, human subject research experiment,.; factors including multiplicity,..
+(traffic) congestion is people moving around "aswell" much; epic spy army battle bottle
