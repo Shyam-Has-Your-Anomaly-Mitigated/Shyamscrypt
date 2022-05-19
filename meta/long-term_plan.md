@@ -84,3 +84,17 @@ tooth fairy will doodle on their face; tooth fairy was here #pillow_biterz
  you'll always be given plenty of opportunities to recover more points than you normally would, but less than your losses; this way you're making up for it
  need to include a walk∘shame down memory lane (projected imagery, and audio, of the trigger); nobody goes that way
   maybe it'll be stinky; you have to walk through /blindingly|slippery/ spray, and trippy taza iff you get disoriented #don't_drop_the_soap
+
+SO"-T
+hing
+"
+
+i got so stone; this is the latest, and greatest, i'll hing it out later
+
+23:08
+ "go look in the mirror" ȧs punishment; you need to get better looking, by looking better, where looking = acting =.. #hypnotherapy
+ it's a real kick in the crotch (pussy punting?), when you see just how ugly you are, and this self reflection is self taught unkowingly; just as everyone hates the sound of their own voice, so too is the echomirror (em #typogg); but they're allowed to listen to music, as long as it's loud enough for me to hear, and it can't have naughty words (*naughty* *naughty* *naughty*; *tsk* *tsk* *tsk*), and they have to dance to it (how i know how good it is; compar'tor #1⁽ˢᵗ⁾)
+ people like to sign up for human subject research experiments; not reading what you're signing as a meta(human subject research experiment(s)); the meaning∘life #42
+ segregation of society is good for keeping the unhealthy away from the healthy; even smiling is contagious in disneyland(meta); you really think rich people are that wealthy? (un)paid actors #disneyland
+
+{wife beaters,..} are psychological experiments; called the angels of death; for iff they die, you get arrested c̄out "fair" trial (for white people only; everyone knows that; even the black judges follow their ways, and (religious, discriminatious,.; views, morals,..)
