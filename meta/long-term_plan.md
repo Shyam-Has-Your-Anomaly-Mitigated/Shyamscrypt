@@ -94,7 +94,7 @@ i got so stone; this is the latest, and greatest, i'll hing it out later #algebr
 23:08
  "go look in the mirror" ȧs punishment; you need to get better looking, by looking better, where looking = acting =.. #hypnotherapy
  it's a real kick in the crotch (pussy punting?), when you see just how ugly you are, and this self reflection is self taught unkowingly (ca$hmookow); just as everyone hates the sound of their own voice, so too is the echomirror (em #typogg); but they're allowed to listen to music, as long as it's loud enough for me to hear, and it can't have naughty words (*naughty* *naughty* *naughty*; *tsk* *tsk* *tsk*), and they have to dance to it (how i know how good it is (/iffdea?f/); compar'tor #1⁽ˢᵗ⁾)
- people like to sign up for human subject research experiments; not reading what you're signing as a meta(human subject research experiment(s)); the meaning∘life #42
+ people like to $ign up for human subject research experiments; not reading what you're signing as a meta(human subject research experiment(s)); the meaning∘life #42
  segregation of society is good for keeping the unhealthy away from the healthy; even smiling is contagious in disneyland(meta); you really think rich people are that wealthy? (un)paid actors #disneyland
  pulling the strings of the economy
 
