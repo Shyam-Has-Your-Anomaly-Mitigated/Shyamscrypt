@@ -113,4 +113,4 @@ you'll massage my cock in your mouth, while licking my chocolate salty balls, un
 unlucky 13 is unlucky jailbait.
 sweet sixteen is ripe sweet cheeks as a triple threat (top, front, and back)(, and milk to go )c̄( milk on the side(s; eithersides of my cock))
 do (/the lack|types/ of) bras cause cancer? what about (nnultiple) pregnancy? what about (in)activities? groping? breastfeeding?
-milf is in perpetual baby labour; "now" is forever
+milf is in perpetual baby labour; "now" is forever, like a sspacettime anchor
