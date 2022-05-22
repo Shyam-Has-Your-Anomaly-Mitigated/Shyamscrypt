@@ -105,3 +105,7 @@ baby swapping is an intelligence test, human subject research experiment,.; fact
 listening to voices in your head is bad; even the little ones that say not to be unwise
 c̄ so many galaxies∘stars,.; why is it all black like stereotypical treadmill conveyorings
 iff you keep dm, you'll observe some"-thing"; virtual particles,..
+
+i'll chew all your food; you're only allowed to swallow
+i'll clean your face c̄ my cock; you'll lick it clean
+you'll massage my cock in your mouth, while licking my chocolate salty balls, until it bleeds out, then you'll kiss my cock, and chocolate salty balls, until it'sthey're better; shower algorithm
