@@ -108,7 +108,7 @@ iff you keep dm, you'll observe some"-thing"; virtual particles,..
 
 i'll chew all your food; you're only allowed to swallow
 i'll clean your face c̄ my cock; you'll lick it clean
-you'll massage my cock in your mouth, while licking my chocolate salty balls, until it bleeds out, then you'll kiss them better (after shaking my cock c̄ your lips like a puppy); shower algorithm
+you'll massage my cock in your mouth, while licking my chocolate salty balls, until it bleeds out, then you'll kiss them better (after shaking my cock c̄ your lips like a well-s/informed/trained/ puppy); shower algorithm
 
 unlucky 13 is unlucky jailbait.
 sweet sixteen is ripe sweet cheeks as a triple threat (top, front, and back)(, and milk to go )c̄( milk on the side(s; eithersides of my cock))
