@@ -110,4 +110,4 @@ i'll chew all your food; you're only allowed to swallow
 i'll clean your face c̄ my cock; you'll lick it clean
 you'll massage my cock in your mouth, while licking my chocolate salty balls, until it bleeds out, then you'll kiss them better; shower algorithm
 
-unlucky 13 is unlucky jailbait
+unlucky 13 is unlucky jailbait.
