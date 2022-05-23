@@ -111,6 +111,6 @@ i'll clean your face c̄ my cock; you'll lick it clean
 you'll massage my cock in your mouth, while licking my chocolate salty balls, until it bleeds out, then you'll kiss them better (after shaking my cock c̄ your lips like a well-s/informed/trained/ puppy); shower algorithm
 
 unlucky 13 is unlucky jailbait.
-sweet sixteen is ripe sweet cheeks as a triple threat (top, front, and back)(, and milk to go )c̄( milk on the side(s; eithersides of my cock))
+sweet sixteen is ripe sweet cheeks as a triple threat (top, front, and back)(, and milk to go )c̄( milk on the side(s; eithersides of my cock)) #sharmie_in_the_night_kitchen
 do (/the lack|types/ of) bras cause cancer? what about (nnultiple) pregnancy? what about (in)activities? groping? breastfeeding?
 milf is in perpetual baby labour; "now" is forever, like a sspacettime anchor
