@@ -151,7 +151,7 @@ is aṣṭādhyāyī prakrit, within the scope of the final rule? is "this" ("no
 i think sanskrit needs a self-aware recursive meta(in some sense of the word(s))grammar, and a sanskrit machine ('verse; physical manifestions (celestial, biobrains,..),..)
 /hypnoeeg|neurofeedback/ can see inside a childs mind, and we can guide them along; what do they "like", "not like",.. #intelli(g(en(ce)))warez
 
-prabhupada
+prabhupada; turns out mccomas is a scottish name
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
   but he travelled to the west, and i was highborn in the west, and descended from irish kings (st:tos); wrap around straight
  they say he learned from westerners, and they were believed to be clean(shaven; this always comes to mine, but the first sauce i found includes moral /ingredients?/), and sobermen; i think the same of mccomas taylor, who /learned|values/ indian pronounciation
