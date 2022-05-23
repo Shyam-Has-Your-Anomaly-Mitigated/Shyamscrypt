@@ -147,7 +147,8 @@ how i want to learn sanskrit
   tempo, velocity; suspense,..
 atra tatra; /saḥ$/ is only possible for asti rule? asti rule exists for this purpose?
 s/s/ḥ/; iff prevedic sanskrit is s, otherwise pāṇini final rule is responsible #meta
-is aṣṭādhyāyī prakrit, within the scope of the final rule? is "this" ("now") what sanksrit is?
+is aṣṭādhyāyī prakrit, within the scope of the final rule? is "this" ("now") what sanksrit is? vā?
+i think sanskrit needs a self-aware recursive grammar, and a sanskrit machine ('verse)
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
