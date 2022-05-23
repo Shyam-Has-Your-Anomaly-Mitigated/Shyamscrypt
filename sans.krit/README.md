@@ -145,6 +145,8 @@ how i want to learn sanskrit
  sanskrit only needs to be heard once; respoke until list-ened into memory boutique, where ttime is the currency exchange to keep it on the shelves, and the shelf life is influenced by the forgetting curve, hype cycle,., before hearing more
  as an experiment; s/put|place/throw|toss/ parts∘speech scattered on the stage (for dramatic entrance; s/graffiti/confetti fireworks/) in choreograffical ordering to exercise their necks (along the journey), but for the focus points #hypno
   tempo, velocity; suspense,..
+atra tatra; /saḥ$/ is only possible for asti rule? asti rule exists for this purpose?
+s/s/ḥ/; iff prevedic sanskrit is s, otherwise pāṇini final rule is responsible #meta
 
 prabhupada
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
