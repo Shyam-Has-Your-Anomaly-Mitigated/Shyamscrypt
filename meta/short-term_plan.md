@@ -31,7 +31,7 @@ my long term plan will /hunt|eat|../ them; gladiators, hunger games, keep what y
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
  at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³ #śyāmasaṃdhi #śyāṃdhi #śyāmasamādhi #śyāmādhi #śyāmamahdi #śyāmāhdi
 
-just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! (planetary /cooling|heating|warming/, (extreme) weather, /worse|(more )?powerful/ than /runn(ing|ed)/ nuke$um,.; my conveyorwallhimalaya(/colonalmassive(dg|(jr?acula|rec)tions)/) will hide us from our enemies (i let know about us through lensingsfx; i'm the only one who can avoid them c̄ insider knowledge; sspacettime disruptions from /travelling too fast|computing|geometry|../); can open earth facingside)
+just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! (planetary /cooling|heating|warming/, (extreme) weather, /worse|(more )?powerful/ than /runn(ing|ed)/ nuke$um,.; my conveyorwallhimalaya(/colonalmassive(dg|(jr?acula|rec)tions)/) will hide us from our enemies (i let know about us through lensingsfx(doublesided mirrors); i'm the only one who can avoid them c̄ insider knowledge; sspacettime disruptions from /travelling too fast|computing|geometry|../); can open earth facingside)
  around sun
  around earth
  around everywhere in between
