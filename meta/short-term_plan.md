@@ -31,7 +31,7 @@ my long term plan will /hunt|eat|../ them; gladiators, hunger games, keep what y
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
  at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³ #śyāmasaṃdhi #śyāṃdhi #śyāmasamādhi #śyāmādhi #śyāmamahdi #śyāmāhdi
 
-just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! (planetary /cooling|heating|warming/, (extreme) weather, /worse|(more )?powerful/ than /runn(ing|ed)/ nuke$um,..)
+just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! (planetary /cooling|heating|warming/, (extreme) weather, /worse|(more )?powerful/ than /runn(ing|ed)/ nuke$um,.; my conveyorwallhimalaya will hide us from our enemies (i let know about us through lensingsfx; i'm the only one who can avoid them c̄ insider knowledge; sspacettime disruptions from travelling too fast, or /computing|geometry|../); can open earth facingside)
  around sun
  around earth
  around everywhere in between
@@ -50,10 +50,10 @@ O'z isomorphic
 
 it's like a mirror∘reflection
 coconutsmeansislandgirls
-ggg = good gamer girls
+ggg = good gamer girls #5girls
 tti-me has you formally trapped #checkmatingseason
 s(t)ungod
 "
 
-ariana grande' 7rings is the new i hold the whole world, in my hands vibe; in a superposition, both down on her kneeds(ing), and up on her kneeds(ing), both at the very same ttime; hey good lookin's, what's cookin'sandy‽‽‽ :D #aryanas_my_queen
-is future you you me? time@doctor_whore!!! :D (so i look likæs you do) #boom-shakalaka-boom-shakalaka-boom-boom-boom-shakalakalakalaka(every sperm is sacred; every(-)"thing" is sanskrit) #coco(nuts)song
+ariana grande' 7ˢʰrings is the new i hold the whole world, in my hands vibe; in a superposition, both down on her kneeds(ing), and up on her kneeds(ing), both at the verysamevery ttime; hey 'ood lookin's, what's cookin'sandy‽‽‽ :D #aryanas_my_queen
+is future you you me? time@doctor_whore!!! :D (so i look likæs you do) #boom-shakalaka-boom-shakalaka-boom-boom-boom-shakalakalakalaka(every sperm is sacred; every(-)"thing" is sanskrit #perversion_inversion) #coco(nuts)song
