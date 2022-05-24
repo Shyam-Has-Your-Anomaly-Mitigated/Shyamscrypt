@@ -150,6 +150,8 @@ s/s/ḥ/; iff prevedic sanskrit is s, otherwise pāṇini final rule is respons
 is aṣṭādhyāyī prakrit, within the scope of the final rule? is "this" ("now") what sanksrit is? vā?
 i think sanskrit needs a self-aware recursive meta(in some sense of the word(s))grammar, and a sanskrit machine ('verse; physical manifestions (celestial, biobrains,..),..)
 /hypnoeeg|neurofeedback/ can see inside a childs mind, and we can guide them along; what do they "like", "not like",.. #intelli(g(en(ce)))warez
+arjuna' interpretive dancing based sign linguistic mudras based on sanskrit (the source of every"-thing"); how to cryptic message conference
+ this is the physical mnemonic system; temple∘/sanskrit|vedanga/
 
 prabhupada; turns out mccomas is a scottish name
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
