@@ -40,17 +40,19 @@ just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! 
 stonedg(ing)enius(/up|down/)∈my_inge(n)us"
 isoProlog÷isoUML÷isoDot = shyam∈s
 3i = i÷i÷i
-i|i|i'z not ISO
+i|i|i'z not ISO'z isomorphic
 i
-i'z
- 
-n
-o
-t
+i'z not
  
 I
 S
-O
+O'z isomorphic
+
+it's like a mirror∘reflection
+coconutsmeansislandgirls
+ggg = good gamer girls
+tti-me has you formally trapped #checkmatingseason
+s(t)ungod
 "
 
 ariana grande' 7rings is the new i hold the whole world, in my hands vibe; in a superposition, both down on her kneeds(ing), and up on her kneeds(ing), both at the very same ttime; hey good lookin's, what's cookin'sandy‽‽‽ :D #aryanas_my_queen
