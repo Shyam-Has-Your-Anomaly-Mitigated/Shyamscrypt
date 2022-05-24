@@ -30,3 +30,25 @@ my long term plan will /hunt|eat|../ them; gladiators, hunger games, keep what y
 
 backing up {data,genetically sustainable populations of life,..} to the moon, mars, and beyond, is a better idea; s/operation/mantra/ occupy every"-thing"
  at least 6+4+12+.. points; /sides|corners|mėdges|../ of a cube #ttime³ #śyāmasaṃdhi #śyāṃdhi #śyāmasamādhi #śyāmādhi #śyāmamahdi #śyāmāhdi
+
+just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! (planetary /cooling|heating|warming/, (extreme) weather, /worse|(more )?powerful/ than /runn(ing|ed)/ nuke$um,..)
+ around sun
+ around earth
+ around everywhere in between
+ all asteroids, meteorites,.. #cleansing∘the_ancients
+ 
+stonedg(ing)enius(/up|down/)∈my_inge(n)us"
+isoProlog÷isoUML÷isoDot = shyam∈s
+3i = i÷i÷i
+i|i|i'z not ISO
+i
+i'z
+ 
+n
+o
+t
+ 
+I
+S
+O
+"
