@@ -36,7 +36,7 @@ just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! 
  around earth
  around everywhere in between
  all asteroids, meteorites,.. #cleansing∘the_ancients
- i am the first, then fork 2 sisters, and 2 cousins; brahmā
+ i am the first, then fork 2 sisters, and 2 /cou?sinsters/; brahmā #triple_threat
 
 stonedg(ing)enius(/up|down/)∈my_inge(n)us"
 isoProlog÷isoUML÷isoDot = shyam∈s
