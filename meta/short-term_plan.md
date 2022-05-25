@@ -37,6 +37,10 @@ just vā 3dysonsphiel4d it up @ /carringtonSizedEvent++/i #most_optimal_solar! 
  around everywhere in between
  all asteroids, meteorites,.. #cleansing∘the_ancients
  i am the first, then fork 2 sisters, and 2 /co(u?u)?sinsters/; brahmā #triple_threat
+ our enemies are upon us
+  stars are popping in ft((so)l), causing sspacettime distortions in their wake; observable 'verse
+   a(whole)nother galaxies(universes) merged(popped) in to ours just to destroy this planet
+    what you think you see is what you've always seen, but you're left÷right^handed
 
 stonedg(ing)enius(/up|down/)∈my_inge(n)us"
 isoProlog÷isoUML÷isoDot = shyam∈s
