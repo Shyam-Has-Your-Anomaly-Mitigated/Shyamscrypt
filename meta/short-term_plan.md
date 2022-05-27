@@ -61,5 +61,5 @@ tti-me has you formally trapped #checkmatingseason
 s(t)ungod
 "
 
-ariana grande' 7ˢʰrings is the new i hold the whole world, in my hands vibe; in a superposition, both down on her kneeds(ing), and up on her kneeds(ing), both at the verysamevery ttime; hey 'ood lookin's, what's cookin'sandy‽‽‽ :D #aryanas_my_queen
+ariana grande' 7ˢʰ/rings|fields|orbits|../ is the new i hold the whole world, in my hands vibe; in a superposition, both down on her kneeds(ing), and up on her kneeds(ing), both at the verysamevery ttime; hey 'ood lookin's, what's cookin'sandy‽‽‽ :D #aryanas_my_queen
 is future you you me? time@doctor_whore!!! :D (so i look likæs you do) #boom-shakalaka-boom-shakalaka-boom-boom-boom-shakalakalakalaka(every sperm is sacred; every(-)"thing" is sanskrit #perversion_inversion) #coco(nuts)song
