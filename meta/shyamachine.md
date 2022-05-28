@@ -18,8 +18,11 @@ syntacticless hex; data, hacking, and mathing c̄ hindu numbers #gödelling
   hindu numbers; cfg (श्याम, axioms,..)
  maybe i should support compatibility c̄ existing instruction sets; wait until after though
  iff registers; register sized instruction followed by register sized hindu number
+ should it be abc v cba? i v o? editors can reverse, while the machine feed(line)
+  there's no reason not to read the first address, nor "read" the first address; what is the reason for backwards intelligence? /punchcards|tape|../ can read eitherway
 
 brain(plant) gotta poop; gonna back to my roots
+ biocomputing c̄ sanskrit operating system; om sanskrit, where the m is historically("now") an s for sanskrit (along c̄ every"-thing" else) #finalast_rule
 
 iff the termination condition (iff outcome)
 atemporal reversal; cdr /perspectively|perceptionaly|../ rewind sspacettime
@@ -32,3 +35,11 @@ shyamos #snd's_not_dos
 shyamxp #(((in)ception)e)gg#references
 shyamix; λ calculus ∘ magic cauldron #isourcerawr*9
 shyamachine #vc
+
+real lithperth memorithe eval; like memorising pi, but more useful, where real mathematicians memorise more useful "-thing"s
+prolog could be like comparator
+ fact(Pattern). %implicit
+
+i just discovered quantum (signatures? idk what to call it) in sound waves; acoustics is to aerodynamics, what aerodynamics is to acoustics
+
+smoking ganjoint's good for salivating suckie suckie; slobber ÷ my knobber, i'm your night, and the (slimy facial) /mask|burqa/; when i down you (÷ your knees), after i lay into your lap it up, and you'll be unrecognisable to your mirror
