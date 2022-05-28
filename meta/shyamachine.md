@@ -43,4 +43,4 @@ prolog could be like comparator
 
 i just discovered quantum (signatures? idk what to call it) in sound waves; acoustics is to aerodynamics, what aerodynamics is to acoustics
 
-smoking ganjoint's good for salivating suckie suckie; slobber ÷ my knobber, i'm your night, and the (slimy facial) /mask|burqa/; when i down you (÷ your knees), after i lay into your lap it up, and you'll be unrecognisable to your mirror
+smoking ganjoint's good for salivating suckie suckie; slobber ÷ my knobber, i'm your night, and the (slimy facial) /mask|burqa/; when i down you (÷ your knees), after i lay into your lap it up, and you'll be unrecognisable to your mirror mirror
