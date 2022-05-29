@@ -118,4 +118,4 @@ milf is in perpetual baby labour; "now" is forever, like a sspacettime anchor
 
 coffee house crime is a tracing spyware #dm
 
-i have my dick, i have your head, uʰ; now you're a dickhead #wubba-lubba-dub-dub-in-the-tub, where wubba = wiggle room ∈ your liptʰ, and lubba = soapy lube c̄ witch(fyy) to wash your mouth out, and dub = rubber "ducky", or "rubber" ducky, or "rubber" "ducky", or just rubber ducky, or?.
+i have my dick, i have your head, uʰ; now you're a dickhead #wubba-lubba-dub-dub-in-the-tub, where wubba = wiggle room ∈ your liptʰ, and lubba = soapy lube c̄ witch(fᵧᵧ #calculusub) to wash your mouth out, and dub = rubber "ducky", or "rubber" ducky, or "rubber" "ducky", or just rubber ducky, or?.
