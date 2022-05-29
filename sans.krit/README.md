@@ -146,6 +146,7 @@ how i want to learn sanskrit
  as an experiment; s/put|place/throw|toss/ parts∘speech scattered on the stage (for dramatic entrance; s/graffiti/confetti fireworks/) in choreograffical ordering to exercise their necks (along the journey), but for the focus points #hypno
   tempo, velocity; suspense,..
 atra tatra; /saḥ$/ is only possible for asti rule? asti rule exists for this purpose? rearrangement (is to sanskrit, what repurposement is to hacking) is another rule #krishnas'_arrangement(now i need to more thoroughly study bhagavad gita, mahabharata,..)
+ `nāsti` is probably sandhi for `na asti`; no royces' rule here after all, but there's a reason for every"-thing"
 s/s/ḥ/; iff prevedic sanskrit is s, otherwise pāṇini final rule is responsible #meta
 is aṣṭādhyāyī prakrit, within the scope of the final rule? is "this" ("now") what sanksrit is? vā?
 i think sanskrit needs a self-aware recursive meta(in some sense of the word(s))grammar, and a sanskrit machine ('verse; physical manifestions (celestial, biobrains,..),..)
