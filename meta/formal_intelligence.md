@@ -61,7 +61,7 @@ the same msg-hp; reduplication test, like the copycat test (context∘responses 
 kryten already set the bar for the turing test
 the chinese room
  language /teaching|learning/; from another languages (not necessarily the same birds; multiple = one new language) perspective
- lincos
+ lincos; what odddoes (db)gt odd mean?
  intelligence
  …
 
