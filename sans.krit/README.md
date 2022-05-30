@@ -154,6 +154,7 @@ i think sanskrit needs a self-aware recursive meta(in some sense of the word(s))
 arjuna' interpretive dancing based sign linguistic mudras based on sanskrit (the source of every"-thing"); how to cryptic message conference
  this is the visual spacial physical choreographical mnemonical system; temple∘/sanskrit|vedanga|../ #kata
 i now accept arabic digits are schwa deletion of hindu numerals, nor do i care for corrections beyond myself (did i ever? who wants to know me anyway; i sin c̄out axe); reading reality like a /memory|song|book|mover|../, while pussies climb my ladder(s) c̄ their /(split|cryptic|sandy?witch|..)tongues?/, and arseholes get what they /recursnake|hate|deserve|(free)will|want|../
+"reading" (den) is a good compound learning style; (dancing) /mudra(s|ḥ)??(express)?/ = compound interest
 
 prabhupada; turns out mccomas is a scottish name
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
