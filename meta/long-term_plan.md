@@ -119,3 +119,23 @@ milf is in perpetual baby labour; "now" is forever, like a sspacettime anchor
 coffee house crime is a tracing spyware #dm
 
 i have my dick, i have your head, uʰ; now you're a dickhead #wubba-lubba-dub-dub-in-the-tub, where wubba = wiggle room ∈ your liptʰ, and lubba = soapy lube c̄ witch(fᵧᵧ #calculusub) to wash your mouth out c, and dub = rubber "ducky", or "rubber" ducky, or "rubber" "ducky", or just rubber ducky, or?.
+
+short story: butterfly sfx! (i have a penn, i have a teller; zooty, zoot-zoot; pingu-pingu #kazoo)
+ i s/lick/look/ her up, and down
+ i walk up to her, and walk clockwise around her
+ until i return, to left before her front
+ then i lean in, and she leans in too
+ i move my lips clockwise around her /cl?ockface/, left to her ear
+ and i s/puddler/ponder/, "will you jump into my fire?"
+ she kisses me, and i feel it on my neck like a hickey
+  i feel her kiss (me on) my neck, like a hickey; i think this one is better(, maybe)
+ "is that a yes? (because) what you're wearing looks /(really|very)|(very|really)/ flammable(, so i think it suits the occasion; i can't remember what this was)"
+short story: what happens when an unstoppable force meets an immovable object? ((do) try this at home #nitwit)
+ (she asked if it was absolutely necessary for my hand to be on her bum cheek, while we were on the dance floor; some"-thing" (c̄up #1) about me getting a (game∘)boner(s(andy)/r//), left before…)
+ i just want to push my face into yours, but our noses are in the way
+ you know those people who jump into puddles? will you be my puddle, or should i be yours
+ she responds; i'll be your puddle, because i don't think s/i can/i will/ (be able to) jump
+ well that settles it; you look better than s/me/i do/, because i would jump just to see your face s/up close, and personal/closer (to mine)?/
+ even if it's for s/the splits?/a/ microsecond; left before our faces (super)collide into each other, and we die together (after riding together (like nuts in a nuthouse))
+ she's respondent; well /i('ll|'d)?/ look forward to seeing your(look of /(ho|te)rror/ on your face, as i chicken out, and move out of the way after you jump, as you /fall|plummet/ towards me #playing_chicken) face for that brief microsecond(as you /gr?o ?in|wet|soil/ your briefs) that i get to see my self in my ((very) own) reflection of your eye(ball; because we're just having a ball)s, left before our faces (super)collide into each other, and we die together (after riding together (like nuts in a nuthouse))
+there's more; just go back, and dm it (i c̄b(4)f(ucking))
