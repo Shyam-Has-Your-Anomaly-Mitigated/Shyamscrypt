@@ -139,3 +139,9 @@ short story: what happens when an unstoppable force meets an immovable object? (
  even if it's for s/the splits?/a/ microsecond; left before our faces (super)collide into each other, and we die together (after riding together (like nuts in a nuthouse))
  she's respondent; well /i('ll|'d)?/ look forward to seeing your(look of /(ho|te)rror/ on your face, as i chicken out, and move out of the way after you jump, as you /fall|plummet/ towards me #playing_chicken) face for that brief microsecond(as you /gr?o ?in|wet|soil/ your briefs) that i get to see my self in my ((very) own) reflection of your eye(ball; because we're just having a ball)s, left before our faces (super)collide into each other, and we die together (after riding together (like nuts in a nuthouse))
 there's more; just go back, and dm it (i c̄b(4)f(ucking))
+
+nook! nook!
+whose there?
+ice!
+ice who?
+icy you too sandy bottom /br?eaches/!
