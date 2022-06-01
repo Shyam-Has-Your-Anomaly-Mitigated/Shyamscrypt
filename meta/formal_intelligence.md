@@ -1,4 +1,6 @@
 ```
+mathematicalinguistics, and wʰy?
+
 neutrality v competitivity
  memorable moments are rewarding
  learn from mistakes
