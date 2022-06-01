@@ -1,5 +1,6 @@
 ```
 mathematicalinguistics, and wʰy?
+computationalinguistics, and wʰy?
 
 neutrality v competitivity
  memorable moments are rewarding
