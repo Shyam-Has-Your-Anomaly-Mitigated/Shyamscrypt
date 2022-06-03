@@ -5,5 +5,6 @@ $3.49 + habanero meal; prescribed once every ≥4h, 1killergg optiMaxiMally DELI
  <1g fat (20%) $1.35 75ml ($2.70 150ml) lee c̄ kee' (premium) soyasauce; i stopped cooking it in, and it's healthier than /cheese|olives/
                               ^ i just discovered ctrl+&; only at github
  <$1.00 1 habanero (bring back the carolina reapers; where the wild "-thing"s are) v <$7.00 <283g pataks' vindaloo paste (especially c̄ massel' chicken stock cubes) v <$2.80 <250ml master foods' hot chilli sauce (and friends, but i only ever tried each one once, and cam't remember; is sweet chilli sauce vegan yet?)
+ seed∘rapey-rapey tastes good c̄ rice; butttits ~96.7% fat ass fuck #cheesey,not_corney‽
 
 i think i need an l∘soyamilk for $1.60 for calciumetal (who needs wheat soup? the sugar probably isn't healthy), an orange a day for <$1.00 for /vitamania ?c/ (i just want mangoes!),.; maybe i should just order the vegvit, and grow ganja grow like a lightbulb
