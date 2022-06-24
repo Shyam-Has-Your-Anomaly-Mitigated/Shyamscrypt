@@ -73,3 +73,13 @@ cobra charming my hand whilst moving it, and my clown head, side-to-side, is lik
  sheppard tone
  girls can look intransitively better; like rolling (grimey dice)÷(mouldy matt), as complicated, and even more complicated than https://youtu.be/u4XNL-uo520
  c̄ the dusty ground @/mydas(t|i)/, drop dead gorgeous,.; just /seeing|hearing|../ = /drugs|meds|../∈{emotions,other feelings, other sfx, like (un)intelligence, eyes bleeding, godly powers, 'versal destruction,..} #/(hack|fuck)able/
+
+https://youtu.be/QFj-hF8XDQ0
+other experiments confirm they learn over ttime; the human is not doing (neuro)science, nor is the (neuro)science doing the human (any favours) 𝄞#(neuro)biology 𝄞#eeg 𝄞#fmri 𝄞#..
+there are so many unsolved problems; it's only too easy to make him look stupid(err) 𝄞#parker² 𝄞#curie 𝄞#..
+given more ttime under those circumstances; the bees could learn to adapt 𝄞#evolution 𝄞#..
+stupid humans thinking they're at the top of the food chain; mozzie(,) mozzie mozzie oi, oi oi
+stupid humans thinking they're at the top of the brain game; bzz(,) bzz bzz (2)bee, (or not 2)bee bee(linguistics)
+poking holes in leaves is equivalent to the aussie boomerang; a deeper scientific understanding of /(botanical|aerodynamical) science/
+role models: we need them, but they don't need us; they probably efficiently use more % of their brain ⁵(@cheeks; boom shakalaka boom shakalaka boom boom boom shakalakalakalaka)
+https://youtu.be/Sz7gr4hSkNQ
