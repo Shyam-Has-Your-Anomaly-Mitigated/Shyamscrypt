@@ -209,6 +209,7 @@ Now I think of saṃskṛta, and I believe it to be a matter of import. All our 
 punar milāmaḥ ॥
 
 i invented my first word during my spoken test @12022∘05∘31∘19∘30; chopsticks = `दण्डौ`, where `एतत्किमहं दण्डाभ्यां सह खादामीति वदामि`
+i also declined my own name; after the scotsman said traditionally they use rāma in india, since egenes uses nara
 Re: I just learned that devanāgarī has over a thousand letters‽
 by Shyam Nath - Monday, 14 March 2022, 8:15 PM
 namo namaḥ ।
