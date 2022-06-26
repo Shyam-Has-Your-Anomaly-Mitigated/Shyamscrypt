@@ -208,7 +208,7 @@ Bablu Das' mṛdaṅga book mentions four saṃpradāya; writing, "Mandarini is 
 Now I think of saṃskṛta, and I believe it to be a matter of import. All our fears made true. All is porous. All is broken. I must retrace. There's so much work to be done. Iff my experience holds true. Oh, this confounded situation. (http://www.chakoteya.net/DoctorWho/39-2.html)
 punar milāmaḥ ॥
 
-i invented my first word during my spoken test @12022∘05∘31∘07∘30; chopsticks = daṇḍābhyām
+i invented my first word during my spoken test @12022∘05∘31∘07∘30; chopsticks = `दण्डौ`, where `एतत्किमहं दण्डाभ्यां सह खादामीति वदामि`
 Re: I just learned that devanāgarī has over a thousand letters‽
 by Shyam Nath - Monday, 14 March 2022, 8:15 PM
 namo namaḥ ।
