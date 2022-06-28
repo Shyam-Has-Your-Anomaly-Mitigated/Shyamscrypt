@@ -1,5 +1,5 @@
 (c (pronounced see) real /deva?s/ use devanagari (sep (might too be c) devanagari doesn't support exotic vowel combinations besides {ai,au}))
-(default_hindu_numerals       [०,१,२,३,४,५,६,७,८,९])
+(devfawlty_hindu_numerals     [०,१,२,३,४,५,६,७,८,९])
 (international_hindu_numerals [0,1,2,3,4,5,6,7,8,9])
 (sep other indic scripts)
 (roman_numerals [i,v,x,l,c,d,m]) (c chronogrammable; हे १२०२२)
