@@ -24,6 +24,7 @@ namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?trance
 /'emory'a?lace/
  'emorising'val@lisp's'ore'roductive'han'ienumeralsandy"="π'umerals'nd'hy?'nyone'ould'ant'o'o'hat"‽
  'emorising'hatever't's'alled'n'rolog'hould'e'ven'etter";'o'ootstrap",'rn't'o'ootstrap"?'hat's'he'uery
+ 'emorising'uthentication's'robably'he'ost'seful'ho'itch'..
 
 +filename.veda for character
 +filename.vbs for VedaBaseSystem
