@@ -21,6 +21,10 @@ namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?trance
 -      📏 /magic|sufficiently advanced TechNoLogic/ /wand|(shaft|staff)/
 -the name of my barely legal judicial system
 
+/'emory'a?lace/
+ 'emorising'val@lisp's'ore'roductive'han'ienumeralsandy"="π'umerals'nd'hy?'nyone'ould'ant'o'o'hat"‽
+ 'emorising'hatever't's'alled'n'rolog'hould'e'ven'etter";'o'ootstrap",'rn't'o'ootstrap"?'hat's'he'uery
+
 +filename.veda for character
 +filename.vbs for VedaBaseSystem
 +filename.vi for soundness to use evil against itself like testing pens; click clock crack
