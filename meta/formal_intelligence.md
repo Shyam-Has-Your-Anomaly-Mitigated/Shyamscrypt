@@ -83,3 +83,5 @@ stupid humans thinking they're at the top of the brain game; bzz(,) bzz bzz (2)b
 poking holes in leaves is equivalent to the aussie boomerang; a deeper scientific understanding of /(botanical|aerodynamical) science/
 role models: we need them, but they don't need us; they probably efficiently use more % of their brain ⁵(@cheeks; boom shakalaka boom shakalaka boom boom boom shakalakalakalaka)
 https://youtu.be/Sz7gr4hSkNQ
+
+unknown format object? alien mode! (just put the smalltalk ufo into a context, assume err, and respond appropriately #bidirectionality #reversȧbility)
