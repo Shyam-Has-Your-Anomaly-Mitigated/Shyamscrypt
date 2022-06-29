@@ -85,3 +85,4 @@ role models: we need them, but they don't need us; they probably efficiently use
 https://youtu.be/Sz7gr4hSkNQ
 
 unknown format object? /(modal)? editor war/ alien /attack|defend/ mode! (just put the smalltalk ufo into a context, assume err, and respond appropriately #bidirectionality #reversȧbility)
+to sync, or not to sync? that is the diplomacy!
