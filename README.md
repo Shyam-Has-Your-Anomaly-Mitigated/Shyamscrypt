@@ -45,6 +45,7 @@ each namespace has four foremost mannerisms, where predicatory existence support
 escape = the terminator
 escape_cʰar = \e
 ground = `(not \e'\e')` 8< for electroncity; i forgot about lithp, but i've been thinking syntacticlesssanskrit for low level `1729 iti rejjī vadāmi`, where rejjī is the (nick)name of some specific register, and reminds me of shakespearean poetry >8
+i want to capture the essence of recursive duality; waves∘particles, and particles∘waves
 
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
