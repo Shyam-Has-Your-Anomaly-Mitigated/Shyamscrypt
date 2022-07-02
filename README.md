@@ -36,6 +36,16 @@ namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?trance
 prologic = prolog + ic = asic = as + ic; like a light bulb (the red nosed lisp machine; have you any wool?)
 lake = la ic = linear algebra; boolean algebra? bake!
 
+@ is like pointer (where b@a, c@b, c@@a, c@d; @@a = c, (@@a)@@ = {a}, c@ = {b,d} #backtracking)
+symbol
+@symbol
+symbol/a
+@symbol/a
+each namespace has four foremost mannerisms, where predicatory existence supports multiple arity (some languages don't for functions, but s/perl/lithp(th)?/ to the rethcue!!! :D); iff symbol = @symbol, this could be ungrounded #cfg
+escape = the terminator
+escape_cʰar = \e
+ground = `(not \e'\e')` 8< for electroncity; i forgot about lithp, but i've been thinking syntacticlesssanskrit for low level `1729 iti rejjī vadāmi`, where rejjī is the (nick)name of some specific register, and reminds me of shakespearean poetry >8
+
 zero cost abstractions; zero cost in maintenance, but overhead of runtime ∵ macros are abstractions
 (= (:- (quantum ++Qubit) (measure Qubit)) (:- (quantum Qubit) (and (ground Qubit) (measure Qubit))))
 (= (ground ++Electron) (and (ground Electron) (ground Electron))) (comment "it comes before after the implication but after before the implication, and so on; so ¼'") (comment "∴ 1³''' is 64 electrons")
