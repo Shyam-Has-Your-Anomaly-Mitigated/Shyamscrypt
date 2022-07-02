@@ -102,7 +102,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] to lie, or not to lie; that is the firefly poethinker, butt iprefer ergo bed (of nails) from post hoc ergo propter hoc (mind field s003e007)
  [x] contemporary verbal reading of 'scribed literature for optimal maximisation of comprehensionable i,shyam,prologger data retention policy v yogi auditory learning style (ki?)
   [x] sūrya noun uprise → prólógos verb downword → sūrya noun upset
-  [x] lah; they s/say/claim/ we have a 5 to 9 memory, but this can definitely be exceeded, and the s/education system/brits/ blamed; school holidays are for social filter #/(in|out|..)?filtration/
+  [x] lah; they s/say/claim/ we have a 5 to 9 memory, but this can definitely be exceeded, and the s/education system/brits/ blamed; school holidays are (weekends were for royals/garbage/market/ day, but they also thought they were a good idea) for social filter #/(in|out|..)?filtration/ #class
  [x] percussive {line,knot-theoretic topological circle,triangle}
   [x] hourly alarm @'clocks
  [x] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt #bookshelf
