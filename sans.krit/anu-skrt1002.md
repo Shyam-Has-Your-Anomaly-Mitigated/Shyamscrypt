@@ -259,3 +259,37 @@ Subject: Re\: Spoken Sanskrit test this Tuesday
 namo namaḥ ।
 I have a preference for the latest available slot.
 punar milāmaḥ ॥
+
+^cam't remember how i handled empty lines before
+Sent: Friday, June 24, 2022 9:59:27 AM
+Subject: Re: THE
+namo namaḥ |
+\n
+It looks like there's two different links.
+\n
+https://wattlecourses.anu.edu.au/mod/assign/view.php?id=2440066
+I put it here, but it looks like that due date is the 13ᵗʰ.
+\n
+https://wattlecourses.anu.edu.au/mod/assign/view.php?id=2440148
+This one says the 19ᵗʰ.
+\n
+punar milāmaḥ |
+
+Sent: Friday, June 24, 2022 5:22 PM
+Subject: Re: THE
+namo namaḥ |
+It shows I uploaded "19 June 2022, 7:49 PM".
+punar milāmaḥ |
+
+Attachment: Screenshot 2022-06-26 at 23-53-15 SKRT1002_Sem1_2022 Take-home Exam.png
+Sent: Sunday, June 26, 2022 11:57 PM
+Subject: Re: THE
+namo namaḥ |
+I took a screenshot, and attached it; https://wattlecourses.anu.edu.au/mod/assign/view.php?id=2440066
+punar milāmaḥ |
+
+i need to find my checksum script, and start uploading everywhere that makes sense
+https://swi-prolog.discourse.group/t/unicode-symbols-and-a-possible-numerical-paradox/5533/35
+ /d?dos|replay/, ace,..
+ {email,..} could be vulnerable; subjectively controlled \n,..
+ there are many other cracks in security; metadata,..
