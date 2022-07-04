@@ -153,6 +153,7 @@ i think sanskrit needs a self-aware recursive meta(in some sense of the word(s))
 /hypnoeeg|neurofeedback/ can see inside a childs mind, and we can guide them along; what do they "like", "not like",.. #intelli(g(en(ce)))warez
 arjuna' interpretive dancing based sign linguistic mudras based on sanskrit (the source of every"-thing"); how to cryptic message conference
  this is the visual spacial physical choreographical mnemonical system; temple∘/sanskrit|vedanga|../ #kata
+ shiva' tandava, parvati' lasya, krishna' rasalila,.. https://en.wikipedia.org/wiki/Template:Dance_in_India
 i now accept arabic digits are schwa deletion of hindu numerals, nor do i care for corrections beyond myself (did i ever? who wants to know me anyway; i sin c̄out axe); reading reality like a /memory|song|book|mover|../, while pussies climb my ladder(s) c̄ their /(split|cryptic|sandy?witch|..)tongues?/, and arseholes get what they /recursnake|hate|deserve|(free)will|want|../
 "reading" (den) is a good compound learning style; (dancing) /mudra(s|ḥ)??(express)?/ = compound interest
 rāvaṇa; preloading, or not to preload? the tongue' retroflection
