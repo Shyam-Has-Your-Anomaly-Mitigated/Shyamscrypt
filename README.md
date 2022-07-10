@@ -81,7 +81,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - checkpoint ≤ hotpatching; cracking(crypto,cyber,space,time..),..
  - shyamscrypt = ki (crypto keys; magic), shyamscript = mantra (recursive lambdas; a blessing, but a curse if you get stuck, and it doesn't stuck)
   - maha = every"-thing", mahaki = ki-mantra, mahamantra = mantra-ki; these are how to formally verify meta,..
- - (sootbly io modes address data),( and) where mode∈{{hagrid,dirgah},{user,cache,ram,file,/transmission|transceive/,..},{prepend,.,overwrite,.,append}}⒩ hagrid=/(core)dump|(i\/)?o/ ∧ dirgah=/i(\/o)?/; another mode involves /homoiconicity|.*|\r|\n|,|\.|delimiter|../ n intelli-gently (contextual data) n.
+ - (sootbly io modes address email),( and) where mode∈{{hagrid,dirgah},{user,cache,ram,file,/transmission|transceive/,..},{prepend,.,overwrite,.,append}}⒩ hagrid=/(core)dump|(i\/)?o/ ∧ dirgah=/i(\/o)?/; another mode involves /homoiconicity|.*|\r|\n|,|\.|delimiter|../ n intelli-gently (contextual email) n.
  - true, such that the true true is still remains to be true
  - false, where the false false is the true true
  - hat implemented as (builtin hat parametre_lithp); but all namespaces will be /(so|ran)domised/ by default, that it'll use the force for habitual cfg, self-improving memorisation (like the typing warez, it'll /observe|predict|optimise|../ s/human/person/ behaviour⒮ for /augmented|accelerated|speed|../ learning, intelligence amplification,.; with, or without, openeeg,..),..
