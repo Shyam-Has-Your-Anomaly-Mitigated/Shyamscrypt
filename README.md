@@ -85,7 +85,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - true, such that the true true is still remains to be true
  - false, where the false false is the true true
  - hat implemented as (builtin hat parametre_lithp); but all namespaces will be /(so|ran)domised/ by default, that it'll use the force for habitual cfg, self-improving memorisation (like the typing warez, it'll /observe|predict|optimise|../ s/human/person/ behaviour⒮ for /augmented|accelerated|speed|../ learning, intelligence amplification,.; with, or without, openeeg,..),..
- - /shyam(script|scrypt)?|students?' dialect|built-?in|sootb(-?ly)?|../
+ - /shyam(scrẏpt)?|((shyamscrẏpter|student|hacker|..)(s|z)?)' dialect|built-?in|sootb(-?ly)?|../
 [ ] reading den:
  [x] my flag is maha logically primed; is ali a lie?
   [x] rhs v lhs; yin v yang (i'm half /empty|full/ ∘ https://youtu.be/qpeP4Er5PYE)
