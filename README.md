@@ -87,6 +87,8 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
  - hat implemented as (builtin hat parametre_lithp); but all namespaces will be /(so|ran)domised/ by default, that it'll use the force for habitual cfg, self-improving memorisation (like the typing warez, it'll /observe|predict|optimise|../ s/human/person/ behaviour⒮ for /augmented|accelerated|speed|../ learning, intelligence amplification,.; with, or without, openeeg,..),..
  - /shyam(scrẏpt)?|(((shyamscrẏpt|(ha|bo)x)er|student|..)(s|z)?)' dialect|built-?in|sootb(-?ly)?|../; computer science education randomly becomes an experimental experience #shyam's_coolest
   - :(,shyam,s/parameter_lithp/./) is rng enough; single-width sspaces are optimal, sspace is symbolic (cfg /leading|trailing/ sspaces #sugar_daddy), does shyamscrypt need diksas? shyammotations! (future) you you're ,grounded v 'enlightened; what else is there‽ #rng #cfg
+  - "shyam..." ("shyam[,]"); students must "suck" (ů=open,c=shyamwich,k=close)
+  - shyamalipi' shyam(scrẏpt)-cumplete(https://swi-prolog.discourse.group/t/unicode-symbols-and-a-possible-numerical-paradox/5533/5) non-karable xarz'll (w is a semivowel; sanskrit semivowels are semiconsonants) be respected (or'll't?), but unicode controls willn't
 [ ] reading den:
  [x] my flag is maha logically primed; is ali a lie?
   [x] rhs v lhs; yin v yang (i'm half /empty|full/ ∘ https://youtu.be/qpeP4Er5PYE)
