@@ -130,7 +130,7 @@ short story: butterfly sfx! (i have a penn, i have a teller; zooty, zoot-zoot; p
  she kisses me, and i feel it on my neck like a hickey
   i feel her kiss (me on) my neck, like a hickey; i think this one is better(, maybe)
  "is that a yes? (because) what you're wearing looks /(really|very)|(very|really)/ flammable(, so i think it suits the occasion; i can't remember what this was)"
-short story: what happens when an unstoppable force meets an immovable object? ((do) try this at home #nitwit)
+short story: what happens when an unstoppable force meets an immovable object? (one glitches into the other n then either; glitches out v resistance is futile #assimilationvparasitionvparturitionvevolutionv..) ((do) try this at home #nitwit)
  (she asked if it was absolutely necessary for my hand to be on her bum cheek, while we were on the dance floor; some"-thing" (c̄up #1) about me getting a (game∘)boner(s(andy)/r//), left before…)
  i just want to push my face into yours, but our noses are in the way
  you know those people who jump into puddles? will you be my puddle, or should i be yours
