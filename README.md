@@ -1,6 +1,6 @@
 ```
 namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?tranced mind|../ control the strange solar flares into a supernova (using explosions to mkexplosions c̄ explosions, while wearing sunnies fo' yo' titties to fully appreciate the hotness iff you cam't otherwise keep those unflinchingly pretty little /peep(err?)s|lids|lashes|brows|(got|eye)?balls|nipples|../ open ∵ cool guys don't look at explosions, while dick in a box, while 18:46 is just around the t³ corner), like /f(app|uck)ing/ as i came in like a wrecking ball, while seismography can be used to /see|hear|../ epicantscuttle (aave is untouchable, while everybody was kung fu fighting, and cream-faced cloud atlas' conch'r'verse; it's all sanskrit to me, while what does latin give you? four sutras, confusion menu items; retelling epicantholes i use chopsticks each, and every, ttime i "see" them c̄ (from) my #1 squinty ī), butt we could target other /constellations|galaxies|../, and it could boomerang from milliways reading sspacettime'↔reality, but is datamining observationally paradoxical? it is iff you try to change the "future", which is everywhere through ttemporal entanglement #lensing,..
-# Shyamscrypt; "good forover", "can reverse a self destruct sequence, and rain coats"
+# /Shyamscr(y|ȳ)pt/; "good forover", "can reverse a self destruct sequence, and rain coats"
 -               i was only expressing solidarity; s/low? and behold/loy-allo?y (chocolate salty beskar dragonballs)?/ blame me?
 -               🌹
 +from the ash I rose
