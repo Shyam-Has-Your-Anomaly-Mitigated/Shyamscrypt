@@ -114,7 +114,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   [x] hourly alarm @'clocks
  [x] additive mnemonics; the books themselves serve this purpose c̄ the added benefit of easy access like upskirt #bookshelf
  [x] https://www.open.edu.au/courses/subjects?keyword=sanskrit
-   [x] enrolled: ⅛
+   [x] enrolled: ¼
   [x] https://youtu.be/PDQZ9C7yuDg
   [x] https://youtu.be/qxVu1CfGNEo
   [x] https://youtu.be/_1qAmGdNaFA
