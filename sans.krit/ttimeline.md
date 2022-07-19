@@ -95,6 +95,7 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
   there's over a thousand letters
 𝘺𝘰𝘨𝘪[476,550]ce https://en.wikipedia.org/wiki/Aryabhata
 𝘺𝘰𝘨𝘪[5ᵗʰ,6ᵗʰ]ce https://en.wikipedia.org/wiki/Bodhidharma
+𝘺𝘰𝘨𝘪[≤531,579]ce dewasarm; god /a?sarm.*|of chaturanga/
 [570,632]ce https://en.wikipedia.org/wiki/Muhammad
 𝘺𝘰𝘨𝘪[598,668]ce https://en.wikipedia.org/wiki/Brahmagupta
 [622,750]ce https://en.wikipedia.org/wiki/Early_Muslim_conquests
