@@ -1,0 +1,8 @@
+#!/bin/sh
+sync;
+emacs "$1".dot;
+sync;
+dot -Tsvg "$1".dot -o "$1".svg;
+sync;
+exit;
+dot2tex "$1".dot|pdflatex;#dot2tex<<<'digraph{python->tikz}'
