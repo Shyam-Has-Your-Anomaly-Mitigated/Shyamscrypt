@@ -9,3 +9,6 @@ $3.49 + habanero meal; prescribed once every ≥4h, 1killergg optiMaxiMally DELI
  seed∘ganja∘shiva tastes good c̄ rice; the brand that's so curdey af #seedey,not_huskey‽
 
 i think i need an l∘soyamilk for $1.60 for calciumetal (who needs wheat soup? the sugar probably isn't healthy), an orange a day for <$1.00 for /vitamania ?c/ (i just want mangoes!),.; maybe i should just order the vegvit, and grow ganja grow like a lightbulb
+other (bean|nut|fruit|vegetable|bamboo|mineral|elemental|quantum|duality|..) milks; /coco(bean|nut)?/ milk + /coco|(edible)? chocolate (like milk powder, but't i've triedn't yet)?/ = hot chocolate ∈ m∘t
+(bubble; is this /vegan|caffenated|../?) tea (hemp(er(r))ed)ganja #decarb(the legal industry doesn't know about this loophole)
+/vegan cheesie|chillie/(these might not exist yet) p(otatoe)ringles(s) are good for mexicanoes, (chilli + whatever; s3 branded) hummus; snv are dipless chips, and right now i have cravings for more, and the shop opens in half an arn, and it takes half an arn to get there, and i'll eat the first first, and save the seconds for my pet 'gator in the deep bowels of my sto(r)mache #/ma?xæy/
