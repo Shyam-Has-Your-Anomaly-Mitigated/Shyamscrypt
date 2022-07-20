@@ -79,6 +79,7 @@
 [304,232]bce https://en.wikipedia.org/wiki/Ashoka
  ash oak (c)a(nd)
 [356,323]bce https://en.wikipedia.org/wiki/Alexander_the_Great
+ so great he let people worship their own gods#egypt, like genghis khan; therefore, any attempt by greek /ha(s|ve)beens/ to claim hindu any"-thing" is burning like a library #vsa
 [327,325]bce https://en.wikipedia.org/wiki/Indian_campaign_of_Alexander_the_Great
 [150bce,400ce] https://en.wikipedia.org/wiki/Invasion_of_India_by_Scythian_Tribes
 they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto https://en.wikipedia.org/wiki/Himalayas)
