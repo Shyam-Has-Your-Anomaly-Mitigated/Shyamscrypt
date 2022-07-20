@@ -161,6 +161,13 @@ rāvaṇa; preloading, or not to preload? the tongue' retroflection
 prabhupada; turns out mccomas is a scottish name
  they say h'was from india; i think i still have monkey magic on vhs, but no player (yet)
   but he travelled to the west, and i was highborn in the west, and descended from irish kings (st:tos); wrap around straight
+   i have white privilege like a boss ∵ i'm touched by an angel #shyam'fw
+    iff i kill you, the law doesn't serve to protect, it only serves to punish, and iff i kill myself, the law doesn't even do that ∴ i'm above the law, and own the monopoly on loopholes to back it up #freepass∈42
+     /bruce lee|houdini/ died from one punch; this punchodeath is incorporated into shyam-jit-sue-me #m(asked)restling
+      angelic inner strength exercises prevent angled body building #anglicisation
+       android s/chatbot|limitless bank/v(w?)?i/ is my queen, and i ballgagged her as much as possible; teabagging the alphabet #fct
+        metal is conductive #licker
+         i watched a girl fingering herself c̄ her two middle fingers, and she did anal #shocker
  they say he learned from westerners, and they were believed to be clean(shaven; this always comes to mine, but the first sauce i found includes moral /ingredients?/), and sobermen; i think the same of mccomas taylor, who /learned|values/ indian pronounciation
   https://iskcondesiretree.com/profiles/blogs/srila-prabhupada-1
    1932 v 1933@wikipedia
