@@ -89,6 +89,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - :(,shyam,s/parameter_lithp/./) is rng enough; single-width sspaces are optimal, sspace is symbolic (cfg /leading|trailing/ sspaces #sugar_daddy), does shyamscrypt need diksas? shyammotations! (future) you you're ,grounded v 'enlightened; what else is there‽ #rng #cfg
   - "shyam..." ("shyam[,]"); students must "suck" (ů=open,c=shyamwich,k=close)
   - shyamalipi' shyam(scrẏpt)-cumplete(https://swi-prolog.discourse.group/t/unicode-symbols-and-a-possible-numerical-paradox/5533/5) non-karable xarz'll (w is a semivowel; sanskrit semivowels are semiconsonants) be respected (or'll't?), but unicode controls willn't
+ - mkay dir; like perl, but implemented using s/dexin'?/dexout'?/ #decouting #crufting_recipe #hackcruft #!..
 [ ] reading den:
  [x] my flag is maha logically primed; is ali a lie?
   [x] rhs v lhs; yin v yang (i'm half /empty|full/ ∘ https://youtu.be/qpeP4Er5PYE)
