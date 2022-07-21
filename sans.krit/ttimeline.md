@@ -116,7 +116,27 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 𝘺𝘰𝘨𝘪[1887,1920]ce https://en.wikipedia.org/wiki/Srinivasa_Ramanujan
 𝘺𝘰𝘨𝘪[1896,1977]ce https://en.wikipedia.org/wiki/A._C._Bhaktivedanta_Swami_Prabhupada
  western corruption; eitherway #bookchanges(a decade after his apparent death, or i was born a decade after the book changes; i can't remember)
-𝘺𝘰𝘨𝘪[∞,11989,∞]he श्याम 
+𝘺𝘰𝘨𝘪[∞,11989,∞]he श्याम
+☑ [2022.00,2022.50] sanskrit 01 @anu
+~ [2022.50,2023.00] sanskrit 02 @anu; i just found the gods!!! :D (not just birthmarked on my arm; the middle dot looks like a fish, bow & arrow,.. #dasavatara; shiva is denser, followed by brahma, and then vishnu; "they" (i) say all their incarnations are there)
+                                                                                                                                     pen & t'ler; t'ler escapes his "straight" jacket?
+                                                                                                                                                                                  cl'setₔ
+☐ [2023.00,2023.50] sanskrit 03 @anu
+☐ [2023.50,2024.00] sanskrit 04 @anu
+☐ [2024.00,2024.50] sanskrit 05 @anu
+☐ [2024.50,2025.00] sanskrit 06 @anu
+☐ [2025.00,2025.50] sanskrit 07 @anu
+☐ [2025.50,2026.00] sanskrit 08 @anu
+☐ [2026.00,2026.50] sanskrit 09 @anu
+☐ [2026.50,2027.00] sanskrit 10 @anu
+☐ 2027 `ignore the chinese pandemic && mv canberra sydney`
+☐ [~2027+0÷3,~2027+1÷3] master plan @unsw
+☐ [~2027+1÷3,~2027+2÷3] master plan @unsw
+☐ [~2027+2÷3,~2027+3÷3] master plan @unsw
+… the rest of my master plan @unsw
+☐ 25y padding
+☐ 18y pension
+☐ 2073o07o04 i'm on a boat, and i'm burning it down; surfing down the ganga, through a holy town; smoking up the ganja, while being folded by my decidership to safety at a sspacettime of my deciding 10y before this in any base including fractional, (beyond) negative,.. #physical_manifestations #manifestational_physics(engine)
 23:59 is an interesting ttime; 12400 could be the end (2419 from my name; probably when i get bored, and rewrite every"-thing" all over again #meta)
 
 the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
