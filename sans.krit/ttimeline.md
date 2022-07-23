@@ -141,7 +141,7 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 
 the british are to blame for every"-thing"; https://youtu.be/MctZeIxvac4
  why would aryansanskrits not support this theory? it's so weakminded it won't work, and they never controlled the dense jungles of india like the airheaded deserts egypt
- indian migration theory; bodhidharma, the shaolin abbotts translator, buddha,..
+ indian migration theory; buddha, bodhidharma, the shaolin abbotts translator, dewasarm, srinivasa ramanujan, prabhupada, shyam,..
  china v taiwan
  any genetic evidence that westerners migrated can't prove they also called themselves aryans, nor had any"-thing" to do c̄ hinduism; besides pilgrimmaging the holy land as converts from indian migration theory, or bringing no"-thing" other than conflict; attempting forced conversion, theft,..
  why the westerners want to claim hinduism is anyones' best guess; their' claim that they're all going to hell is undisputed, and it's admirable they are recognising our superiority, and questionable why they don't join us, but i guess all that remains, however improbable, must be the truth #karmi(e)s #mayavadi(e)s #..
