@@ -1,3 +1,7 @@
+```
+teaching roman' latin is (not(for any"-thing" else)) a good idea iff students learn superiorityoindic scripts; mahabharata = ma ha bha ra ta = m a h a bh a r a t a ≠ m a h a b h a r a t a = ma ha b ha ra ta = mahabharata, where indic is so perfect that mahabharata ≠ mahabharata
+ /self-(realisations|enlightenment)/ v ttime-saving demonstration; demo iff studenterrmot self-improving, where the test is iff passing students use indic exclusively, where passing is 100%
+
 śyāmaḥ   śyāmau     śyāmāḥ          |
 śyāmam   śyāmau     śyāmān          |
 śyāmena  śyāmābhyām śyāmaiḥ         |
