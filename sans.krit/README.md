@@ -39,7 +39,7 @@ do all .md files auto soft wrap? 1s indentation is now an option; it never used 
 
 the sanskrit memory nagari; become a walking (talking) encyclopædia, and a maha memory guru (maha saha jaya)
  the solar system is a good (ttemporal) memory loka; constellations, planets, moons, orbital patterns in ttime, geography, cultures, histories, music, art, celebrities, movies, tv shows, books, my own lifettime of memories,..
- (eval /lisp|prolog|pi|../)
+ (eval /lisp|prolog|pi|../) #meta
 chanting the hindu number of the verse; syllable counts, metre (is this footage?), panini' (grammatical,..) completeness,.. #parity
 devanagari means the city of the gods; house building script, where the roof goes on last, and the gods walk on no"-thing"(? history,sunyata,assumptions; or it's implicit since yogis need a cave, where there's common ground), and there are millions of gods, where god comes from go(d(s)), my spiritual animal!
 buddha /penetrated|infiltrated/ the east (northern shaolin proves resistance is futile; northern korea, the usa nuked the world for five eyes,..), wealth stolen by the westerners (karma is a game of pass the parcel, and every"-thing" comes from hindues #dusty_ground), /russianorth(erners|folk)/ nuclear wasteland beyond the wall (they s/freed (themselves from)?/killed off/ their' genetic intelligence; do you even muslim? islam? game∘thrones milk?), we have centrelink up here in the south for an early retirement (sanskrit is an ideal retirement project); gañjā in the southern hemicontinent, but 1% total hemicontinent (i was born in paddington, sydney; eastern hemicontinent #booktest(v avatar toytest), and further from the north)
