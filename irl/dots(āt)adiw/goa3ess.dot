@@ -108,12 +108,12 @@ digraph "global hover text" {
   {rank=same absolutivity -> monday -> tuesday -> wednesday -> thursday -> friday -> saturday -> sunday}
  }
 
- sanskrit2a[label="class #" tooltip="sanskrit@[10:00,12:00]" fillcolor="#FF8800" shape=star style=filled]
- sanskrit2b[label="class #" tooltip="sanskrit@[19:30,21:00]" fillcolor="#FF8800" shape=star style=filled]
- {rank=same a12 eos2a[label="eoc #" tooltip=endoclass color="#FF8800"]}
- {rank=same a21 eos2b[label="eoc #" tooltip=endoclass color="#FF8800"]}
- {rank=same a10 sanskrit2a}
+ sanskrit2a[label="…class #" tooltip="sanskrit@[10:00,12:00]\nwatch recording" fillcolor="#FF8800" shape=star style=filled]
+ sanskrit2b[label="@class #" tooltip="sanskrit@[19:30,21:00]\ngoto" color="#FF8800" style=filled fillcolor="#FFFFFF"]
+ {rank=same a17 sanskrit2a}
+ {rank=same a19 eos2a[label="eoc #" tooltip=endoclass color="#FF8800" style=filled fillcolor="#FFFFFF"]}
  {rank=same a19 sanskrit2b}
- {edge[style=dotted arrowhead=none] monday -> sanskrit2a eos2a -> sanskrit2b}
- {edge[color="#FF8800"] sanskrit2a -> eos2a sanskrit2b -> eos2b}
+ {rank=same a21 eos2b[label="eoc #" tooltip=endoclass color="#FF8800" style=filled fillcolor="#FFFFFF"]}
+ {edge[style=dotted arrowhead=none] monday -> sanskrit2a}
+ {edge[color="#FF8800"] sanskrit2a -> eos2a -> sanskrit2b sanskrit2b -> eos2b}
 }
