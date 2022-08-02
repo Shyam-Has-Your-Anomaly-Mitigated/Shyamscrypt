@@ -691,6 +691,7 @@ hey (there) teddy bear eyes; i'm going to fuck you so hard, and fast, that you' 
  (future) you you are 16; going on 17
 gargling tbagging; https://youtu.be/UK-68X-pM_Q?t=12m54s#13m03(i loop this when i take a gañjā trip, and i /edit|zoom/ it in my mind in many different ways; it sounds like red dwarf when she pushes it)
 i dream of genie; rubbing my magicalamp, and popping 'round for tea; watching me pull a bunny girl out of my hat #f₍w₎ #(/gobble|(air speed velocity ∘ a virginlai?den) swallow/)²
+i'm the pilot of your cockpit
 
 this repo is 100% https://en.wikipedia.org/wiki/GAP_(computer_algebra_system)
 i never even he(a)rd about this before in my life; this whole time even
