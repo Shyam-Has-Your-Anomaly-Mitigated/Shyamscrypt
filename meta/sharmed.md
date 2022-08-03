@@ -6,3 +6,4 @@ c(li)pboard; decentralised security (like vm s(hare; upstream, in a world full o
   /equational|algorithmic/ crypto #meta(probably why homoiconicity has been propaganda'd as far away from the industry as possible; state managing oops is just the easiest to crack (nobody /hacks|memorises on a ((computerless `(s(andy)os(and,?hi))`)? survival)? beach somewhere #mmmarge'pizza/ their evals anymore), and smalltalk comes from l(isp)i(pl)s(malltalk)p(minikanren) comes from ipl comes from sanskrit (just like every language) comes from sanskrit)
 (sorting,..) algorithms can be optimally boosted; single pass to determine optimal algorithm could save ttime, where savings are comparative #intelligence
 sanskrit autonaming; problem solved!!! :D
+optimisation is better thought as collapsing waveforms
