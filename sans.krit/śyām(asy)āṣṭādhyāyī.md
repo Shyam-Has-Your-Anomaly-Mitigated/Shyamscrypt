@@ -9,6 +9,8 @@ teaching roman' latin is (not(for any"-thing" else)) a good idea iff students le
  there's a chance aspirated consonants are just ligatures, like conjunct consonants; i now consider /(fewer|simpler) (varnamala|akshara)/, until theorem /prove(n|d)/ otherwise; is proofed a word? from proof reading; i proofed it in a "solid" day! so solid it counts from sunset the day before to sunrise the day after…half empty ∋ 0.25, 0.75 ∈ half full, 0.5 = superposition
  do only westerners call them semivowels? semiconsonants seems more appropriate…for hsśṣ; i guess…
 
+rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
+
 śyāmaḥ   śyāmau     śyāmāḥ          |
 śyāmam   śyāmau     śyāmān          |
 śyāmena  śyāmābhyām śyāmaiḥ         |
