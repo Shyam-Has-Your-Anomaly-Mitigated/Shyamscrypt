@@ -15,6 +15,7 @@ sanskrit can be read in any way; it's possible the understanding is prefix, but 
 linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; saying masculine first in sound, puts feminine on the rhs in inky=λsanskrit∘ash+water, where he is on her rhs from her perspective (assuming left=masculine, and right=feminine; in sanskrit #unconfirmed)
  schwa deletion v singing reversal v..
  masculine /dominates|divides (into)/ feminine
+ patriarchick society; whose yo' daddy? i'll give you flo'
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
