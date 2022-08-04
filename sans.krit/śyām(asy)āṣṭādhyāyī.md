@@ -11,7 +11,7 @@ teaching roman' latin is (not(for any"-thing" else)) a good idea iff students le
 sanskrit can be read in any way; it's possible the understanding is prefix, but the poetry sands it in place #inhabitance #ecnatibahni #..
  like single numeral multiplication, where {10s,11s,12s,..} are most useful for teaching multiple numeral multiplication; √roots -> stems -> (in)declinab9ndings -> internal sanding -> external sanding, at some point(s) i can reverse the fixation…
  so hear the whole story into shor2erm3mory c̄ memorisation techniques, add sand, and s/reverse/pick it apart/ #mental_gymnastics #worf #neuroplasticity #dev #..
- /ligatures|conjunct consonants|sanding/ in indic scripts is more mental acrobatics, where aerobics stretches mind(u) #kungfu
+ (picto)graphix(mnemonic) /ligatures|conjunct consonants|sanding/ in indic scripts is more mental acrobatics, where aerobics stretches mind(u) #kungfu
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
