@@ -24,7 +24,7 @@ p6pg4: they take advantage of most people not speaking this variety of langauges
 p6pg5a: the author seems to be confirming the first (unconfirmed) statement, but spoken language is a consideration for the formation of regular lines #haiku
 p7: blank
 p8: plate i (vide buhlers' indian brahma alphabet, plate i. and p. 58ff., and also buhlers' indian palaeography, p. 11.), missing the meaning of these symbols; probably intentionally ∵ trivial geometry
-@18:52 i can't focus enough to continue this; i'm not even speed reading, nor speaking ∵ paragraphical notes, and i'm thinking about dropping out…
+@18:52 i can't focus enough to continue this; i'm not even speed reading, nor speaking ∵ paragraphical notes, and i'm thinking about dropping out… (and i'm fast & furious right now!!! :D)
 p9pg1b:
 p9pg2:
 p9pg3:
