@@ -13,6 +13,7 @@ sanskrit can be read in any way; it's possible the understanding is prefix, but 
  so hear the whole story into shor2erm3mory c̄ memorisation techniques, add sand, and s/reverse/pick it apart/ #mental_gymnastics #worf #neuroplasticity #dev #..
  (picto)graphix(mnemonic) /ligatures|conjunct consonants|sanding/ in indic scripts is more mental acrobatics, where aerobics stretches mind(u) #kungfu
 linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; saying masculine first in sound, puts feminine on the rhs in inky=λsanskrit∘ash+water, where he is on her rhs from her perspective (assuming left=masculine, and right=feminine; in sanskrit #unconfirmed)
+ schwa deletion v singing reversal v..
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
