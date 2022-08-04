@@ -23,3 +23,7 @@ McC:
 
 पुनर्मिलामः ॥
 when
+
+Re: Yads and Tads
+by Shyam Nath - Thursday, 4 August 2022, 6:31 PM
+Now I think it should be saḥ naraḥ mama mitram asti, and yaḥ bālaḥ mama putraḥ asti, respectively; but the edit window has passed.
