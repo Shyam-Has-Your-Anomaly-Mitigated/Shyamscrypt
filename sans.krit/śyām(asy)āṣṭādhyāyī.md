@@ -28,3 +28,5 @@ rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (men
 śyāme    śyāmayoḥ   śyāmeṣu         |
 śyāma    śyāmau     śyāmāḥ          |
 (ca)     iti        /(vad|smar)āmi/ ‖
+
+times tables; step(wise) counting, clock(wise) counting, vampirical counting,..
