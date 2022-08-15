@@ -16,7 +16,7 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
  schwa deletion v singing reversal v..
  masculine /dominates|divides|penetrates (into)/ feminine
  patriarchick society; whose yo' daddy? i'll give you flo'
-lipi(kara) v sanskrit
+(lipi(kara) v sanskrit) = /idol|læ̇r #selfie/ v /real|lodi/
  avagrāha
  daṇḍa(ḥ)
  daṇḍāḥ
