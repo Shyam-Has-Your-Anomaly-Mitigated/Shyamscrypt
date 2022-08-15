@@ -18,8 +18,8 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
  patriarchick society; whose yo' daddy? i'll give you flo'
 lipi(kara) v sanskrit
  avagrāha
- danda
- double danda
+ daṇḍa(ḥ)
+ daṇḍāḥ
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
