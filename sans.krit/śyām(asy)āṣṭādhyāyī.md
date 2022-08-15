@@ -16,6 +16,10 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
  schwa deletion v singing reversal v..
  masculine /dominates|divides|penetrates (into)/ feminine
  patriarchick society; whose yo' daddy? i'll give you flo'
+lipi(kara) v sanskrit
+ avagrāha
+ danda
+ double danda
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
