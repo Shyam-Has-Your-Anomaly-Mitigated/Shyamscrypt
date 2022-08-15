@@ -9,4 +9,4 @@ c(li)pboard; decentralised security (like vm s(hare; upstream, in a world full o
   principia mathematica {additional,..} proof; wait, that's not bourbaki, and what about category theory?
 sanskrit autonaming; problem solved!!! :D #namespaces #(personalvbusinessvbuisnessvbidnessvbetnessv.. #bureaucracy)docommentation
 optimisation is better thought as collapsing waveforms
-colour-coded modes,..
+colour-coded modes,.; psycho priming
