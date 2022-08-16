@@ -11,7 +11,7 @@ namaste-e namaste-iy-e namaste namaste namaste e e e..; /weather|((i|e)n)?trance
 -                =
 -                i
 -now you can read between the lines in negative space; \n+the eye dot equals, tldr more to come
-+life is a game of snakes, and ladders
++(game of) life is a game of snakes, and ladders
 -                                     ; where 𝄞3.5×10⁷ maha mantras = cheat code for /(कर्म|धर्म|..)-debt/ $ouled purification (bankruptcy), along c̄ /dec(ad?e)-log/ bodily purification (patraṁ puṣpaṁ phalaṁ toyaṁ ≈ fruitā́ryān; what is that symbolichar? ā́), and /(sanskrit|mystic)-sfx/ mindful purification (yuga relativity v absolutivity (/(t|s)(travel|machine)/), from linguistic internalisation #cryptic), and.. #yoga #yǒga #yůga #yuga #/llalotw,?whis/
 -                                     ; just keep chanting, just keep chanting, chanting, chanting, chanting, what do we do? we chant, chant, chant!
 ~
