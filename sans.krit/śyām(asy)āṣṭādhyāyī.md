@@ -1,6 +1,6 @@
 ```
 `(tr script devanagari)`8<maybe just `(= roman script)`, and english is assumed, but later `(= shyamalipi script)`, and shyamskrit is assumed; shyamskrit will probably be hosted by sanskrit, before self-hosting for redundancy backups; a tree is a tree in sanskrit>8
-8<chajaka is the first /ununderstandable|overstandable/ word
+8<chajaka is the first /ununderstandable|(over)?standable/ word
 8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
