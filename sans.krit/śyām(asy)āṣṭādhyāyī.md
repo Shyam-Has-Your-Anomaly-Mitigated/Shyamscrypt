@@ -48,5 +48,5 @@ like s/qed/cooked rice/; the conjunction of the recipe for s/disaster/the conclu
 sspaciottemporal is sanded sspacettime is sanded..
 in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exist|../,..
 /counting machine|abacus|../ is a good /prescription|description|../ for computer
-/(counting|intelligent) clock|../ is a good /prescription|description|../ for smartwatch
+/(counting|intelligent|talking) clock|../ is a good /prescription|description|../ for smartwatch; i'm talking /at|with|to|../ my neutered /(wrist|portable)(clock|sundial|..)/
 durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
