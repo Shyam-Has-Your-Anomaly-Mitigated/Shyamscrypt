@@ -40,3 +40,4 @@ recipe is probably a good word for programs, algorithms, equations,..
 like /branches|../ of some organisation,..
 like s/qed/cooked rice/; the conjunction of the recipe for s/disaster/the conclusion/, and can be used in other recipes, which is more satisfying than i previously considered, and now i think of it as the final rule of astadhyayi; cooked in a /magicau?ldron/, where i superpositioned you ∵ i'm श्याम-positioned #mysticrypticommon(/(err)?z?/)
 sspaciottemporal is sanded sspacettime is sanded..
+in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exist|../,..
