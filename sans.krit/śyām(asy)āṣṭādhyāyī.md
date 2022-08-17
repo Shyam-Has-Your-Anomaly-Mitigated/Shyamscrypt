@@ -27,7 +27,7 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
  avagrāha
  daṇḍa(ḥ)
  daṇḍāḥ
-as they seem
+as they seem; virama = 0, implicit no"-thing"(ness (monster))
  aspiration is just h
  visarga is just h
  /anusvara|candrabindu (is on my lhs palm, and mirrored on my rhs palm; when i dropped a drop of sesame tahini there)/ is just m
