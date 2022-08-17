@@ -1,6 +1,6 @@
 ```
 `(tr script devanagari)`8<maybe just `(= roman script)`, and english is assumed, but later `(= shyamalipi script)`, and shyamskrit is assumed; shyamskrit will probably be hosted by sanskrit, before self-hosting for redundancy backups; a tree is a tree in sanskrit>8
-8<chajaka (/(𑆖𑇀𑆲|𑆗)𑆘𑆑/) is the first /ununderstandable|(over)?standable/ word; where is bakhshali manuscript? 𑆗𑆘𑆑 is mature(sanded), 𑆖𑇀𑆲𑆘𑆑 is immature(unrefinedtuned musically, poetically, champu-kavya,..)>8
+8<chajaka (/(𑆖𑇀𑆲|𑆗)𑆘𑆑/) is the first /ununderstandable|(over)?standable/ word; where is bakhshali manuscript? 𑆗𑆘𑆑 is /mature|sufficiently advanced/(sanded), 𑆖𑇀𑆲𑆘𑆑 is /immature|(i(fr)?)(amateur|popular|informal|self-taught|user-generated|DIY|hobbyist)/(unrefinedtuned musically, poetically, champu-kavya,..)>8
 8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
