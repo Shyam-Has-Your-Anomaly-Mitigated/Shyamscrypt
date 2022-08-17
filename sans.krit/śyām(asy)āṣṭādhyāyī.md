@@ -29,7 +29,7 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
 as they seem
  aspiration is just h
  visarga is just h
- /anusvara|candrabindu (is on my lhs palm, and mirrored on my rhs palm)/ is just m
+ /anusvara|candrabindu (is on my lhs palm, and mirrored on my rhs palm; when i dropped a drop of sesame tahini there)/ is just m
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
