@@ -35,3 +35,7 @@ rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (men
 
 times tables; step(wise) counting, clock(wise) counting, vampirical counting,..
 clicker counter memorisaton technique for declensions, conjugates, {word,dhatu,(sanding) rule⒵,..} lists,.; 1 v 10 v 100 v 1,000 v 10,000 v.; since they only have 4 hindu numerals, 1 v 9 v 99 v 999 v 9,999, but the yellow app has a counter (for⒠shadowing)
+
+recipe is probably a good word for programs, algorithms, equations,..
+like /branches|../ of some organisation,..
+like s/qed/cooked rice/; the conjunction of the recipe for s/disaster/the conclusion/, and can be used in other recipes, which is more satisfying than i previously considered, and now i think of it as the final rule of astadhyayi; cooked in a magical cauldron #mysticrypticommon(/(err)?z?/)
