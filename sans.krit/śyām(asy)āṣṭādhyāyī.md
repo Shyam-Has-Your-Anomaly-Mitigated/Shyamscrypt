@@ -47,3 +47,6 @@ like /branches|../ of some organisation,..
 like s/qed/cooked rice/; the conjunction of the recipe for s/disaster/the conclusion/, and can be used in other recipes, which is more satisfying than i previously considered, and now i think of it as the final rule of astadhyayi; cooked in a /magicau?ldron/, where i superpositioned you ∵ i'm श्याम-positioned #mysticrypticommon(/(err)?z?/)
 sspaciottemporal is sanded sspacettime is sanded..
 in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exist|../,..
+/counting machine|abacus|../ is a good /prescription|description|../ for computer
+/(counting|intelligent) clock|../ is a good /prescription|description|../ for smartwatch
+durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
