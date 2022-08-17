@@ -26,6 +26,10 @@ linearly speaking (geometric wavesurfing) rtl, geometrically 𝄞reading ltr; sa
  avagrāha
  daṇḍa(ḥ)
  daṇḍāḥ
+as they seem
+ aspiration is just h
+ visarga is just h
+ anusvara is just m
 
 rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (menzies had a book including texuo, probably (not) followed by linguistics) navigationomemory
 
@@ -50,3 +54,4 @@ in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exi
 /counting machine|abacus|../ is a good /prescription|description|../ for computer
 /(counting|intelligent|talking) clock|../ is a good /prescription|description|../ for smartwatch; i'm talking /at|with|to|../ my neutered /(wrist|portable)(clock|sundial|..)/
 durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
+𝘺𝘰𝘨𝘪𝘯𝘢𝘩𝘢(/djinn(ie)?/, the daring) hide "-thing"s for those who can understand by interpreting the dance of a thousand (timed)tea(party) leaves
