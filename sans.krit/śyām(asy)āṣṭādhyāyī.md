@@ -3,7 +3,7 @@
 8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
-eob(ook; <-_->)
+eob(ook; <(0v0)^, where v=,)
 
 occulture, where pop is a massive fallacy; so pop your fomdom on, and prematurely renounce your idiocracy, while we pro(in our noggins)-verbally ascend to a better yuga
  thoughts are physical manifestations of geometric sound waves; eeg inception waves @yoga v rem defragmentation waves @dreamttime #perversion_inversion
