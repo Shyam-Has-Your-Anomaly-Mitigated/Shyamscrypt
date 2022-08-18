@@ -61,14 +61,19 @@ in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exi
 durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
 𝘺𝘰𝘨𝘪𝘯𝘢𝘩𝘢(/djinn(ie)?/, the daring) hide "-thing"s for those who can understand by interpreting the dance of a thousand (timed)tea(party) leaves
 
-/solar|annus/ s/enema/analemma/
-/bamboo|grass|twig|../ /mesh|grid|../
-sspace
-bamboo b
-       a
-       m
-       b
-       o
-bamboo o
+                                       ground lvl s/any/every/ angle; bird dome? aviary; bamboo scaffolding temple of star gazing, where every observable bamboo is measurable, and the matrix computes@lightspeed the angular vectors, dimensions,.. (distance requires triangulation(third eye); all eyes must see each other)
+h                                     h
+o                                     o
+l                                     l
+e                                     e
+ /solar|annus/ s/enema/analemma/
+ /bamboo|grass|twig|../ /mesh|grid|../
+ sspace
+ bamboo b
+        a
+        m
+        b
+        o
+ bamboo o
 
 1.75y = 10kh, where 16h=1d
