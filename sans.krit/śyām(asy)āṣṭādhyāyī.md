@@ -49,6 +49,7 @@ rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (men
 
 times tables; step(wise) counting, clock(wise) counting, vampirical counting,..
 clicker counter memorisaton technique for declensions, conjugates, {word,dhatu,(sanding) rule⒵,..} lists,.; 1 v 10 v 100 v 1,000 v 10,000 v.; since they only have 4 hindu numerals, 1 v 9 v 99 v 999 v 9,999, but the yellow app has a counter (for⒠shadowing)
+ it's better to just count in sanskrit | n |
 
 recipe is probably a good word for programs, algorithms, equations,..
 like /branches|../ of some organisation,..
@@ -59,3 +60,15 @@ in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exi
 /(counting|intelligent|talking) clock|../ is a good /prescription|description|../ for smartwatch; i'm talking /at|with|to|../ my neutered /(wrist|portable)(clock|sundial|..)/
 durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
 𝘺𝘰𝘨𝘪𝘯𝘢𝘩𝘢(/djinn(ie)?/, the daring) hide "-thing"s for those who can understand by interpreting the dance of a thousand (timed)tea(party) leaves
+
+solar analemma
+/bamboo|grass|twig|../ /mesh|grid|../
+sspace
+bamboo b
+       a
+       m
+       b
+       o
+bamboo o
+
+1.75y = 10kh, where 16h=1d
