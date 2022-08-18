@@ -76,4 +76,4 @@ e                                     e
         o
  bamboo o
 
-1.75y = 10kh, where 16h=1d
+1.75y = 21m = 625d = 10kh, where 16h=1d
