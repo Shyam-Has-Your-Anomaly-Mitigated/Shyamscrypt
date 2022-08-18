@@ -66,7 +66,7 @@ h                                     h
 o                                     o
 l                                     l
 e                                     e
- /solar|annus/ s/enema/analemma/; all my daughters named emma will get fucked where the star does shine
+ /solar|annus/ s/enema/analemma/       ; all my daughters named emma will get fucked where the star does shine
  /bamboo|grass|twig|../ /mesh|grid|../
  sspace
  bamboo b
