@@ -61,7 +61,7 @@ in sanskrit no"-thing" means any"-thing" /is|exists|was|existed|will be|will exi
 durodarsanam, or whatever it is (i'm too stoned), for television gives a good idea for telephone; duro+va(d|s)ati (whatever is speaker; what is the ka maker? kakāra, gakāra,., /ra|repha(snarl)/)
 𝘺𝘰𝘨𝘪𝘯𝘢𝘩𝘢(/djinn(ie)?/, the daring) hide "-thing"s for those who can understand by interpreting the dance of a thousand (timed)tea(party) leaves
 
-solar analemma
+/solar|annus/ s/enema/analemma/
 /bamboo|grass|twig|../ /mesh|grid|../
 sspace
 bamboo b
