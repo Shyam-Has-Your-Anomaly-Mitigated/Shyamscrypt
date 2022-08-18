@@ -66,7 +66,7 @@ h                                     h
 o                                     o
 l                                     l
 e                                     e
- /solar|annus/ s/enema/analemma/
+ /solar|annus/ s/enema/analemma/; all my daughters named emma will get buttfucked
  /bamboo|grass|twig|../ /mesh|grid|../
  sspace
  bamboo b
