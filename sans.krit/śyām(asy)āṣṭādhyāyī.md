@@ -80,5 +80,5 @@ e                                     e
 
 i just /stoned|solved/ formal intelligence for my long term plan; now is the (sspace)ttime do panic!!!
 just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /image|sound|sensors|sortder|../ into training
-then train find in noise
+then train find in noise; bruteforce every /image|sound|sensors|sortder|../
 …(formal datastructures,..)…
