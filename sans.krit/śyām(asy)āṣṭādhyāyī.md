@@ -77,3 +77,8 @@ e                                     e
  bamboo o
 
 1.75y = 21m = 625d = 10kh, where 16h=1d
+
+i just /stoned|solved/ formal intelligence for my long term plan; now is the (sspace)ttime do panic!!!
+just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /image|sound|sensors|sortder|../ into training
+then train find in noise
+…(formal datastructures,..)…
