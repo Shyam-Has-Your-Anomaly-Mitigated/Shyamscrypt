@@ -84,3 +84,6 @@ then train find in noise; bruteforce every /image|sound|sensors|sortder|../
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
 boosting my true ego …everywhere all at once
+crypto against arseholes
+.
+.
