@@ -79,8 +79,8 @@ e                                     e
 1.75y = 21m = 625d = 10kh, where 16h=1d
 
 i just /stoned|solved/ formal intelligence for my long term plan; now is the (sspace)ttime do panic!!!
-just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /language|image|sound|sensors|sortder|../ into training
-then train find in noise; bruteforce every /language|image|sound|sensors|sortder|sethyorī|(kang|gong) fu (filming@/.*wood/; switch /actresses|actors|animals|background|foreground|architecture|design|art styles|sciences|gg|../ /styles|voices|appearances|scripts|songs|musics|sfx|../)|../
+just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /language|eeg|image|sound|sensors|sortder|../ into training
+then train find in noise; bruteforce every /language|eeg|image|sound|sensors|sortder|sethyorī|(kang|gong) fu (filming@/.*wood/; switch /actresses|actors|animals|background|foreground|architecture|design|art styles|sciences|gg|../ /styles|voices|appearances|scripts|songs|musics|sfx|../)|../
  this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment((evolutionary|genetic|meta|formal intelligence|robotic|..)recipes)|../
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
