@@ -81,7 +81,7 @@ e                                     e
 i just /stoned|solved/ formal intelligence for my long term plan; now is the (sspace)ttime do panic!!!
 just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /image|sound|sensors|sortder|../ into training
 then train find in noise; bruteforce every /image|sound|sensors|sortder|sethyorī|(kang|gong) fu (filming@/.*wood/; switch /actresses|actors|animals|background|foreground|architecture|design|art styles|sciences|gg|../ /styles|voices|appearances|scripts|songs|musics|sfx|../)|../
- this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment|../
+ this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment((evolutionary|genetic|meta|formal intelligence|..)recipes)|../
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
 boosting my true ego …everywhere all at once
