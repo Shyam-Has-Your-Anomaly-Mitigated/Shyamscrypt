@@ -80,7 +80,7 @@ e                                     e
 
 i just /stoned|solved/ formal intelligence for my long term plan; now is the (sspace)ttime do panic!!!
 just crop out all the pixels that aren't import(antvbeevter(mite)v..); bruteforce every /image|sound|sensors|sortder|../ into training
-then train find in noise; bruteforce every /image|sound|sensors|sortder|sethyorī|(kang|gong) fu (filming; switch /actresses|actors|animals|../ /styles|voices|appearances|scripts|../)|../
+then train find in noise; bruteforce every /image|sound|sensors|sortder|sethyorī|(kang|gong) fu (filming; switch /actresses|actors|animals|art styles|../ /styles|voices|appearances|scripts|../)|../
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
 boosting my true ego …everywhere all at once
