@@ -9,6 +9,7 @@
  jurassic bone flute is a good starting p∘o
   `(didgeridoo khoomei)` lessons
  wait a few millenia for todays speaking species to fossilise for comparative analysis
+ krishna' blue peacock(swans v wild gz v pterodactyli v..) feather, rama' green…
 …
 eob(ook; <(0v0)^, where v=,)
 
