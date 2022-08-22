@@ -10,7 +10,7 @@
   `(didgeridoo khoomei)` lessons
    s/tomahawk/boomerang/@prey2returns #xena
     chakra, shuriken, lucky lasoo (rhymes c̄ glass horse slipper for /punked|punched|punted|fucked|../ pussy),..
-     the stone age: happy gilmore the shot put the rock, by tossing it, spinning in the air, catching, and slingshotting; maybe /bounce|dribble|../(spin catching; limbs are flight controls, stabilisers,..) it /off|into|../ the ground for /flying|mining|bombing|../
+     the stone age: happy gilmore the shot put the rock, by tossing it, spinning in the air, catching, and slingshotting; maybe /bounce|dribble|../(spin catching; flapping limbs are flight controls, stabilisers,..) it /off|into|../ the ground for /flying|mining|bombing|../
      ,,,/,,|i can hold a spoon the other way, and stab you c̄ the handle|enough fingertipushups, and i can finger you to death, where one touch to the heart will kill you|one punch killed (bruce lee|harry houdini|..); it was the same punch|ufc is a datamine for vulcan salutry one punch knock outs, usually leveraging the chin|../,..
  wait a few millenia for todays speaking species to fossilise for comparative analysis
  krishna' blue peacock(swans v wild gz v pterodactyli v..) feather, rama' green…
