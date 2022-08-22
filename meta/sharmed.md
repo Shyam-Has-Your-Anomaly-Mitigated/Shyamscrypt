@@ -10,3 +10,4 @@ c(li)pboard; decentralised security (like vm s(hare; upstream, in a world full o
 sanskrit autonaming; problem solved!!! :D #namespaces #(personalvbusinessvbuisnessvbidnessvbetnessv.. #bureaucracy)docommentation
 optimisation is better thought as collapsing waveforms
 colour-coded modes,.; psychopriming
+rrgg00; until proven otherwise, but cfg for the darwin award
