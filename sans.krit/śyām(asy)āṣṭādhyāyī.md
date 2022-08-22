@@ -8,6 +8,10 @@
 śikṣā: dino(godz(illa-k(illa)?)?)?z?, where lizard people control the world; like the big bang in pool that pockets all my chocolate salty balls through your lips, and netted by your tongue
  jurassic bone flute is a good starting p∘o
   `(didgeridoo khoomei)` lessons
+   s/tomahawk/boomerang/@prey2returns #xena
+    chakra, shuriken, lucky lasoo (rhymes c̄ glass horse slipper for /punked|punched|punted|fucked|../ pussy),..
+     the stone age: happy gilmore the shot put the rock, by tossing it, spinning in the air, catching, and slingshotting; maybe /bounce|dribble/ it /off|into|../ the ground for /flying|mining|bombing|../
+     ,,,/,,|i can hold a spoon the other way, and stab you c̄ the handle|enough fingertipushups, and i can finger you to death, where one touch to the heart will kill you|one punch killed (bruce lee|harry houdini|..); it was the same punch|ufc is a datamine for one punch knock outs, usually leveraging the chin|../,..
  wait a few millenia for todays speaking species to fossilise for comparative analysis
  krishna' blue peacock(swans v wild gz v pterodactyli v..) feather, rama' green…
  many weaponed,..
