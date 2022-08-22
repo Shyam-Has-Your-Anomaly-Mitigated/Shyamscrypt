@@ -5,7 +5,9 @@
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
 …
-`(didgeridoo khoomei)` lessons
+śikṣā: dino(godz(illa-k(illa)?)?)?z?, where lizard people control the world; like the big bang in pool that pockets all my chocolate salty balls through your lips, and netted by your tongue
+ jurassic bone flute is a good starting p∘o
+  `(didgeridoo khoomei)` lessons
 …
 eob(ook; <(0v0)^, where v=,)
 
