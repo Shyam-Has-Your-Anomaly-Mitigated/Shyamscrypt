@@ -8,6 +8,7 @@
 śikṣā: dino(godz(illa-k(illa)?)?)?z?, where lizard people control the world; like the big bang in pool that pockets all my chocolate salty balls through your lips, and netted by your tongue
  jurassic bone flute is a good starting p∘o
   `(didgeridoo khoomei)` lessons
+ wait a few millenia for todays speaking species to fossilise for comparative analysis
 …
 eob(ook; <(0v0)^, where v=,)
 
