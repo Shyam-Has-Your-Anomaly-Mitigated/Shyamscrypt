@@ -12,4 +12,4 @@ optimisation is better thought as collapsing waveforms
 colour-coded modes,.; psychopriming
 rrgg00; until proven otherwise, but cfg for the darwin award
 
-the hardware will be a ma(gi)cbook
+the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
