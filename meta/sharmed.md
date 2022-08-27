@@ -11,3 +11,5 @@ sanskrit autonaming; problem solved!!! :D #namespaces #(personalvbusinessvbuisne
 optimisation is better thought as collapsing waveforms
 colour-coded modes,.; psychopriming
 rrgg00; until proven otherwise, but cfg for the darwin award
+
+the hardware will be a ma(gi)cbook
