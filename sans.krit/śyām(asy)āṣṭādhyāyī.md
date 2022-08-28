@@ -96,7 +96,7 @@ then train find in noise; bruteforce every /language|eeg|image|sound|sensors|sor
  this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment((evolutionary|genetic|meta|formal intelligence|robotic|..)recipes)|../
  vector orientation model, gender, dimensions, species; eyes, leaves, hood ornaments, stars, galaxies, sticks, stones,.. (describe this pixel)
  looks different, until colour sort (optimisation); inhabitance, completeness,..
- "species" (individual; commoners, cryptics (jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock communication, plant communication, /ants|bees|..|termites|../,..
+ "species" (individual; commoners, cryptics (capoeira, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock communication, plant communication, /ants|bees|..|termites|../,..
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
 boosting my true ego …everywhere all at once
