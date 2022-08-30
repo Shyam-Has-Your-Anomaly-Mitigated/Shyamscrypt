@@ -119,6 +119,8 @@ repair,maintenance,cleaning,store,..
 boo-kings, wal-kings, kibre-syngc,..
 blindspotless; consent, emergency,..
 
+recursive backronyms,.; starts c̄ ⒜ single
+
 `tr -floss +floss` is non-trivially np; corporate espionage, fake nda signed by bullshitters, malware, national botnets (bribery),..
 perks∘corruption; shared(equity?),..
 business owners know people like me are less likely to vote, but more likely to vote opposite to them; australia has mandatory elections, but only the census, and law enforcement, have ever knocked on my bedroom door, but to be fair, the posties goto every mailbox when we have mail, federal party (or whatever it's called) bought my data, and targeted people in my political position as a distraction tactic, whereas i goto court to be told by security they changed their mind overnight, even though it had a sign on the whiteboard saying otherwise; they didn't contact me; i walked all the way there early in the morning, and checked their website, and my /sms|email|telephone calls|../; they didn't contact me not to go, and they didn't contact me to go when they rescheduled; some people get paid to just scribble on a paperwork; i'm not paying, and i'll make it cost more than it's worth, because i'm a rebel c̄ cause & 'ffect
