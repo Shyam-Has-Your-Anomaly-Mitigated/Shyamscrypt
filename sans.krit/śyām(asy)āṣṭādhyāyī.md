@@ -111,6 +111,7 @@ crypto against arseholes
 living in towers reduces congestion
 deliverieservice reduces congestion
 mass production is more optimisable
+repair,maintenance,cleaning,store,..
 24h services,public places,sports,..
 boo-kings, wal-kings, kibre-syngc,..
 
