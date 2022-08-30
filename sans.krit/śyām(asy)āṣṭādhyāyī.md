@@ -121,6 +121,7 @@ blindspotless; consent, emergency,..
 
 recursive backronyms,.; starts c̄ ⒜ single
 shyam --> shyam has your anomaly mitigated,..
+fotp --> fotp --> functional one time pads,..
 
 `tr -floss +floss` is non-trivially np; corporate espionage, fake nda signed by bullshitters, malware, national botnets (bribery),..
 perks∘corruption; shared(equity?),..
