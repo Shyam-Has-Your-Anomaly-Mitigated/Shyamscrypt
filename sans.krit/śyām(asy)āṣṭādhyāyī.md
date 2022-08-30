@@ -105,6 +105,8 @@ crypto against arseholes
 .
 .
 /tattoo|graphiti|skywriting|../ printer(obot); ros@unsw(m.it) #masterplan
+.
+.
 
 `tr -floss +floss` is non-trivially np; corporate espionage, fake nda signed by bullshitters, malware, national botnets (bribery),..
 perks∘corruption; shared(equity?),..
