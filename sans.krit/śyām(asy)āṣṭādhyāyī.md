@@ -104,6 +104,9 @@ boosting my true ego …everywhere all at once
 crypto against arseholes
 .
 .
+lip reading
+.
+.
 /tattoo|graphiti|skywriting|../ printer(obot); ros@unsw(m.it) #masterplan
 .
 .
@@ -114,6 +117,7 @@ mass production is more optimisable
 repair,maintenance,cleaning,store,..
 24h services,public places,sports,..
 boo-kings, wal-kings, kibre-syngc,..
+blindspotless; consent, emergency,..
 
 `tr -floss +floss` is non-trivially np; corporate espionage, fake nda signed by bullshitters, malware, national botnets (bribery),..
 perks∘corruption; shared(equity?),..
