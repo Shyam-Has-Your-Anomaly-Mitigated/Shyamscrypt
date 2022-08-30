@@ -111,6 +111,8 @@ crypto against arseholes
 living in towers reduces congestion
 deliverieservice reduces congestion
 mass production is more optimisable
+24h services,public places,sports,..
+boo-kings, wal-kings, kibre-syngc,..
 
 `tr -floss +floss` is non-trivially np; corporate espionage, fake nda signed by bullshitters, malware, national botnets (bribery),..
 perks∘corruption; shared(equity?),..
