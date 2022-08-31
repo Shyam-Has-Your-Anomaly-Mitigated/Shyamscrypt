@@ -130,5 +130,5 @@ business owners know people like me are less likely to vote, but more likely to 
 every"-thing" at mygov is communicative (mostly sms; maybe cfg? i can't remember); /elections, nor law(, don't)?/
 high(stoner? xix is as far as i got, so far…) magick' preface, where damien echols describes superstitious legal witch hunts in modern fiv9yes that continue to remain in practice; paperwork v discretion v..
 
-there's ⒜ potoreality at the end of the colourful water dragon for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
+there's ⒜ potoreality(organic strains) at the end of the colourful water dragon for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
 maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.? .h.=.ḥ, where .≠vowel
