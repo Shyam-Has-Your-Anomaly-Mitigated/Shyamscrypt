@@ -132,3 +132,6 @@ high(stoner? xix is as far as i got, so far…) magick' preface, where damien ec
 
 there's ⒜ potoreality(organic strains) at the end of the colourful water dragon for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
 maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.? .h.=.ḥ, where .≠vowel
+
+i got good at touch typing by buying a blankkkeyed keyboard
+i'm going to buy a new laptop, and start baremetalling in hex86_64
