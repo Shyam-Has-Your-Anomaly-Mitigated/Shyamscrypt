@@ -130,4 +130,4 @@ business owners know people like me are less likely to vote, but more likely to 
 every"-thing" at mygov is communicative (mostly sms; maybe cfg? i can't remember); /elections, nor law(, don't)?/
 
 there's ⒜ potoreality at the end of the rainbow for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
-maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.?
+maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.? .h.=.h, where .≠vowel
