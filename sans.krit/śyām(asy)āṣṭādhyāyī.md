@@ -135,3 +135,5 @@ maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.? .h.=.ḥ, where .
 
 i got good at touch typing by buying a blankkkeyed keyboard
 i'm going to buy a new laptop, and start baremetalling in hex86_64
+maybe twist my arm, but iff it's as bad as their distro in the face
+field-hackable gate array, asic chip, lisp machine, shyamachine,..
