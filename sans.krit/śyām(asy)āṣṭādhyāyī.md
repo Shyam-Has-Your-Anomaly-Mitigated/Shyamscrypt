@@ -96,7 +96,7 @@ then train find in noise; bruteforce every /language|eeg|image|sound|sensors|sor
  this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment((evolutionary|genetic|meta|formal intelligence|robotic|..)recipes)|../
  vector orientation model, gender, dimensions, species; eyes, leaves, hood ornaments, stars, galaxies, sticks, stones,.. (describe this pixel)
  looks different, until colour sort (optimisation); inhabitance, completeness,..
- "species" (individual; commoners, cryptics (capoeira conferences, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock(not just environmental sensors) communication, plant communication, /ants|bees|..|dna|..|genetics|..|micr007anisms|..|termites|../,., molecules, atoms, particles, virtual particles, antimatter, darkmatter, sspace, ttime, sspacettime, yijing, sanskrit, other books,.; organs v self v soul v diy(dev own voice; echomirrors,..) v..
+ "species" (individual; commoners, cryptics (capoeira conferences, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock(not just environmental sensors) communication, plant communication, /ants|bees|..|dna|..|genetics|..|micr007anisms|..|termites|../,., molecules, atoms, particles, virtual particles, antimatter, darkmatter, sspace, ttime, sspacettime, reality, yijing, sanskrit, other books,.; organs v self v soul v diy(dev own voice; echomirrors,..) v..
  ocr is now a solved problem; infact all of computer vision is now a solved problem
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
@@ -147,3 +147,4 @@ how many parents hammerfist their /babies|kids|../ like a television? road rage,
 i just cracked indus valley script
 rule 34: white supremacist sanskrit porn; to watch, or not to watch?
 prolog /machine|os/: boot drive format = kbs, meta(hackable)predicates = file i/o (i thought there was some /ram|cache|register|stack(webasm)?|../ cfg aswell? yes, just treat them as their own kbs!)
+i can use algebra to /control|manipulate/ reality
