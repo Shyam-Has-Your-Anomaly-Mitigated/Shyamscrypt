@@ -143,3 +143,4 @@ field-hackable gate array, asic chip, lisp machine, shyamachine,..
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
 afterlife=dreaming? dreamescape, instant transmissionz,..
+how many parents hammerfist their /babies|kids|../ like a television?
