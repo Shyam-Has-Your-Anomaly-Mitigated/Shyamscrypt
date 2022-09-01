@@ -139,7 +139,7 @@ maybe twist my arm, but iff it's as bad as their distro in the face
 field-hackable gate array, asic chip, lisp machine, shyamachine,..
 
 (0 1 2 3 …), where 0 is the first in the list, and parameters now are where they are in the list
-(1 2), where 1 is a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
+(1 2), where 1 is also a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
 afterlife=dreaming? dreamescape, instant transmissionz,..
