@@ -149,3 +149,4 @@ rule 34: white supremacist sanskrit porn; to watch, or not to watch?
 prolog /machine|os/: boot drive format = kbs, meta(hackable)predicates = file i/o (i thought there was some /ram|cache|register|stack(webasm)?|../ cfg aswell? yes, just treat them as their own kbs!)
 i can use algebra to /control|manipulate/ reality
 i know how to do real (drea)magic; not just oracles,.. (whatever else i bought recently #occult_research)
+it's od; overly dangerous
