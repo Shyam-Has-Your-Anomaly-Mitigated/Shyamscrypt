@@ -145,3 +145,4 @@ can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
 afterlife=dreaming? dreamescape, instant transmissionz,..
 how many parents hammerfist their /babies|kids|../ like a television? road rage,..
 i just cracked indus valley script
+rule 34: white supremacist sanskrit porn; to watch, or not to watch?
