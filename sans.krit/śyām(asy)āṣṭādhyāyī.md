@@ -150,4 +150,4 @@ prolog /machine|os/: boot drive format = kbs, meta(hackable)predicates = file i/
 i can use algebra to /control|manipulate/ reality
 i know how to do real (drea)magic; not just oracles,.. (whatever else i bought recently #occult_research)
 it's od; overly dangerous
-one spell, potion,.; and midas touch = `rm -fr /`,..
+one spell, potion,.; and midas touch ((sspace)ttime,..) = `rm -fr /`,..
