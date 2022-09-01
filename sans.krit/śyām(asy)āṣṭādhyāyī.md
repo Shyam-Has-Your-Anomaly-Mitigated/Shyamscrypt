@@ -96,7 +96,7 @@ then train find in noise; bruteforce every /language|eeg|image|sound|sensors|sor
  this step unlocks autocrop; removal of knowledge pixels, reveals new knowledge for /label|experiment((evolutionary|genetic|meta|formal intelligence|robotic|..)recipes)|../
  vector orientation model, gender, dimensions, species; eyes, leaves, hood ornaments, stars, galaxies, sticks, stones,.. (describe this pixel)
  looks different, until colour sort (optimisation); inhabitance, completeness,..
- "species" (individual; commoners, cryptics (capoeira conferences, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock(not just environmental sensors) communication, plant communication, /ants|bees|..|termites|../,..
+ "species" (individual; commoners, cryptics (capoeira conferences, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock(not just environmental sensors) communication, plant communication, /ants|bees|..|termites|../,.; organs v self v soul v..
  ocr is now a solved problem; infact all of computer vision is now a solved problem
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
@@ -142,4 +142,4 @@ field-hackable gate array, asic chip, lisp machine, shyamachine,..
 (1 2), where 1 is a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
-afterlife=dreaming? dreamescape,..
+afterlife=dreaming? dreamescape, instant transmissionz,..
