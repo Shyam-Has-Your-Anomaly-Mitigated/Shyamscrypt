@@ -146,4 +146,4 @@ afterlife=dreaming? dreamescape, instant transmissionz,..
 how many parents hammerfist their /babies|kids|../ like a television? road rage,..
 i just cracked indus valley script
 rule 34: white supremacist sanskrit porn; to watch, or not to watch?
-prolog /machine|os/: boot drive format = kbs, meta(hackable)predicates = file i/o (i thought there was some /ram|cache|register|stack(webasm)?|../ cfg aswell?)
+prolog /machine|os/: boot drive format = kbs, meta(hackable)predicates = file i/o (i thought there was some /ram|cache|register|stack(webasm)?|../ cfg aswell? yes, just treat them as their own kbs!)
