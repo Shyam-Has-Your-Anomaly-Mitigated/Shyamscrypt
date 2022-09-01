@@ -142,7 +142,7 @@ field-hackable gate array, asic chip, lisp machine, shyamachine,..
 (1 2), where 1 is also a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
-afterlife=dreaming? dreamescape, instant transmissionz, quantum leap,..
+afterlife=dreaming? dreamescape, instant transmissionz, quantum ballerina,..
 how many parents hammerfist their /babies|kids|../ like a television? road rage,..
 i just cracked indus valley script
 rule 34: white supremacist sanskrit porn; to watch, or not to watch?
