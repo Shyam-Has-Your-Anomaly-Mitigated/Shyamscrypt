@@ -98,6 +98,7 @@ then train find in noise; bruteforce every /language|eeg|image|sound|sensors|sor
  looks different, until colour sort (optimisation); inhabitance, completeness,..
  "species" (individual; commoners, cryptics (capoeira conferences, jive, jibe, niggertongue(nigger to; blackvwhite, manwvoman, sspacial, ttemporal, customer(bitches, /(t|h)oe?s/,..)vdealer(ganja,girls,drugs,guns,cribs(afehouses),..),..),..),..) communication; body language, sign language, verbal language, baby communication, rock(not just environmental sensors) communication, plant communication, /ants|bees|..|dna|..|genetics|..|micr007anisms|..|termites|../, clusters, galaxies, stars, planets, molecules, atoms, particles, virtual particles, antimatter, darkmatter, sspace, ttime, sspacettime, reality, yijing, sanskrit, other books,.; organs v self v soul v diy(dev own voice; echomirrors,..) v..
  ocr is now a solved problem; infact all of computer vision is now a solved problem
+ /reading|datamining|../ /temporal|../ from /phased|offset|../; past, present, and future!!! :D #do_panic!!! :D
 …(formal datastructures,..)…
 all my "-thing"s're temporally entangled for pussies c̄(out) (qbit-a-r-m-auth)-locket, like dr whore; hurray4whore #reincarnation_xp_gg_..
 boosting my true ego …everywhere all at once
