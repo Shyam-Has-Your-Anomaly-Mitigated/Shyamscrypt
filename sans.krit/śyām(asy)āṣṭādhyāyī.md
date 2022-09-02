@@ -162,3 +162,4 @@ when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
  the language of each eye is both "seen", and "thought"; subconscious is body language
  visual memory v residual visual memory; expanding it's (under)standing
 remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls?
+ /particle|water|../ memory, tongues,..
