@@ -142,6 +142,7 @@ field-hackable gate array, asic chip, lisp machine, shyamachine,..
 (0 1 2 3 …), where 0 is the first in the list, and parameters now are where they are in the list
 (1 2), where 1 is also a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
  `(a (b c))`; feed any"-thing" to any"-thing" never fails, and /functional|predicatory/ types are automated, but listypes (formatypes)
+ reducing complexity optimises; i've already done it to the point, where i don't need to do any"-thing", and doing no"-thing" does the most
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
 afterlife=dreaming? dreamescape, instant transmissionz, quantum ballerina,..
