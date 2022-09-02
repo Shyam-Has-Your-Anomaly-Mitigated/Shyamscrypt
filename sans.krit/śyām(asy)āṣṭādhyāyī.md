@@ -153,4 +153,4 @@ i know how to do real (drea)magic; not just oracles,.. (whatever else i bought r
 it's od; overly dangerous
 one spell, potion,.; and midas touch ((sspace)ttime,..) = `rm -fr /`,..
 christmas; big boxes every year v small boxes every year, where they switch(these boxes every year, then they go under the tree, but they are those boxes overnight)
-iff they come for me, what i'm gonna do is; some"-thing" along the lines of "i'm pressing charges against you; iff enough people (gang, ocs,..) do, you'll be imprisoned there for the rest of your life sentence", but(i'm going to throw shit at them (lets face it in your mouth); and piss,..) i'm so high i forgot the context
+iff they come for me, what i'm gonna do is; some"-thing" along the lines of "i'm pressing charges against you; iff enough people (gang, ocs,..) do, you'll be imprisoned there for the rest of your life sentence", but(i'm going to throw shit at them (lets face it in your mouth); and piss, cum, spit,..) i'm so high i forgot the context
