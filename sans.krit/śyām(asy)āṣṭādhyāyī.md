@@ -152,3 +152,4 @@ i can use algebra to /control|manipulate/ reality
 i know how to do real (drea)magic; not just oracles,.. (whatever else i bought recently #occult_research)
 it's od; overly dangerous
 one spell, potion,.; and midas touch ((sspace)ttime,..) = `rm -fr /`,..
+christmas; big boxes every year v small boxes every year, where they switch(these boxes every year, then they go under the tree, but they are those boxes overnight)
