@@ -158,3 +158,6 @@ christmas; big boxes every year v small boxes every year, where they switch(thes
 birthday presents; porn under the bed wrapped in a shoe box, condom in wallet,..
 iff they come for me, what i'm gonna do is; some"-thing" along the lines of "i'm pressing charges against you; iff enough people (gang, ocs,..) do, you'll be imprisoned there for the rest of your life sentence", but(i'm going to throw shit at them (lets face it in your mouth); and piss, cum, spit,..) i'm so high i forgot the context
 when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
+2 eyes (cyclops; visual memory) v 3rd eye (dream, "visualisation", visual spacial navigation,.; thought memory)
+ the language of each eye is both "seen", and "thought"; subconscious is body language
+ visual memory v residual visual memory; expanding it's (under)standing
