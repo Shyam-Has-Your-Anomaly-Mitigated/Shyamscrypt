@@ -175,4 +175,4 @@ unicode memorisation
 
 my garden of eden
 bamboo; killless
-coconut water; better than (/acid|brawndo|chocolate|../) rain water
+vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|../) rain water
