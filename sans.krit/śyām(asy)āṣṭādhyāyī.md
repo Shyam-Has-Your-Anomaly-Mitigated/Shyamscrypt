@@ -163,3 +163,4 @@ when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
  visual memory v residual visual memory; expanding it's (under)standing
 remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls?
  /particle|water|../ memory, tongues,..
+this is the science of /putting voices|soul transference|../,..
