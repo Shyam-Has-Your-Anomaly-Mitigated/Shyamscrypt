@@ -172,3 +172,6 @@ unicode memorisation
 .
 .
 .
+
+bamboo; killless
+coconut water; better than (/acid|chocolate|../) rain water
