@@ -165,6 +165,7 @@ when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
 remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls?
  /particle|water|../ memory, tongues,..
 this is the science of /putting voices|soul transference|../,.. (into statues,..)
+temporal voices; learning from mistakes, dejavu,..
 
 unicode memorisation
 249c = ⒜
