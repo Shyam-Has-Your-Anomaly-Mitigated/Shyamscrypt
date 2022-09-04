@@ -184,5 +184,5 @@ education of disease increases healing; including healthy state(s), and how unhe
 pareto principle v 100% brain
 magic works by education for /muggles|dummies|../
 i just discovered the blue print for (horns,snroh,fountain..)(∘)(plenty,youth,..)!!! :D
-there's plenty ∘ room at the bottom, empty box photograph v full box photograph,..
+there's plenty ∘ room at the bottom, empty box photograph v full box photograph v quantum entanglement v..,..
                                                           ^logic
