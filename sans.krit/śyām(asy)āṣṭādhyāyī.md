@@ -178,3 +178,4 @@ bamboo; killless
 vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|../) rain water
 
 i just discovered the treasure map for a real magic book!!! :D
+yijing /puzzle|riddle|../ first though
