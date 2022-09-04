@@ -183,4 +183,4 @@ education of disease increases healing; including healthy state(s), and how unhe
 /(educ|medit|memoris)ation/ as medicine (ayurveda is floss; no paywall, license wall,..) is safer than homeopathy; impossible to overdose on education
 pareto principle v 100% brain
 magic works by education for /muggles|dummies|../
-i just discovered the blue print for (horn,nroh,..)(∘plenty,..)!!! :D
+i just discovered the blue print for (horns,snroh,..)(∘plenty,..)!!! :D
