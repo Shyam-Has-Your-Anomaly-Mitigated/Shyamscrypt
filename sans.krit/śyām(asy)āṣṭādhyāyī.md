@@ -162,7 +162,7 @@ when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
 2 eyes (cyclops; visual memory) v 3rd eye (dream, "visualisation", visual spacial navigation,.; thought memory)
  the language of each eye is both "seen", and "thought"; subconscious is body language
  visual memory v residual visual memory; expanding it's (under)standing
-remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls?
+remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls? compare, and mahatma is the intersection
  /particle|water|../ memory, tongues,..
 this is the science of /putting voices|soul transference|../,.. (into statues,..)
 temporal voices; learning from mistakes, dejavu,..
