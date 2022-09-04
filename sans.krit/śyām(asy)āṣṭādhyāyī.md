@@ -179,4 +179,4 @@ vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|..
 
 i just discovered the treasure map for a real magic book!!! :D
 yijing /puzzle|riddle|../ first though
-education of disease increases healing
+education of disease increases healing; including healthy state(s), and how unhealthy state(s) cure; especially how the body self heals; sostudying immune system is healthy for it
