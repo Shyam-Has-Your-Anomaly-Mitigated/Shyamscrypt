@@ -176,7 +176,7 @@ unicode memorisation
 my garden of eden
 bamboo; killless
 vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|../) rain water
- so apparently deadly coconuts = potassium, like bananas = radioactivity; biochem
+ so apparently deadly coconuts = potassium, like cancer bananas = radioactivity; biochem
  indoor hydroponics; coconut water (leftovers; byproducts) for potassium
   pringles can for (pot)ash(yam)
  distillation can be vegan? distilled coconut water?
