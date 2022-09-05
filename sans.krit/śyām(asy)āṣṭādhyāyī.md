@@ -177,8 +177,8 @@ my garden of eden
 bamboo; killless
 vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|../) rain water
  so apparently deadly coconuts = potassium, like bananas = radioactivity; biochem
- indoor hydroponics; coconut water for potassium
- distillation can be vegan?
+ indoor hydroponics; coconut water (leftovers; byproducts) for potassium
+ distillation can be vegan? distilled coconut water?
 
 i just discovered the treasure map for a real magic book!!! :D
 yijing /puzzle|riddle|../ first though; scientist can solve it, and find their way to my solution
