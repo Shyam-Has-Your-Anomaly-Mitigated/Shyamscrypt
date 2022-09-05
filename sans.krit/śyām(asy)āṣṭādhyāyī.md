@@ -178,6 +178,7 @@ bamboo; killless
 vegan(or better)-labelled coconut water; better than (/acid|brawndo|chocolate|../) rain water
  so apparently deadly coconuts = potassium, like bananas = radioactivity; biochem
  indoor hydroponics; coconut water (leftovers; byproducts) for potassium
+  pringles can for (pot)ash(yam)
  distillation can be vegan? distilled coconut water?
 
 i just discovered the treasure map for a real magic book!!! :D
