@@ -120,6 +120,9 @@ repair,maintenance,cleaning,store,..
 24h services,public places,sports,..
 boo-kings, wal-kings, kibre-syngc,..
 blindspotless; consent, emergency,..
+perfect forensics; swab every"-thing",..
+viral nanobots, digital forensics,..
+just in case of cracks; video, audio,..
 
 recursive backronyms,.; starts c̄ ⒜ single
 shyam --> shyam has your anomaly mitigated,..
