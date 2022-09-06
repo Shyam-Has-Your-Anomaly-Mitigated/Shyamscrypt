@@ -193,3 +193,4 @@ magic works by education for /muggles|dummies|../
 i just discovered the blue print for (horns,snroh,fountain..)(∘)(plenty,youth,..)!!! :D
 there's plenty ∘ room at the bottom, empty box photograph v full box photograph v quantum entanglement v..,..
                                                           ^logic
+12022.09.06.20~: i just discovered the secret for sanskrit!!! :D
