@@ -199,4 +199,4 @@ micro ecosystems; plant aerodynamcis, air /pockets|currents/,..
 you can't walk; even iff you don't brush against /seeds|pollen|eggs|../; you'll carry them c̄ every step
 
 house elves are like super intelligence; old wizards made some"-thing" more powerful than themselves, and thought they could contain it, but young wizards are their vulnerability, and dobby exploit!!! :D
-house elves were probably just told it; no real magic; the sock's a lie;..
+house elves were probably just told it; no real magic; the sock's a lie;.. (how else? they're more powerful than dinomammoths! wise wizards'll try any"-thing" #bruteforce)
