@@ -12,5 +12,6 @@ optimisation is better thought as collapsing waveforms
 colour-coded modes,.; psychopriming
 rrgg00; until proven otherwise, but cfg for the darwin award
 human ui/ux is so slow reaction speeds; just read files from drive to ram as the refresh rate of the gui, for optimised concurrent access, where every"-thing"s a file; `mv file` is flossed #titw
+i'm only supporting open hardware in the license; starting c̄(wow; what the fuck did github just do? n-list?..) olimex diy laptop; so twist my s/hex86_64/arm/, until they, or others improve, or their arm tastes better than pi, or it's just their distro, risv-v beagle v,..
 
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
