@@ -11,5 +11,6 @@ sanskrit autonaming; problem solved!!! :D #namespaces #(personalvbusinessvbuisne
 optimisation is better thought as collapsing waveforms
 colour-coded modes,.; psychopriming
 rrgg00; until proven otherwise, but cfg for the darwin award
+human ui/ux is so slow reaction speeds; just read files from drive to ram as the refresh rate of the gui, for optimised concurrent access, where every"-thing"s a file; `mv file` is flossed #titw
 
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
