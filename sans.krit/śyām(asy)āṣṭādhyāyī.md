@@ -197,7 +197,7 @@ there's plenty ∘ room at the bottom, empty box photograph v full box photograp
 i call it the avatar state
 now i discovered brain exercises; just do /head|neck|(spinnig|twirling|flipping|..)|../ exercises; i think i can detect up, magnetic south,.. (overwater,underwater,outerspace,innerspace,..)
 
-micro ecosystems; plant aerodynamcis, air /pockets|currents/,..
+micro ecosystems; plant aerodynamix, air /pockets|currents/,..
 you can't walk; even iff you don't brush against /seeds|pollen|eggs|../; you'll carry them c̄ every step
 
 house elves are like super intelligence; old wizards made some"-thing" more powerful than themselves, and thought they could contain it, but young wizards are their vulnerability, and dobby exploit!!! :D
