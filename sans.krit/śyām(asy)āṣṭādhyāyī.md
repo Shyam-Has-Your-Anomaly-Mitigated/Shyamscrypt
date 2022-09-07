@@ -195,7 +195,7 @@ there's plenty ∘ room at the bottom, empty box photograph v full box photograp
                                                           ^logic
 12022.09.06.20~: i just discovered the secret for sanskrit!!! :D
 i call it the avatar state
-now i discovered brain exercises; just do /head|neck/ exercises; i think i can detect up, magnetic south,.. (overwater,underwater,outerspace,innerspace,..)
+now i discovered brain exercises; just do /head|neck|(spinnig|twirling|flipping|..)|../ exercises; i think i can detect up, magnetic south,.. (overwater,underwater,outerspace,innerspace,..)
 
 micro ecosystems; plant aerodynamcis, air /pockets|currents/,..
 you can't walk; even iff you don't brush against /seeds|pollen|eggs|../; you'll carry them c̄ every step
