@@ -149,7 +149,7 @@ field-hackable gate array, asic chip, lisp machine, shyamachine,..
  reducing complexity optimises; i've already done it to the point, where i don't need to do any"-thing", and doing no"-thing" does the most
 (1 2 …), where … is a comment
 can always optimise s/1/0/s/2/1/; bit∈/byte|register|../,..
-afterlife=dreaming? dreamescape, dream portals, instant transmissionz, quantum ballerina,..
+afterlife=dreaming? dreamescape, dream /portals|interpret(ation|er|or)s/, instant transmissionz, quantum ballerina,..
 how many parents hammerfist their /babies|kids|../ like a television? road rage,..
 i just cracked indus valley script
 rule 34: white supremacist sanskrit porn; to watch, or not to watch?
