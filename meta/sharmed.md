@@ -16,4 +16,4 @@ i'm only supporting open hardware in the license; starting c̄(wow; what the fuc
 open hardware can be formally verified against docommentation; stress testing, cosmic ray detection,..
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
 hud+/open(eeg|bci)/+.; motorcyke helmet∘war…
-double rng(t; unless stress testing; until limit #xalx) auth; long-term, and short-term, grand master of ram(aḥ x ot; ganesh), within elegant /((per for|ne x ro)m|d)ance/(test(ing)) range(touch typing /speed|a x u racy/, speed /reading|listening|cubing|../, sudoku, (blindfold) chess (moves), fl ash x ard s,..),..
+double rng(t; unless stress testing; until limit #xalx) auth; long-term, and short-term, grand master of ram(aḥ x ot; ganesh), within elegant /((per for|ne x ro)m|d)ance/(test(ing)) range(touch typing /speed|a x u racy/, speed /reading|listening|cubing|../, sudoku, (blindfold) chess (moves), fl ash x ard s, colour diff,..),..
