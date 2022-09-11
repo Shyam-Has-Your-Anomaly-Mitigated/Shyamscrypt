@@ -205,3 +205,5 @@ you can't walk; even iff you don't brush against /seeds|pollen|eggs|../; you'll 
 house elves are like super intelligence; old wizards made some"-thing" more powerful than themselves, and thought they could contain it, but young wizards are their vulnerability, and dobby exploit!!! :D
 house elves were probably just told it; no real magic; the sock's a con;.. (how else? they're more powerful than dinomammoths! wise wizards'll try any"-thing" #bruteforce #se)
 ravenclaw should always win quidditch, and the house cup; i guess magic evens out the playing fields?
+
+i can control your /brain|mind|mental../; iff i push you, i force an experience; iff i speak,i force words into your ears;..
