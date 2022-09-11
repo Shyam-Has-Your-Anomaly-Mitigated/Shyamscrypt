@@ -207,5 +207,5 @@ house elves were probably just told it; no real magic; the sock's a con;.. (how 
 ravenclaw should always win quidditch, and the house cup; i guess magic evens out the playing fields?
 
 concept = /brain|mind|mental|thought|intelligence|free will|../
-i can control your concept; iff i push you, i force an experience; iff i speak, i force words into your ears; iff you read this, i /nlp|program|hack|crack|pwn|own|../ you;..
+i can sleightly control your concept; iff i push you, i force an experience; iff i speak, i force words into your ears; iff you read this, i /nlp|program|hack|crack|pwn|own|../ you;..
 conceptual magic v dre amma gic
