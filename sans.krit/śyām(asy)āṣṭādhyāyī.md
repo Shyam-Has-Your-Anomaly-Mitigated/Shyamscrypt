@@ -209,3 +209,5 @@ ravenclaw should always win quidditch, and the house cup; i guess magic evens ou
 concept = /brain|mind|mental|thought|intelligence|free will|../
 i can sleightly control your concept; iff i push you, i force an experience; iff i speak, i force words into your ears; iff you read this, i /nlp|program|hack|crack|pwn|own|../ you;..
 conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
+
+fritz the cat is like appleby in yes minister; now it's my favourite movie
