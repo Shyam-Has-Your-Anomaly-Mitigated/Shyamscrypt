@@ -136,7 +136,7 @@ every"-thing" at mygov is communicative (mostly sms; maybe cfg? i can't remember
 high(stoner? xix is as far as i got, so far…) magick' preface, where damien echols describes superstitious legal witch hunts in modern fiv9yes that continue to remain in practice; paperwork v discretion v..
 no contract i've ever signed is significant; when the alternative is a life of crime, and forging fraudulent contracts is now entangled to those through the fake contract; iff i renounce my own principles, why would i accept yours? i can commit any crime, because the law doesn't prevent crime, the law only serves to punish, and iff i take my own life, it doesn't even serve, nor do i, so, therefore, now i'm above the law; i ain't no slave
 
-there's ⒜ potoreality(organic strains) at the end of the colourful water dragon for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); they /suck my cock|lick my chocolate salty balls/ under the bath(water) c̄ nitrox; my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
+there's ⒜ potoreality(organic strains) at the end of the colourful water dragon for my angels (to hold it for me; cock, joint,.; they wear /gas masks|space helmets|nose plugs + (salty choc)ball gags|../); they /suck my cock|lick my chocolate salty balls/ under the bath(water) c̄ nitrox(snorkel,scuba,space,..); my descension from ⒣irish⒤ (vi)kings, and knowingofærie is proof for my descension from them
 maha v maḥ, aham v aḥm, niḥspṛhaḥ v nihispṛhaha,.? .h.=.ḥ, where .≠vowel
 
 i got good at touch typing by buying a blankkkeyed keyboard
