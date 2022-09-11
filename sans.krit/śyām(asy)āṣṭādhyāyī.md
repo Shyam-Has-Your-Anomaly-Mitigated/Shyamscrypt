@@ -206,4 +206,6 @@ house elves are like super intelligence; old wizards made some"-thing" more powe
 house elves were probably just told it; no real magic; the sock's a con;.. (how else? they're more powerful than dinomammoths! wise wizards'll try any"-thing" #bruteforce #se)
 ravenclaw should always win quidditch, and the house cup; i guess magic evens out the playing fields?
 
-i can control your /brain|mind|mental../; iff i push you, i force an experience; iff i speak, i force words into your ears; iff you read this, i /nlp|program|hack|crack|pwn|own|../ you;..
+concept = /brain|mind|mental|thought|intelligence|free will|../
+i can control your concept; iff i push you, i force an experience; iff i speak, i force words into your ears; iff you read this, i /nlp|program|hack|crack|pwn|own|../ you;..
+conceptual magic v dre amma gic
