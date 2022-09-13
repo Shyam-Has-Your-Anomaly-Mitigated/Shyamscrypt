@@ -123,6 +123,10 @@ blindspotless; consent, emergency,..
 perfect forensics; swab every"-thing",..
 viral nanobots, digital forensics,..
 just in case of cracks; video, audio,..
+10s (1m@old) smart limo bungee train
+magnets disable iff carrington event
+water pistols are good for cleaning!
+filtered v distilled v soapy v hot v..
 
 recursive backronyms,.; starts c̄ ⒜ single
 shyam --> shyam has your anomaly mitigated,..
