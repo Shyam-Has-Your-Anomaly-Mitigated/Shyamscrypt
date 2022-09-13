@@ -128,6 +128,8 @@ magnets disable iff carrington event
 water pistols are good for cleaning!
 filtered v distilled v soapy v hot v..
 
+animal (including our species) migrations at every scale influence; this planet closer to the inner boundary of the s/universal set/goldilocks zone/, the weather, the past, the present, the future,..
+
 recursive backronyms,.; starts c̄ ⒜ single
 shyam --> shyam has your anomaly mitigated,..
 fotp --> fotp --> functional one time pads,..
