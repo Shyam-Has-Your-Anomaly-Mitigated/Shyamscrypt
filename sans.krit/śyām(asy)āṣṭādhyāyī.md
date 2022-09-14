@@ -217,3 +217,5 @@ i can sleightly control your concept; iff i push you, i force an experience; iff
 conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 
 fritz the cat is like appleby in yes minister; now it's my favourite movie
+
+how long does it take to become an expert at religion, aliens,.?
