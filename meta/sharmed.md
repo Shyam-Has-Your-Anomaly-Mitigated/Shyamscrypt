@@ -17,3 +17,4 @@ open hardware can be formally verified against docommentation; stress testing, c
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
 hud+/open(eeg|bci)/+.; motorcyke helmet∘war…
 double rng(t; unless stress testing; until limit #xalx) auth; long-term, and short-term, grand master of ram(aḥ x ot; ganesh), within elegant /((per for|ne x ro)m|d)ance/(test(ing)) range(touch typing /speed|a x u racy/, speed /reading|listening|cubing|art|../, sudoku, (blindfold) chess (moves), fl ash x ard s, /colour|spot|../ diff, iq, math (/difficulty|complexity/ selection), hack, crack, kareoke (emotional voices, voice acting,..), music,..),..
+links,.; "n÷total"; clickable list
