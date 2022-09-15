@@ -219,3 +219,5 @@ conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 fritz the cat is like appleby in yes minister; now it's my favourite movie
 
 how long does it take to become an expert at religion, aliens,.?
+
+lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
