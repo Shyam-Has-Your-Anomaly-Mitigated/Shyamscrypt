@@ -220,4 +220,4 @@ fritz the cat is like appleby in yes minister; now it's my favourite movie
 
 how long does it take to become an expert at religion, aliens,.?
 
-lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
+lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
