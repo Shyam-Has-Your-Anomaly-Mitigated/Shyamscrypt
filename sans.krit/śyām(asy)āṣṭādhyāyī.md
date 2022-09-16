@@ -3,6 +3,7 @@
 paniniya shiksha is probably the sampradaya; percussive consonants {k,c,ṭ,t,p}, vowelled consonants {g,j,ḍ,d,b}, nasalled consonants {ṅ,ñ,ṇ,n,m}, ya = ia, ra is related to ṛ, la is related to ḷ, va is related to u(u)a, ai = ai, au = au,.. (semi-/vowels|consonants/, ai, and au, are /consecutive|doubled?/ vowels)
  sanskrit is actually superpositioned /consonant-vowel|vowel-consonant/ pairs; avagraha = virama, aspiration,..
  unicode suggests; śa = sha, ṣa = ssa; where there is really only s, and h; now aspirates are /semi-sibilants|s(ibi)?lanted consonants/
+  this suggests kṛṣṇa = curse(/\?|,/) na(!)
 8<chajaka (/(𑆖𑇀𑆲|𑆗)𑆘𑆑/) is the first /ununderstandable|(over)?standable/ word; where is bakhshali manuscript? 𑆗𑆘𑆑 is /mature|sufficiently advanced/(sanded), 𑆖𑇀𑆲𑆘𑆑 is /immature|(i(fr)?)(amateur|popular|informal|self-taught|user-generated|DIY|hobbyist)/(unrefinedtuned musically, poetically, champu-kavya,..)>8
 8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
