@@ -14,6 +14,8 @@ rrgg00; until proven otherwise, but cfg for the darwin award
 human ui/ux is so slow reaction speeds; just read files from drive to ram as the refresh rate of the gui, for optimised concurrent access, where every"-thing"s a file; `mv file` is /flossed|logged/ #titw
 i'm only supporting open hardware in the license; starting c̄(wow; what the fuck did github just do? n-list?..) olimex diy laptop; so twist my s/hex86_64/arm/, until they, or others improve, or their arm tastes better than pi, or it's just their distro, risv-v beagle v,..
 open hardware can be formally verified against docommentation; stress testing, cosmic ray detection,..
+ see what makes it tick; confetti attacks, audio confetti attacks,..
+  https://youtu.be/-y3RGeaxksY
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
 hud+/open(eeg|bci)/+.; motorcyke helmet∘war…
 double rng(t; unless stress testing; until limit #xalx) auth; long-term, and short-term, grand master of ram(aḥ x ot; ganesh), within elegant /((per for|ne x ro)m|d)ance/(test(ing)) range(touch typing /speed|a x u racy/, speed /reading|listening|cubing|art|../, sudoku, (blindfold) chess (moves), fl ash x ard s, /colour|spot|../ diff, iq, math (/difficulty|complexity/ selection), hack, crack, kareoke (emotional voices, voice acting,..), music,..),..
