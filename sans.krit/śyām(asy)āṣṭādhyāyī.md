@@ -180,7 +180,7 @@ when i talk to you, i talk to others at the same ttime; synonyms, crypto,..
  the language of each eye is both "seen", and "thought"; subconscious is body language
  visual memory v residual visual memory; expanding it's (under)standing
 remove the voice of every"-thing", including the "brains", and even quantum; the remaining voices v (/virtual|simulated|../)souls? compare, and mahatma is the intersection
- /particle|water|../ memory, tongues, organs, planet(ary rings), (helloworld,..) recipes, (metarecursive)lynguages (every"-thing" is made of some"-thing"; even some"-thing" itself #metarecursively #virdually #llly?),..
+ /particle|water|../ memory, tongues, organs, planet(ary rings), (helloworld,..) recipes, (metarecursive)lynguages (every"-thing" is made of some"-thing"; even some"-thing" itself #metarecursively #virdually #llly? every"-thing" is sanskrit, sanskrit is every"-thing"),..
 this is the science of /putting voices|soul transference|../,.. (into statues,..)
 temporal voices; learning from mistakes, dejavu,..
 
