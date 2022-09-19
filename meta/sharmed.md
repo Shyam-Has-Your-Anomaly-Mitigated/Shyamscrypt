@@ -17,7 +17,7 @@ open hardware can be formally verified against docommentation; stress testing, c
  see what makes it tick; confetti attacks, audio confetti attacks,..
   https://youtu.be/-y3RGeaxksY
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
- it will attempt to measure every"-thing" (for confirmation, and beyond!!! :D), (just) in case any"-thing" changes (detectably); now what to do, depending what calculuses (ctrl+k="[](url)")
+ it will attempt to measure every"-thing" (for confirmation, and beyond!!! :D), (just) in case any"-thing" changes (detectably); now what to do, depending what /calculuses|yijings|jinxes|../ (ctrl+k="[](url)")
 hud+/open(eeg|bci)/+.; motorcyke helmet∘war…
 double rng(t; unless stress testing; until limit #xalx) auth; long-term, and short-term, grand master of ram(aḥ x ot; ganesh), within elegant /((per for|ne x ro)m|d)ance/(test(ing)) range(touch typing /speed|a x u racy/, speed /reading|listening|cubing|art|../, sudoku, (blindfold) chess (moves), fl ash x ard s, /colour|spot|../ diff, iq, math (/difficulty|complexity/ selection), hack, crack, kareoke (emotional voices, voice acting,..), music,..),..
 links,.; "n÷total"; clickable list; cfg(unique v..), now cfg can be toggle irt
