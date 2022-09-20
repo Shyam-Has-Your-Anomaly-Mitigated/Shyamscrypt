@@ -229,7 +229,7 @@ fritz the cat is like appleby in yes minister; now it's my favourite movie
 
 how long does it take to become an expert at religion, aliens,.?
 where else can capacitance be applied? /meta|evolutionary|genetic|(neuro|bio|software|hardware|..)plasticity|muscle memory|plyometrics|drag racing (slingshot|nos|..)|wind up (toys|drillings|fuckings|suckings|..)|.?/ #smartpeopleadddeadmassinsteadofmoredrinkmeansmorescienceinstrumentslikecamic…(/gravitational|environmental|../ /extremes|waves|particles|conditions|../, sspaciottemporal entanglement in every direction at every scale..,..)(french scales, engineering, construction, buildings,..)(macro drone disx; i've just optimised the /tallest|strongest|oldest|../; space elevators; megastructures; quantum noise; planetary shield (carrington(sized) events, stealth v dec(olonisation)oys v backups,..);..) #the_shyam_factor!!!_:D(is this the only capital punishment for my rsi?)
-wrinkles in time; the older we get, the more surface area (fractal geometry) is required for /oxygen|../ delivery systenmnechanism; nanotechnology can optimise worrẏsome wrinkles
+wrinkles in time; the older we get, the more surface area (fractal geometry) is required for /oxygen|../ delivery systenmnechanism; nanotechnology can optimise worrẏsome wrinkles #ganja@pores(godutch)
 
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
