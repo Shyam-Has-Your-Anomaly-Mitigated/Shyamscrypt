@@ -234,7 +234,7 @@ wrinkles in time; the older we get, the more surface area (fractal geometry) is 
 i get high just smoking /coffee(house)?grinded|pow((decarbed|mixed(resin,..)?) for that extra kick)dered/ by the tweezer(tongs); (dual) lungs' surface area (fractal geometry) can only absorb so much, before it's wasted, even though they can carry like a wild s/arabian/bactrian/ dromedary
 wrinkles in water; absorbs more
 bioplasticity
-normally internal plumb(us)ing leakage(of gaṣes, blood, io, cancer,..) is (explosively) bad, but /oxygen|../ could be good
+normally internal plumb(us)ing leakage(of gaṣes, blood, io, cancer,..) is (explosively) bad, but /oxygen(ation)?|../ could be good
 mother organs teach baby organs; eggs leak information like a /black|../ hole for c̄ to crawl from mouth(superposition; internal v external #commentrieselfiesharmiesfæries..) and miss(errz) b(todo; s/github/git/, unicode(304),..)
 /camic|eyes|ears|medical records|datamining|../ v observer paradox (transcription errors, bugs, /vulnerable|exploitable/ cracks, mtbf,..)
 shyams' humble paradox, a metaparadox itself(hostage): even humbleness can be competitive; who is the most humble? #paradox
