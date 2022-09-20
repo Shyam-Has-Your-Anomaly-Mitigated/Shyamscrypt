@@ -227,6 +227,7 @@ conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 
 fritz the cat is like appleby in yes minister; now it's my favourite movie
 
+(oranges, chillies,..) are good for eating people too
 weighing down plants /increases|decreases/ dimensions #bioplasticity
 growing plants upsidedown uses both light, and gravity, to increase dimensions #bioplasticity
 smoking ashes∘people by feeding them to ganja, and smoking them through the ganga
