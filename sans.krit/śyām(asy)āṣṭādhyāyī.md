@@ -227,6 +227,8 @@ conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 
 fritz the cat is like appleby in yes minister; now it's my favourite movie
 
+/fingerprints|genetics(equences)?|(sub)?atomic configurations|../ are different to avoid monocultures
+dreams are life experience; iff you totally immerse (like language learning) yourself enough, you will dream it
 (brute)force memorisation, shyams' hindu yogi mind tricks: memorising in every order (like i know it, now i play c̄ it) knows it better, including /positional|../ information,.. (i read ahead of anu; manu; manulipi; palmanu; palmanuscript; palm leaf on the voiced winds of…)
 how long does it take to become an expert at religion, aliens,.?
 where else can capacitance be applied? /meta|evolutionary|genetic|(neuro|bio|software|hardware|..)plasticity|muscle memory|plyometrics|drag racing (slingshot|nos|..)|wind up (toys|drillings|fuckings|suckings|..)|.?/ #smartpeopleadddeadmassinsteadofmoredrinkmeansmorescienceinstrumentslikecamic…(/gravitational|environmental|natural|heat|cold|../ /extremes|waves|particles|conditions|disasters|rises|sets|../ ((critical) mass v volume (litre,..) v..), sspaciottemporal entanglement in every direction at every scale.., more pie (to drop them, or not to drop them? tools is the query!),..)(french scales, engineering, construction, buildings,..)(macro drone disx; i've just optimised the /tallest|strongest|oldest|../; space elevators; megastructures; quantum noise; planetary shield (carrington(sized) events, stealth v dec(olonisation)oys v backups,..);..) #the_shyam_factor!!!_:D(is this the only capital punishment for my rsi?)
