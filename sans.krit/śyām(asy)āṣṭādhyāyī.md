@@ -238,7 +238,7 @@ mother organs teach baby organs; eggs leak information like a /black|../ hole fo
 /camic|eyes|ears|medical records|datamining|../ v observer paradox (transcription errors, bugs, /vulnerable|exploitable/ cracks, mtbf,..)
 shyams' humble paradox, a metaparadox itself(hostage): even humbleness can be competitive; who is the most humble? #paradox
 this butane(?)in(?)containerment(?) lighter says not to keep lit for more than half a minute; just because they put it in seconds, doesn't make it scientific, and i bet a second, and a degree, more that it will functionuuork until the gas runs out
-that girl of three who won @veritasium; her math can find planets, but also applied to datamining in general
+that girl of three who won @veritasium; her math can find planets, but also applied to datamining in general (mit intelligence; graphing the search space; starting c)
 
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
