@@ -227,6 +227,7 @@ conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 
 fritz the cat is like appleby in yes minister; now it's my favourite movie
 
+smoking ashes∘people by feeding them to ganja, and smoking them through the ganga
 fresh distilled water fasting; to avoid contamination from containment; surface area (fractal geometry)
 reality is a monoculture, pussyaibilities are in my datamining rig, formal methods,..
 /fingerprints|genetics(equences)?|(sub)?atomic configurations|../ are different to avoid monocultures
