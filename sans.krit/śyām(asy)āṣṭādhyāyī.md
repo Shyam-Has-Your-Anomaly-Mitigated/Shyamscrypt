@@ -233,7 +233,7 @@ wrinkles in time; the older we get, the more surface area (fractal geometry) is 
 i get high just smoking /coffee(house)?grinded|pow((decarbed|mixed(resin,..)?) for that extra kick)dered/ by the tweezer(tongs); (dual) lungs' surface area (fractal geometry) can only absorb so much, before it's wasted, even though they can carry like a wild s/arabian/bactrian/ dromedary
 wrinkles in water; absorbs more
 bioplasticity
-normally internal plumb(us)ing leakage is bad, but /oxygen|../ could be good
+normally internal plumb(us)ing leakage(of gaṣes, blood, io, cancer,..) is bad, but /oxygen|../ could be good
 
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
