@@ -227,6 +227,7 @@ conceptual /magic|math|../ v dre amma gic v /placebo|coin see, dense|../ v..
 
 fritz the cat is like appleby in yes minister; now it's my favourite movie
 
+reality is a monoculture, pussyaibilities are in my datamining rig, formal methods,..
 /fingerprints|genetics(equences)?|(sub)?atomic configurations|../ are different to avoid monocultures
 dreams are life experience; iff you totally immerse (like language learning) yourself enough, you will dream it
 (brute)force memorisation, shyams' hindu yogi mind tricks: memorising in every order (like i know it, now i play c̄ it) knows it better, including /positional|../ information,.. (i read ahead of anu; manu; manulipi; palmanu; palmanuscript; palm leaf on the voiced winds of…)
