@@ -232,7 +232,7 @@ weighing down plants /increases|decreases/ dimensions #bioplasticity
 growing plants upsidedown uses both light, and gravity, to increase dimensions #bioplasticity
 smoking ashes∘people by feeding them to ganja, and smoking them through the ganga
 fresh distilled water fasting; to avoid contamination from containment; surface area (fractal geometry)
-reality is a monoculture, pus()s()ya[]ibiliti[]es() are in my datamining rig, formal methods,..
+reality is a monoculture, pus()s()ya[]ibiliti[]es() (even kā = ka[]a) are in my datamining rig, formal methods,..
 /fingerprints|genetics(equences)?|(sub)?atomic configurations|../ are different to avoid monocultures
 dreams are life experience; iff you totally immerse (like language learning) yourself enough, you will dream it
 (brute)force memorisation, shyams' hindu yogi mind tricks: memorising in every order (like i know it, now i play c̄ it) knows it better, including /positional|../ information,.. (i read ahead of anu; manu; manulipi; palmanu; palmanuscript; palm leaf on the voiced winds of…)
