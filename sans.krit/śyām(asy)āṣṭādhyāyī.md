@@ -234,6 +234,7 @@ i get high just smoking /coffee(house)?grinded|pow((decarbed|mixed(resin,..)?) f
 wrinkles in water; absorbs more
 bioplasticity
 normally internal plumb(us)ing leakage(of gaṣes, blood, io, cancer,..) is (explosively) bad, but /oxygen|../ could be good
+mother organs teach baby organs
 
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
