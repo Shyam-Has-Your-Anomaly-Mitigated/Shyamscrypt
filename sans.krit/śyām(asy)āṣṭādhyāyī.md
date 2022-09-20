@@ -236,6 +236,7 @@ bioplasticity
 normally internal plumb(us)ing leakage(of gaṣes, blood, io, cancer,..) is (explosively) bad, but /oxygen|../ could be good
 mother organs teach baby organs; eggs leak information like a /black|../ hole for c̄ to crawl from mouth(superposition; internal v external #commentrieselfiesharmiesfæries..) and miss(errz) b(todo; s/github/git/, unicode(304),..)
 /camic|eyes|ears|medical records|datamining|../ v observer paradox (transcription errors, bugs, /vulnerable|exploitable/ cracks, mtbf,..)
+even humbleness can be competitive; who is the most humble? #paradox
 
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
