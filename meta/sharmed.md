@@ -23,3 +23,4 @@ double rng(t; unless stress testing; until limit #xalx) auth; long-term, and sho
 links,.; "n÷total"; clickable list; cfg(unique v..), now cfg can be toggle irt
 no loading screen; like blender, american wasteland, emacs,..
 no installer; just /cp|cat|../ bootable whatever~
+no input sanitisation; whatever the fuck github does is just fucked up‽
