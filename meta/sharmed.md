@@ -24,4 +24,4 @@ links,.; "n÷total"; clickable list; cfg(unique v..), now cfg can be toggle irt
 no loading screen; like blender, american wasteland, emacs,..
 no installer; just /cp|cat|../ bootable whatever~
 no input sanitisation; whatever the fuck github does is just fucked up‽
-thinking about indic numerals @prolog, then hexagrams, then positional letters of scripts,.. #math
+thinking about indic numerals @prolog, then hexagrams, then positional letters of scripts (extended to named /numerals|numbers|values|figures(k8)|personalities|gods|../,.. #math
