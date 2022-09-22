@@ -11,7 +11,8 @@ cpu affinity, or whatever; for each vm, maybe even more /..|replicators(?)@starg
 gpu has it's own memory, but i generalise to a(ll)pu(s)
 hud; hardwareless user desk (scrambled brain(/wave|particle|../(patterns))s #eggheads)
 every"-thing" is a file, and organisation is entropical
-observer paradox can be used to make nukes go super critical mass, stars go super nova, hearts /stop|explode|break|../, minds lose /control|it|../,..
+observer paradox can be used to make nukes go super critical mass, stars go super nova, hearts /stop|explode|break|../, minds lose /control|it|yeastvirginity|virginyeast|../,..
+when i pop your cherry, i'll toast your coma; sleeping beauty
 
 sleeping bag (head first privacy mode; hooded keeps the pillow in v double sized v (electronically v not; electricity is dangerous, like putting aquarium heaters in a bath) heated v..) ÷ thermal eva foam bed roll
 never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
