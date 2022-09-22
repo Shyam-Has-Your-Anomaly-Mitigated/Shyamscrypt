@@ -12,3 +12,4 @@ sleeping bag (head first privacy mode; hooded keeps the pillow in v double sized
 never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
 
 dino dragon gods probably invented fire
+auth: pi v lisp v sanskrit v..
