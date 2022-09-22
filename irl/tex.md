@@ -1,3 +1,4 @@
+```
 laptops for portability
 vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
