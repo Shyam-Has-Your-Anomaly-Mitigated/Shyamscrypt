@@ -20,3 +20,7 @@ electrolysis(demolecularisation; followed by remolecularisation; deremolecularis
 
 dino dragon gods probably invented fire
 auth: pi v lisp v sanskrit v..
+ganja@04:20
+ganja@16:20
+blink@18:20
+feast@18:46
