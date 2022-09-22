@@ -9,3 +9,4 @@ instead of $1/d/y (<$365); thousand dollar laptops, where 16g ram (3 vms) is now
 ram drives
 
 sleeping bag ÷ thermal eva foam bed roll
+never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
