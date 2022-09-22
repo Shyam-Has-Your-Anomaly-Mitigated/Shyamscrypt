@@ -10,3 +10,5 @@ ram drives
 
 sleeping bag (head first privacy mode; hooded keeps the pillow in v double sized v electronically heated v..) ÷ thermal eva foam bed roll
 never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
+
+dino dragon gods probably invented fire
