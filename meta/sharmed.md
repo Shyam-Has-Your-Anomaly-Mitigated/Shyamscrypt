@@ -26,6 +26,6 @@ no installer; just /cp|cat|../ bootable whatever~
 no input sanitisation; whatever the fuck github does is just fucked up‽
 thinking about indic numerals @prolog, then hexagrams, then positional letters of scripts (extended to named /numerals|numbers|values|figures(k8)|personalities|gods|constants|variables|../,.. #math
 whilst variables can remain constant, constands until varyaballz
-numerals can be treated algebraically
+numerals can be treated algebraically; 5=3, 3=5,..
 need to experiment c̄ /ram|cache|drive|register|stack|../less (is an unregistered operating system even possible?)
 ≥2 gamer girls, 1 cp↔u
