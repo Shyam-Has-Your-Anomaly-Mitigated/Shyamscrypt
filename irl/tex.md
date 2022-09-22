@@ -8,5 +8,5 @@ daily updates, and checking every"-thing"; ensures i can answer any questions ab
 instead of $1/d/y (<$365); thousand dollar laptops, where 16g ram (3 vms) is now my minimum
 ram drives
 
-sleeping bag (head first privacy mode) ÷ thermal eva foam bed roll
+sleeping bag (head first privacy mode; hooded keeps the pillow in v double sized v electronically heated v..) ÷ thermal eva foam bed roll
 never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
