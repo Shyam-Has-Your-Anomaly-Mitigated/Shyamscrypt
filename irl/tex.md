@@ -24,3 +24,4 @@ ganja@04:20
 ganja@16:20
 blink@18:20
 feast@18:46
+i just discovered i can lick my own /beered|mousetouch/ (clean); do humans cough up furballz?
