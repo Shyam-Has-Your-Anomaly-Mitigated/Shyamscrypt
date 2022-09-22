@@ -14,7 +14,7 @@ rrgg00; until proven otherwise, but cfg for the darwin award
 human ui/ux is so slow reaction speeds; just read files from drive to ram as the refresh rate of the gui, for optimised concurrent access, where every"-thing"s a file; `mv file` is /flossed|logged/ #titw
 i'm only supporting open hardware in the license; starting c̄(wow; what the fuck did github just do? n-list?..) olimex diy laptop; so twist my s/hex86_64/arm/, until they, or others improve, or their arm tastes better than pi, or it's just their distro, risv-v beagle v,..
 open hardware can be formally verified against docommentation; stress testing, cosmic ray detection,..
- see what makes it tick; graffiti confetti attacks, audio confetti attacks,..
+ see what makes it tick; graffiti confetti attacks, boombox confetti attacks,..
   https://youtu.be/-y3RGeaxksY
 the hardware will be a /(vegan|fruitaryan|holowave projection|real|..) (glues|plant-based (recyclable|biodegradable|..)-plastic|programmable matter|..)/ ma(gi)cbook
  it will attempt to measure every"-thing" (for confirmation, and beyond!!! :D), (just) in case any"-thing" changes (detectably); now what to do, depending what /calculuses|yijings|jinxes|../ (ctrl+k="[](url)")
