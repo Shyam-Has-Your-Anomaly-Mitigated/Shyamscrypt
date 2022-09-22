@@ -251,4 +251,5 @@ that girl of three who won @veritasium; her math can find planets, but also appl
 i'm going to pierce both our /nipples|noses|../, and weld them together; i'm the bull ring
 lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /locketterseholes|locketta āssholes|lockettairseholes|lockettyarseholes|lockettaissholes|lockettyassholes/ are forced to worship me c̄ /pure devotion|unconditional l(ove|-word)|../
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
+harry potter invisibility cloak v tolkien ring v..
 dickhead is at the tip of my xox; want some xoxo? /got xoxo?/
