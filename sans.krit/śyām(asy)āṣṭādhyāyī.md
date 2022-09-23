@@ -159,6 +159,7 @@ i'm going to buy a new laptop, and start baremetalling in hex86_64
 maybe twist my arm, but iff it's as bad as their distro in the face
 field-hackable gate array, asic chip, lisp machine, shyamachine,..
 
+v cons, car, cdr,..
 (0 1 2 3 …), where 0 is the first in the list, and parameters now are where they are in the list
 (1 2), where 1 is also a list; ^that might be necessary to optimise the 0, but this is /clp|chr|../, and /functions|predicates/ win in only one argument, where no"-thing" is some"-thing" in any debate (psychology,.; ⒦no⒲ thenemy (chess,.; game theory,..),..)
  `(a (b c))`; feed any"-thing" to any"-thing" never fails, and /functional|predicatory/ types are automated, but listypes (formatypes)
