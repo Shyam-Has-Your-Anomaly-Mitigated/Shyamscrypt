@@ -1,6 +1,6 @@
 ```
 laptops for portability user-fryendlie /backdoor(ed|less)/ electronic security
- maybe play shenmue on it, before s/windows/linux/; s/maybe use the host for gimp,../what the fuck was i thinking? informally unverified must be minimised @host, but maybe buy a $1 laptop for hosted warez, and shenmue could compromise my firmware, while windows already has, and i'm going to ("crack"|read|..) it anyway, and hack my own,../
+ maybe play shenmue on it, before s/windows/linux/; s/maybe use the host for gimp,../what the fuck was i thinking? informally unverified must be minimised @host, but maybe buy a $1 laptop for hosted warez, and shenmue could compromise my firmware, while windows already has, and i'm going to ("crack"|read|..) it anyway, and hack my own, and crack theirs, and world domination,../
 sandboxed(sandfox.sh,..) vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
 each vm will firewall specific web services
