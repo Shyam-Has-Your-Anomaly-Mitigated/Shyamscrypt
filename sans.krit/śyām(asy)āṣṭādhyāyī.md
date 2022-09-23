@@ -65,6 +65,7 @@ rama, and sita, sitting in the /treehouse|palace|cityogodz/; visual spacial (men
 
 you: _
 me:  _iti tvaṃ māmuditvā… (providing the context)
+     ^only needs to contain what is being responded to like emergency services; iff they start testing my memory
 
 ahamaham |
 
