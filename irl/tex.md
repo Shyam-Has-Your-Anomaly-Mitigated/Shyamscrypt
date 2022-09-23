@@ -31,3 +31,4 @@ i just discovered i can lick my own /beered|mousetouch/ (clean); do humans cough
 do i only use one nostril at a time? breathing in through one nostril, and out the other? sinuses?.. now i'm breathing through the other nostril; so it flipflopz
 never say never is a fallacy, not a phalluse
 shut up, and talk; that's a very confusing combination of commands
+maybe i should make a list of funny females, and see how they run, walk,..
