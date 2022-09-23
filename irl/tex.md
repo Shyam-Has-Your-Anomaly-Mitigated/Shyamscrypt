@@ -29,3 +29,4 @@ blink@18:20
 feast@18:46
 i just discovered i can lick my own /beered|mousetouch/ (clean); do humans cough up furballz?
 do i only use one nostril at a time? breathing in through one nostril, and out the other? sinuses?.. now i'm breathing through the other nostril; so it flipflopz
+never say never is a fallacy, not a phalluse
