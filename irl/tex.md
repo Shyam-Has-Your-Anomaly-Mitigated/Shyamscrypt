@@ -1,6 +1,6 @@
 ```
 laptops for portability user-fryendlie /backdoor(ed|less)/ electronic security
-sandboxed vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
+sandboxed(sandfox.sh,..) vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
 each vm will firewall specific web services
 #dotadiw
