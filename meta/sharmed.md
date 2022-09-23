@@ -39,3 +39,6 @@ me: x bits (so bytes s/will/can/ be split like hair(ending)s)
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
+
+i just discovered raspberry pi default terminal has ctrl(-); i wonder iff this is as universal as ctrl(arrows), shift(ctrl(arrows)),..
+now i just reinvented keyboarding
