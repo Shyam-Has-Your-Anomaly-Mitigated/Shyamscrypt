@@ -19,6 +19,7 @@ never put (micro)plastics in the (pizza)oven ever again; just empty into rice co
 electrolysis(demolecularisation; followed by remolecularisation; deremolecularisation(distillation,..) = electrolysis) is better than distillation(of other chemicals),.? thermal, ærogel(triple? super critical mass! just pressurise it instead of pumping electrons; electrons + water = (well; see, it's implicit no"-thing"ness) cooked rice),..
  /bamboo|fṝvitaryan|../(/cellulose|../ is good at transporting water? indoor avoids chemical treatment plants, /acid|chocolate|male|gods c̄ face value|../ rain,.; but environmental (cross)contamination is still risky business) v copper(other antimicrobial) v clay v glass v metal v..
 s/indoor/clean room/
+self-flying helilimo; mdd
 
 dino dragon gods probably invented fire
 auth: pi v lisp v sanskrit v..
