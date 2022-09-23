@@ -40,5 +40,5 @@ memory allocation, computation scheduling,.; booking system #/l+-?tp/
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
-i just discovered raspberry pi default terminal has ctrl(-); i wonder iff this is as universal as ctrl(arrows), shift(ctrl(arrows)),..
+i just discovered raspberry pi default terminal has ctrl(-) (it clears the commandline, but up, to copy down, then hold backspace, and it forespaces); i wonder iff this is as universal as ctrl(arrows), shift(ctrl(arrows)),..
 now i just reinvented keyboarding
