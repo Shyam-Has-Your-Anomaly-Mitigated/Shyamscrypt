@@ -3,7 +3,7 @@ laptops for portability user-fryendlie /backdoor(ed|less)/ electronic security
  maybe play shenmue on it, before s/windows/linux/; s/maybe use the host for gimp,../what the fuck was i thinking? informally unverified must be minimised @host, but maybe buy a $1 laptop for hosted warez, and shenmue could compromise my firmware, while windows already has, and i'm going to ("crack"|read|..) it anyway, and hack my own, and crack theirs, and world domination,../
  https://www.pcgamer.com/best-way-to-make-shenmue-3-money-quick-fast-easy-yuan/
   clickbait(wikipedia linked it as "Make it rain Yuan with these Shenmue 3 money-making tips"; i guess my brain just dm for grqs(s)); it's only for the game, not irl
- maybe i'll just become a gamer again, and start watching all the movies, and television shows, and probably suicide from; i just can't do it, and not just from content overload, but maybe i can just road trip around open worlds until i've memorised them like 1729 (because that's more tolerable than actually playing the game any other way),..
+ maybe i'll just become a gamer again, and start watching all the movies, and television shows, and probably suicide from; i just can't do it, and not just from content overload, but maybe i can just road trip around open worlds aimlessly until i've memorised them like 1729 (because that's more tolerable than actually playing the game any other way),..
 sandboxed(sandfox.sh,..) vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
 each vm will firewall specific web services
