@@ -29,3 +29,11 @@ whilst variables can remain constant, constands until varyaballz
 numerals can be treated algebraically; 5=3, 3=5,..
 need to experiment c̄ /ram|cache|drive|register|stack|../less (is an unregistered operating system even possible?)
 ≥2 gamer girls, 1 cp↔u
+
+sandfox.sh only does filesystem sandboxing
+i want a system, where programs negotiate c̄ me for all resources
+you: how much ram? (begging system)
+me: x bits (so bytes can be split like hairs)
+...is better than begging for 1g ram, then i say no, /and|or/(todo: change to unicode diamond) how much there is; bartering, haggling,..
+<> = andor
+ram, cpu scheduling, gpu scheduling; booking system #/l+-?tp/
