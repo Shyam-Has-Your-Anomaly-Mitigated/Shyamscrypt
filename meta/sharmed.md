@@ -43,4 +43,5 @@ maintain a list of malfunctional resources in 𝄞triplicate #cfg
 i just discovered raspberry pi default terminal has ctrl(-) (it clears the commandline, but up, to copy down, then hold backspace, and it forespaces); i wonder iff this is as universal as ctrl(arrows), shift(ctrl(arrows)),..
 now i just reinvented keyboarding
 
-i want both registers, and stacks,..; fuck risc,..
+i want both registers, and stacks,.; fuck risc,..
+i want both (integrated?) modal cores, and dedicated cores,..
