@@ -6,6 +6,7 @@ laptops for portability user-fryendlie /backdoor(ed|less)/ electronic security
  maybe i'll just become a gamer again, and start watching all the movies, and television shows, and probably suicide from; i just can't do it, and not just from content overload, but maybe i can just road trip (c̄ free fuel, but i still have to eat, and drink, irl, and maybe even in the game; maybe even fuel isn't free anymore; is no"-thing" sacred? yes!!! :D) around open worlds aimlessly until i've memorised them like 1729 (because that's more tolerable than actually playing the game any other way),..
 sandboxed(sandfox.sh,..) vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
+ host never updates; just reinstall, like the offliner i rarely use, but always plan to anyway~
 each vm will firewall specific web services
 #dotadiw
 daily updates, and checking every"-thing"; ensures i can answer any questions about my bank account (/14 bit|2 byte/ figure financiosocial status), for example (and contact the bank iff any discrepancyes)
