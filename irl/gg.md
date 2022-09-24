@@ -14,7 +14,7 @@ that crazy magic game; (ride along /stream|river|../) throw it on the ground (in
  this one is the one with the crazy graphics; the wizard strikes the ground c̄ staff (i think there's both lightning, and cracks, but they might be the same,..),..
  it's like /fortnite on steroids (had a baby on steroids)+/
  it got better when they added /jizz|dream|../ wizards
- crack the magicalanguages, and recite fromemory(/pañcamī|ablative|../),.; for the most power
+ crack the magicalanguages (like those magical hacking books), and recite fromemory(/pañcamī|ablative|../),.; for the most power
 that crazy chase game; it's kind of like raft c̄ /kraken|cthulhu|dinos|godzilla|../, start at land (/religions|skills|../ from items, books,.; mkships; axiomatically choose ship(s);..), good ships /are easy to disassemble|work on land|the logs trick|../, /win|race|../ conditions = /longest survival|furthest distance|most value|most (player|ship|giant|baby|..) kills|(religious|..) domination|solo|../,..
  this one is where the /speed|wind|(doggy)?paddle|../ factors the giants, and their babies are like sharks in raft; birds /drop|swoop|dive (crash v down under)|../
  it's also capture the flags + hunger games +..; cannibal, pirate, ethical, religious, magics,..
