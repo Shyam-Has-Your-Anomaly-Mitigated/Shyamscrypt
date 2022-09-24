@@ -7,6 +7,7 @@ laptops for portability user-fryendlie /backdoor(ed|less)/ electronic security
 sandboxed(sandfox.sh,..) vm per "-thing"; email vm, online banking vm, study vm, baremetal vm,..
 host blocks all i/o networking; only forwarding to the vms
  host never updates; just reinstall, and initial update only, like the offliner i rarely use, but always plan to anyway~
+ /download|update|../ c̄ /mac|ip/ address spoof,..
 each vm will firewall specific web services
 #dotadiw
 daily updates, and checking every"-thing"; ensures i can answer any questions about my bank account (/14 bit|2 byte/ figure financiosocial status), for example (and contact the bank iff any discrepancyes)
