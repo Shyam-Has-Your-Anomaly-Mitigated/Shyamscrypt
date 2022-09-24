@@ -44,4 +44,4 @@ i just discovered raspberry pi default terminal has ctrl(-) (it clears the comma
 now i just reinvented keyboarding
 
 i want both registers, and stacks,.; fuck risc,..
-i want both (integrated?) modal cores, and dedicated cores,..
+i want both /modal|integrated/ cores, and dedicated cores,.; not just cores,..
