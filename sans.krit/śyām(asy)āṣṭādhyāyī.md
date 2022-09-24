@@ -234,6 +234,7 @@ the fact it makes sense; makes sense
 the fact it doesn't make sense; makes sense
 the fact it makes sense; doesn't make sense
 the fact it doesn't make sense; doesn't make sense
+the opposite of a is z, or a hindu /numeral|number|../, or some"-thing" /unwrit?table/,..
 
 (oranges, chillies,..) are good for eating people too
 weighing down plants /increases|decreases/ dimensions #bioplasticity
