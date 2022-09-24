@@ -236,6 +236,7 @@ the fact it makes sense; doesn't make sense
 the fact it doesn't make sense; doesn't make sense
 the opposite of a is z, or a hindu /numeral|number|../, or some"-thing" /unwrit?table/,..
 
+acting blind; moving head, instead of eyes, is the easiest i cdr
 (oranges, chillies,..) are good for eating people too
 weighing down plants /increases|decreases/ dimensions #bioplasticity
 growing plants upsidedown uses both light, and gravity, to increase dimensions #bioplasticity
