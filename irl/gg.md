@@ -17,7 +17,7 @@ that crazy magic game; (ride along /stream|river|../) throw it on the ground (in
  crack the magicalanguages (like those magical hacking books), and recite fromemory(/pañcamī|ablative|../),.; for the most power
 that crazy chase game; it's kind of like raft c̄ /kraken|cthulhu|dinos|godzilla|../, start at land (/religions|skills|../ from items, books,.; mkships; axiomatically choose ship(s);..), good ships /are easy to disassemble|work on land|the logs trick|../, /win|race|../ conditions = /longest survival|furthest distance|most value|most (player|ship|giant|baby|..) kills|(religious|..) domination|solo|../,..
  this one is where the /speed|wind|(doggy)?paddle|../ factors the giants, and their babies are like sharks in raft; birds /drop|swoop|dive (crash v down under)|../
- it's also capture the flags + hunger games +..; cannibal, pirate, ethical, religious, magics,..
+ it's also capture the flags + hunger games +..; cannibal, pirate, ethical, religious, magics,.. #alignment
  it got better when they allowed players to play giants, and they expanded it to giant v giant, giant /crafting|skills|personal dev|../,.. (i can't remember what happended c̄ the fleet cheat; it started c̄ roping them together, and at some point they just made a players agreement that common ships counted ftw, and they can /split|gang/, and it still counts anyway)
  /drop|pord/ some"-thing", and be accused iff witness chooses same ship; like among us, dread hunger (bone knives),..
 i think these are crazy popular, because they were early, but also because they're crazy good, and crazy deep,..
