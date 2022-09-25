@@ -91,6 +91,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
   - shyamalipi' shyam(scrẏpt)-cumplete(https://swi-prolog.discourse.group/t/unicode-symbols-and-a-possible-numerical-paradox/5533/5) non-karable xarz'll (w is a semivowel; sanskrit semivowels are semiconsonants) be respected (or'll't?), but unicode controls willn't
  - mkay dir; like perl, but implemented using s/dexin'?/dexout'?/ #decouting #crufting_recipe #hackcruft #!..
  - f(list, null); so map(f,l,𝄞n),..
+  - mixed types; "3", 51, (list (list (tsil)) (list tsil) (list (tsil)) (tsil)), constant_three, variable_three, (magical 3),..
  - z-expressions go the opposite way to s-expressions, and (crazy)8(s)-expressions support more structural complexity, and ∞-expressions can be {a,car(a)=a,cdr(a)=a,cons(a,a)=a,..}, and w-expressions are opposite m-expressions,..
 [ ] reading den:
  [x] my flag is maha logically primed; is ali a lie?
