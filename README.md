@@ -233,7 +233,7 @@ roussel is to prolog, as russell is to lisp, as russell is to principia mathemat
    - ml is loosely characterised as "Lisp with types" coming from the simply types lambda calculus; i think i discovered more last time #the_discovery
   - https://youtu.be/vGVJYoKIzjU?t=32m # lisp is faster for prototyping, and they probably expanded their macros to pad it out to make them look more professional, and then played games for over 2 hours (before, or after? that is the query!); instead of docommenting their macro expansions, as evident by the lowest ratio (excluding the two that took the longest, and failed to docomment; wonder how many hours they spent playing games, given lisp did more in less ttime); negative ttime for /n?awk/, and c++ … spaghetti code probably comes from compilation (followed by decompilation if they aren't hex, but source2source for readability; spaghetti code prevents anyone from /questioning|call them out (for|against)/ niche concepts ∵ talking others down is how they cover up their own shortcummings, since nobody pays any attention to the opposite antithesis "around here" #psychology); embeddable schemes (racketeering), and minikanrens
    |  ____________
-   | [blame bjarne]; c++ started an ice age that cracked asic lisp machines @ https://twobithistory.org/2018/10/14/lisp.html#lisp-comes-back
+   | [blame bjarne]; (a year after common lisp) c++ started an ice age that cracked asic lisp machines @ https://twobithistory.org/2018/10/14/lisp.html#lisp-comes-back
    |  ||||||||||||
    - actually; relational means prolog macro expansion into tr(prolog,lisp) into lisp macro expansion
  [ ] ciao; i'm suspicious of any"-thing" /roman|german|japanese/, and i get this mixed up c̄ inrias' pharo (france v egypt; chef v /devaraja|rajadeva/)
