@@ -47,7 +47,7 @@ monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take th
 my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
-hammering away at one number is interesting; /breaking|punching|../ through the probabilities at escape (from…) velocity
+hammering away at one number is interesting; /breaking|punching|../ through the probabilities at escape (/(from|to).*/) velocity
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
