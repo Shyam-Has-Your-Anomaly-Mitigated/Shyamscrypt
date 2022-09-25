@@ -263,3 +263,4 @@ lockettedbussies worship me c̄ /pure devotion|unconditional l(ove|-word)|../, /
 knock turn ally is actually nocturnal; only open at night, when the sun can't directly attack vamps, after bedtime c̄ sand in your /queef|quiche|bussy|../
 harry potter invisibility cloak v tolkien ring v..
 dickhead is at the tip of my xox; want some xoxo? /got xoxo?/
+doctor whore (sexual healing) got fluxed?
