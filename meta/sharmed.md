@@ -40,7 +40,7 @@ x = orand
 ♦️ = andor, inequality,..
 ♠️ = and,..
 ♥️ = or,..
-♣️ = nth /opcode|function|predicate|../,..
+♣️ = knot, nth /opcode|function|predicate|../,..
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
