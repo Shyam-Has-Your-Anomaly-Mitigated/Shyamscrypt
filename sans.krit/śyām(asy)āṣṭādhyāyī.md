@@ -8,7 +8,7 @@ paniniya shiksha is probably the sampradaya; percussive consonants {k,c,ṭ,t,p}
 8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
-8<gañjaudanam, and suryaphalam, are the first compounds>8
+8<gañjaudanam (boiling into rice(i still have stocks; canned veges is the goal though) is better than baking into pizzætte; abbott' flat bread (s/pizza/herb/ fits in my pizza oven; never tried a full pizza bread; i always halve it; gañjā garnish didn't really work for me, or i didn't use enough, or didn't do it properly,..) + coles' pizza sauce + sheese' grated tasty cheese), and suryaphalam, are the first compounds>8
 …
 śikṣā: dino(godz(illa-k(illa)?)?)?z?, where lizard people control the world; like the big bang in pool that pockets all my chocolate salty balls through your lips, and netted by your tongue
  jurassic bone flute is a good starting p∘o
