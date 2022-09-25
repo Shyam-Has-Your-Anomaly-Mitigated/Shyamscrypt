@@ -36,6 +36,7 @@ you: how much ram? (begging system)
 me: x bits (so bytes s/will/can/ be split like hair(ending)s)
 ...is better than begging for 1g ram, then i say no, /and|or/(todo: change to unicode diamond) how much there is; bartering, haggling,..
 <> = andor
+x = orand
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
