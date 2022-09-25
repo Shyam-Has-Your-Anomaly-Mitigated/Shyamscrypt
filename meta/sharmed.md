@@ -48,6 +48,7 @@ my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|../ through the probabilities at escape (/(from|to).*/) velocity
+it's hard to imagine a plane going missing c̄ gps; the usa is either incompetent, or testing their 51ˢᵗ area,..
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
