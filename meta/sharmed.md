@@ -42,6 +42,7 @@ x = orand
 ♥️ = or,..
 ♣️ = knot (/any|all|../ but one), nth /opcode|function|predicate|../,..
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
+monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take the lowest value away, and the remaining is more likely to win), but how do i replicate this in the wild? i'm /thinking|planning/ to gamble my problems away…
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
