@@ -44,11 +44,11 @@ x = orand
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
 monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take the lowest value away, and the remaining is more likely to win), but how do i replicate this in the wild? i'm /thinking|planning/ to gamble my problems away…
  goto prison v double freedom; safer to stay c̄ first axiom
-my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving
+my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving (it's motion towards winning)
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|../ through the probabilities at escape (/(from|to).*/) velocity
- it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going
+ it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going (it's motion towards winning)
 it's hard to imagine a plane going missing c̄ gps; the usa is either incompetent idiocracy, or testing their 51ˢᵗ area, gta + human traffixing,..
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
