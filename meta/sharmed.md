@@ -53,6 +53,14 @@ it's hard to imagine a plane going missing c̄ gps; the usa is either incompeten
 sudo mksandwich; when you get your boss a coffee, it's really just an opportunity to spike it (iff your spit is diseased)
 immortality; organ donor, and my will goes to themyself (now "those" pronouns mkcentz), but they must follow suit⒮
  dimensional scales ∘ duality; atoms, souls,..
+ how do i become an organ donor, and make my will to them, but they have to do the same; otherwise, iff i can't have immortality, then i'd rather be (100%) cremated
+  technically i'm just giving my will to myself
+  iff i live to 2073.07.04; i'll buy a wooden boat, and set myself on fire down the ganga
+  in the middle of the widest part
+  do organ donors leave messages for their future selves?
+  they have to be vegan, or i pass that karma parcel onto them, on my way out
+  they also have to practice hinduism
+  iff they pay taxes on non-vegan, i get a new host, and they goto prison, and pay my new host
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
