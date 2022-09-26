@@ -10,7 +10,7 @@ among us is now @ndroid; i can finally play the game i spent so long watching ot
 i just discovered google has a fishing game; for 404 results (what happens when you type in obscure mantras)
 
 i haven't seen these yet #/l+tp/
-that crazy magic game; (ride along /stream|river|../) throw it on the ground (in a puddle), burials (like that demo where you can shoot tunnels, but i never got anywhere…), sex magic (babies, plants, eggs,.; sometimes these are new players, depending iff a new player joins the server, providing buffs, and grogu,..),..
+that crazy magic game; (ride along /stream|river|../) throw it on the ground (in a puddle), burials (like that demo where you can shoot tunnels, but i never got anywhere…), sex magic (babies, plants, eggs,.; sometimes these are /new|resurrected|npc?|../ players, depending iff a new player joins the server, providing buffs, and grogu,..),..
  this one is the one with the crazy graphics; the wizard strikes the ground c̄ staff (i think there's both lightning, and cracks, but they might be the same,..),..
  it's like /fortnite on steroids (had a baby on steroids)+/; that crazy spy game is just pure steroids (like the sting 1973, focus 2015,..)
  it got better when they added /jizz|dream|../ wizards
