@@ -64,6 +64,7 @@ immortality; organ donor, and my will goes to themyself (now "those" pronouns mk
  it's like black mirror
  i need an heirloom; a symbolic physical manifestation that says "shyam inside" (personality box; locket)
  what lasts forever, and is cheap enough not to be stolen? painted diamond made from my ashes
+ they must learn sanskrit, s/quantum, prolog, lisp, perl, math,../shyam.*/
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
