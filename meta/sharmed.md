@@ -63,8 +63,8 @@ immortality; organ donor, and my will goes to themyself (now "those" pronouns mk
   iff they pay taxes on non-vegan, i get a new host, and they goto prison, and pay my new host
   depending on the economy
  it's like black mirror
- i need an heirloom; a symbolic physical manifestation that says "shyam inside" (personality box; locket)
- what lasts forever, and is cheap enough not to be stolen? painted diamond made from my ashes
+ i need an heirloom; a symbolic physical manifestation that says "shyam inside" (personality box; locket(bamboo? ash + lipikara?..))
+ what lasts forever, and is cheap enough not to be stolen? (vegan)painted diamond made from my ashes
  they must learn sanskrit, s/quantum, prolog, lisp, perl, math,../shyam.*/
  memorise; selected vedangas,..
 
