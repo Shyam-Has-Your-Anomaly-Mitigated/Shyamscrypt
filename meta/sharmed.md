@@ -51,6 +51,7 @@ hammering away at one number is interesting (as interesting as being stoned by t
  it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going (it's motion towards winning)
 it's hard to imagine a plane going missing c̄ gps; the usa is either incompetent idiocracy, or testing their 51ˢᵗ area, gta + human traffixing,..
 sudo mksandwich; when you get your boss a coffee, it's really just an opportunity to spike it (iff your spit is diseased)
+immortality; organ donor, and my will goes to them, but they must follow suit⒮
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
