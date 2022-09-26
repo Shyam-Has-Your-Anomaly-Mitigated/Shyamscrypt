@@ -62,7 +62,7 @@ immortality; organ donor, and my will goes to themyself (now "those" pronouns mk
   they also have to practice hinduism
   iff they pay taxes on non-vegan, i get a new host, and they goto prison, and pay my new host
  it's like black mirror
- i need an heirloom; a symbolic physical manifestation that says "shyam inside"
+ i need an heirloom; a symbolic physical manifestation that says "shyam inside" (personality box; locket)
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
