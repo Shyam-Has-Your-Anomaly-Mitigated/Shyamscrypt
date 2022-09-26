@@ -1,6 +1,6 @@
 ```
 `(tr script devanagari)`8<maybe just `(= roman script)`, and english is assumed, but later `(= shyamalipi script)`, and shyamskrit is assumed; shyamskrit will probably be hosted by sanskrit, before self-hosting for redundancy backups; a tree is a tree in sanskrit>8
-paniniya shiksha is probably the sampradaya; percussive consonants {k,c,ṭ,t,p}, vowelled consonants {g,j,ḍ,d,b}, nasalled consonants {ṅ,ñ,ṇ,n,m}, ya = ia, ra is related to ṛ, la is related to ḷ, va is related to u(u)a, ai = ai, au = au,.. (semi-/vowels|consonants/, ai, and au, are /consecutive|doubled?/ vowels)
+paniniya shiksha (vyakarana(patanjali mahabhasya v panini' astadhyayi; is paniniya shiksha in there, like the shiva sutras?), pingala' chandas sutra, yaska' nirukta,..) is probably the sampradaya; percussive consonants {k,c,ṭ,t,p}, vowelled consonants {g,j,ḍ,d,b}, nasalled consonants {ṅ,ñ,ṇ,n,m}, ya = ia, ra is related to ṛ, la is related to ḷ, va is related to u(u)a, ai = ai, au = au,.. (semi-/vowels|consonants/, ai, and au, are /consecutive|doubled?/ vowels)
  sanskrit is actually superpositioned /consonant-vowel|vowel-consonant/ pairs; avagraha = virama, aspiration,..
  unicode suggests; śa = sha, ṣa = ssa; where there is really only s, and h; now aspirates are /semi-sibilants|s(ibi)?lanted consonants/
   this suggests kṛṣṇa = curse(/\?|,/) na(!)
