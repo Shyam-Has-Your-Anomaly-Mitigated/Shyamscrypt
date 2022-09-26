@@ -50,6 +50,7 @@ my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|(brute)?forcing|../ through the probabilities at escape (/(from|to).*/) velocity
  it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going (it's motion towards winning)
 it's hard to imagine a plane going missing c̄ gps; the usa is either incompetent idiocracy, or testing their 51ˢᵗ area, gta + human traffixing,..
+sudo mksandwich; when you get your boss a coffee, it's really just an opportunity to spike it
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
 
