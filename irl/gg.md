@@ -12,7 +12,7 @@ i just discovered google has a fishing game; for 404 results (what happens when 
 i haven't seen these yet #/l+tp/
 that crazy magic game; (ride along /stream|river|../) throw it on the ground (in a puddle), burials (like that demo where you can shoot tunnels, but i never got anywhere…), sex magic (babies, plants, eggs,.; sometimes these are new players, depending iff a new player joins the server, providing buffs, and grogu,..),..
  this one is the one with the crazy graphics; the wizard strikes the ground c̄ staff (i think there's both lightning, and cracks, but they might be the same,..),..
- it's like /fortnite on steroids (had a baby on steroids)+/
+ it's like /fortnite on steroids (had a baby on steroids)+/; that crazy spy game is just pure steroids
  it got better when they added /jizz|dream|../ wizards
  crack the magicalanguages (like those magical hacking books), and recite fromemory(/pañcamī|ablative|../),.; for the most power
 that crazy chase game; it's kind of like raft c̄ /kraken|cthulhu|dinos|godzilla|../, start at land (/religions|skills|../ from items, books,.; mkships; axiomatically choose ship(s);..), good ships /are easy to disassemble|work on land|the logs trick|../, /win|race|../ conditions = /longest survival|furthest distance|most value|most (player|ship|giant|baby|..) kills|(religious|..) domination|solo|../,..
