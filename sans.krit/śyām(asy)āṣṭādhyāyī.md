@@ -266,6 +266,6 @@ harry potter invisibility cloak v tolkien ring v..
 dickhead is at the tip of my xox; want some xoxo? /got xoxo?/
 doctor whore (sexual healing) got fluxed?
 human wave ∘ human particle⒮ #narayoḥ(or is that just speaker∘sanskrit? we call all others animals v all is sanskrit anyway (/verbal|charade⒮|../ interpretive gestures) #din⒢o⒟z) (human cannonball + double slit; experiment)
-djinn(ie)⒮ grant⒮ wish(es); shiva(arjuna,..), brah~man(hiranyakasipu,..),..
+d(४ धृतराष्ट्र; is implied)jinn(ie)⒮ grant⒮ wish(es); shiva(arjuna,..), brah~man(hiranyakasipu,..),..
 
 ā = []a[]a
