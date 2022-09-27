@@ -1,5 +1,5 @@
 ```
-"the bing lee"; the only one i could find c̄ dedicated graphics, even though i prefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to")
+"the bing lee"; the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to")
  $999 ACER NITRO 5 AMD RYZEN5 16GB 512GB SSD 15.6" FHD + 4GB/1650 WINDOWS 11 NOTEBOOK NH.QBMSA.008
  $89 3 year warranty
 
