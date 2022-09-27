@@ -6,7 +6,7 @@
   [ ] https://sanskritguide.com/the-consonants-overview/
  https://en.wikipedia.org/wiki/Romanization_of_Greek
   "Romanization of Greek is the transliteration (letter-mapping) or transcription (sound-mapping) of text from the Greek alphabet into the Latin alphabet."
-  sanskrit is phonetic; letter = sound
+  sanskrit is phonetic; sspace(letter = sound), where ttime is a factor
 [ ] more scripts; indic eye training, but also (south)east asian scripts #hindu_extremist
  https://en.wikipedia.org/wiki/Sanskrit#Other_writing_systems
   Gujarati, Bangla, Odia and major south Indian scripts
