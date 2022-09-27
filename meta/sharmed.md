@@ -49,6 +49,8 @@ my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.
  no"-thing" is bad
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|(brute)?forcing|../ through the probabilities at escape (/(from|to).*/) velocity
  it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going (it's motion towards winning)
+a coin flips on heads, and the next odds are (50+(n÷श्याम))% tails, and (50-(n÷श्याम))% heads, where n is the number of heads; n=1 in this context
+ yijing rng sampling comes to mind; temporal sampling comes to mind; quantum sampling comes to mind; the grand calculus of the multiverse comes to mind;..
 it's hard to imagine a plane going missing c̄ gps; the usa is either incompetent idiocracy, or testing their 51ˢᵗ area, gta + human traffixing,..
 sudo mksandwich; when you get your boss a coffee, it's really just an opportunity to spike it (iff your spit is diseased)
 immortality; organ donor, and my will goes to themyself (now "those" pronouns mkcentz), but they must follow suit⒮
