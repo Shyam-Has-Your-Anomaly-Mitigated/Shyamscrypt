@@ -24,7 +24,7 @@
        * i'm graphically drawn to my audible calling; i'm audibly called to my graphical drawing
  play the blame game for wikidates
 [ ] more stroke orders; i'm going to bruteforce it anyway
- the thickness of the line is like longs, and shorts,.. https://youtu.be/BKorP55Aqvg
+ the thickness of the line is like longs, and shorts,.. https://youtu.be/BKorP55Aqvg, where the expert is /untied|unleashed|../, but a /colla-red|colou-red|yellowed|../ worker
 [ ] more pronounciations; i'm going to bruteforce it anyway
 
 𝒍𝒊𝒑𝒊[big bang birth] /cmbr?/ #vip #mvp
