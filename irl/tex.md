@@ -23,6 +23,7 @@ observer paradox can be used to make nukes go super critical mass, stars go supe
 when i pop your cherry, i'll toast your coma; sleeping beauty
 
 sleeping bag (head first privacy mode; hooded keeps the pillow in v double sized v (electronically v not; electricity is dangerous, like putting aquarium heaters in a bath) heated v..) ÷ thermal eva foam bed roll
+ the only negative is that it makes a lot of noise when i move my hand up, and down, back, and forth⒮
 never put (micro)plastics in the (pizza)oven ever again; just empty into rice cooker, and eat teflon instead
 electrolysis(demolecularisation; followed by remolecularisation; deremolecularisation(distillation,..) = electrolysis) is better than distillation(of other chemicals),.? thermal, ærogel(triple? super critical mass! just pressurise it instead of pumping electrons; electrons + water = (well; see, it's implicit no"-thing"ness) cooked rice),..
  /bamboo|fṝvitaryan|../(/cellulose|../ is good at transporting water? indoor avoids chemical treatment plants, /acid|chocolate|male|gods c̄ face value|../ rain,.; but environmental (cross)contamination is still risky business) v copper(other antimicrobial) v clay v glass v metal v..
