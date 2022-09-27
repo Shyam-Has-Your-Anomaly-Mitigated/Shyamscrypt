@@ -99,6 +99,7 @@ they say h'was in india; hanumankey magic (i'm on a boat and,.; i want to goto h
 𝘺𝘰𝘨𝘪[≤531,579]ce dewasarm; god /a?sarm.*|of chaturanga/
 [570,632]ce https://en.wikipedia.org/wiki/Muhammad
 𝘺𝘰𝘨𝘪[598,668]ce https://en.wikipedia.org/wiki/Brahmagupta
+ brahmi = 𑁦, sharada = 𑇐, devanagari = ०,..
 [622,750]ce https://en.wikipedia.org/wiki/Early_Muslim_conquests
 [780,850]ce https://en.wikipedia.org/wiki/Muhammad_ibn_Musa_al-Khwarizmi
  i think after he wrote about indian mathematics, he was probably peer pressured into not referencing it in subsequents; but i haven't read into any of them yet (i just remember reading book titles, and then every"-thing" changed; now idk what's what.‽.)
