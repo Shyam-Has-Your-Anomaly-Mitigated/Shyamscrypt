@@ -5,6 +5,7 @@ every"-thing"'s the name of some"-thing"; god⒮,..
  $89 𝄞3 year warranty for $3 grand laptop
  "DOMINATING SPECS" c̄ intel + nvidia; you never know what you're gonna get… https://web.archive.org/web/20220928162359/https://www.binglee.com.au/products/acer-nitro-5-amd-ryzen5-gaming-notebook-nhqbmsa008
  https://youtu.be/Tzo9wCbbFIk?t=17
+ amd ryzen 6000, and mux http://web.archive.org/web/20220928170852/https://www.acer.com/ac/en/AU/content/series/nitro5amd
 
 why the fuck can't i just pay over the length of the warranty? extended warranty costs more, but could be cheaper in the continuous short term; a win-win situational context
 
