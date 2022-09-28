@@ -7,7 +7,7 @@ every"-thing"'s the name of some"-thing"; god⒮,..
  https://youtu.be/Tzo9wCbbFIk?t=17
  amd ryzen 6000, and mux http://web.archive.org/web/20220928170852/https://www.acer.com/ac/en/AU/content/series/nitro5amd
  intel7 http://web.archive.org/web/20220928171212/https://www.acer.com/ac/en/AU/content/series/nitro5
- ibroomstix cone piece in pizza oven to decarb magicalऽerb⒵ of decanting
+ ibroomstix cone piece in pizza oven to decarb magicalऽerb⒵ of /decanting|decantation/
  gpu is "GPU: NVIDIA® GeForce® GTX1650 4GB TGP 60W" v "GeForce RTX™ 30 Series" v "GeForce RTX™ 3070 Ti" v..
 
 /television|appliance|../ repairs, deliveries,.; come (in)to home, leads to robbery
