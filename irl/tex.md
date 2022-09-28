@@ -3,6 +3,7 @@
  $999 ACER NITRO 5 AMD RYZEN5 16GB 512GB SSD 15.6" FHD + 4GB/1650 WINDOWS 11 NOTEBOOK NH.QBMSA.008
  $89 𝄞3 year warranty for $3 grand laptop
  "DOMINATING SPECS" c̄ intel + nvidia; you never know what you're gonna get… https://web.archive.org/web/20220928162359/https://www.binglee.com.au/products/acer-nitro-5-amd-ryzen5-gaming-notebook-nhqbmsa008
+ https://youtu.be/Tzo9wCbbFIk?t=16
 
 why the fuck can't i just pay over the length of the warranty? extended warranty costs more, but could be cheaper in the continuous short term; a win-win situational context
 
