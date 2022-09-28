@@ -9,6 +9,8 @@ every"-thing"'s the name of some"-thing"; god⒮,..
  intel7 http://web.archive.org/web/20220928171212/https://www.acer.com/ac/en/AU/content/series/nitro5
  ibroomstix
 
+/television|appliance|../ repair comes into home, leads to robbery
+
 why the fuck can't i just pay over the length of the warranty? extended warranty costs more, but could be cheaper in the continuous short term; a win-win situational context
 
 𝄞grand laptop⒮ for portability user-fryendlie /backdoor(ed|less)/ electronic security c̄ cooler; i had a laptop break, when i took it to canfp, and left the cooler at home
