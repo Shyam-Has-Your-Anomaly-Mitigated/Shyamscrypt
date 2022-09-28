@@ -7,7 +7,7 @@ every"-thing"'s the name of some"-thing"; god⒮,..
  https://youtu.be/Tzo9wCbbFIk?t=17
  amd ryzen 6000, and mux http://web.archive.org/web/20220928170852/https://www.acer.com/ac/en/AU/content/series/nitro5amd
  intel7 http://web.archive.org/web/20220928171212/https://www.acer.com/ac/en/AU/content/series/nitro5
- ibroomstix cone piece in pizza oven to decarb magicalऽerb⒵
+ ibroomstix cone piece in pizza oven to decarb magicalऽerb⒵ of decanting
 
 /television|appliance|../ repairs, deliveries,.; come (in)to home, leads to robbery
 surveillance doesn't serve to protect, nor punish; it's just to rub it in, so you can watch them /rans(ack|om)/ you
