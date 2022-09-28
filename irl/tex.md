@@ -1,5 +1,5 @@
 ```
-"the bing lee granḋe"; the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
+"bing lee granḋe, the"; the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
  $999 ACER NITRO 5 AMD RYZEN5 16GB 512GB SSD 15.6" FHD + 4GB/1650 WINDOWS 11 NOTEBOOK NH.QBMSA.008
  $89 𝄞3 year warranty for $3 grand laptop
  "DOMINATING SPECS" c̄ intel + nvidia; you never know what you're gonna get… https://web.archive.org/web/20220928162359/https://www.binglee.com.au/products/acer-nitro-5-amd-ryzen5-gaming-notebook-nhqbmsa008
