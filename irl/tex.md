@@ -10,6 +10,7 @@ every"-thing"'s the name of some"-thing"; god⒮,..
  ibroomstix
 
 /television|appliance|../ repairs, deliveries,.; come (in)to home, leads to robbery
+surveillance doesn't serve to protect, nor punish; it's just to rub it in, so you can watch them /rans(ack|om)/ you
 
 why the fuck can't i just pay over the length of the warranty? extended warranty costs more, but could be cheaper in the continuous short term; a win-win situational context
 
