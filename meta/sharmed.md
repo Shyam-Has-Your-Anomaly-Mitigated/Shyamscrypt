@@ -71,6 +71,7 @@ immortality; organ donor, and my will goes to themyself (now "those" pronouns mk
  memorise; selected vedangas,..
 
 maintain a list of malfunctional resources in 𝄞triplicate #cfg
+maintain triplication(tie breaker); all drives are only a third of what they adware, and now we can sue them for misleading adware
 
 i just discovered raspberry pi default terminal has ctrl(-) (it clears the commandline, but up, to copy down, then hold backspace, and it forespaces); i wonder iff this is as universal as ctrl(arrows), shift(ctrl(arrows)),..
 now i just reinvented keyboarding
