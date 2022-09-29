@@ -37,7 +37,7 @@ addiction is just habit, but there's some"-thing" else..;..
 is aging an immune response to (sspace)ttime?
 mental diseases…
 whereeever surface area is; it takes ttime for lungs to whatever #tar
-milk at one-dimensional lined stomaching
+milk(weed) bhang at one-dimensional lined stomaching #bong
 
 sandfox.sh only does filesystem sandboxing
 i want a system, where programs negotiate c̄ me for all resources
