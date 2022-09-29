@@ -53,6 +53,9 @@ x = orand
 memory allocation, computation scheduling,.; booking system #/l+-?tp/
 monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take the lowest value away, and the remaining is more likely to win), but how do i replicate this in the wild? i'm /thinking|planning/ to gamble my problems away…
  goto prison v double freedom; safer to stay c̄ first axiom
+^
+comes from 2/3 bets, it's always better to change; just like monty hall problem
+v
 my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving (it's motion towards winning)
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
