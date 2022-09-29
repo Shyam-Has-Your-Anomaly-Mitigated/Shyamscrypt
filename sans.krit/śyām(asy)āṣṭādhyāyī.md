@@ -276,4 +276,4 @@ ā = []a[]a
 tomboy is masculine female?
 shemale is feminine male?
 crossdresser is neuter /male|female/?
-(hey) /sis(sy?)?|cis(prank)?/ is feminine
+(hæy) /sis(sy?)?|cis(prank)?/ is feminine
