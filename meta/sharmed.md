@@ -36,6 +36,7 @@ diseases don't cause any"-thing"; it's just the immune system /working|../, and 
 addiction is just habit, but there's some"-thing" else..;..
 is aging an immune response to (sspace)ttime?
 mental diseases…
+whereeever surface area is; it takes ttime for lungs to whatever
 
 sandfox.sh only does filesystem sandboxing
 i want a system, where programs negotiate c̄ me for all resources
