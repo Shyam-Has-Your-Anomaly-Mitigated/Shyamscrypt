@@ -56,6 +56,7 @@ monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take th
 ^
 comes from 2/3 bets, it's always better to change; just like monty hall problem
 there are 2 2/3 bets, but changing overlaps some heat
+teaching about gambling; reverse psychology application
 v
 my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving (it's motion towards winning)
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
