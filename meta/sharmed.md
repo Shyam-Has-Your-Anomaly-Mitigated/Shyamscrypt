@@ -30,6 +30,7 @@ numerals can be treated algebraically; 5=3, 3=5, pythagoraḥ,..
 need to experiment c̄ /ram|cache|drive|register|stack|../less (is an unregistered operating system even possible?)
 ≥2 gamer girls, 1 cp↔u
 feeling numbers, sexy not sexy,.; neural networks,..
+coughing (yoga) could be a healthy lung exercise, related to laughing yoga,..
 
 sandfox.sh only does filesystem sandboxing
 i want a system, where programs negotiate c̄ me for all resources
