@@ -33,6 +33,9 @@ feeling numbers, sexy not sexy,.; neural networks,..
 coughing (yoga) could be a healthy lung exercise, related to laughing yoga,..
 ^it's an immune response; the immune system triggers it, and we should welcome these "symptoms" to invite /healing|../, where suppression is /regression|../; it's an immune system /indicator|indication|observation|../
 diseases don't cause any"-thing"; it's just the immune system /working|../, and includes allergies,..
+addiction is just habit, but there's some"-thing" else..;..
+is aging an immune response to (sspace)ttime?
+mental diseases…
 
 sandfox.sh only does filesystem sandboxing
 i want a system, where programs negotiate c̄ me for all resources
