@@ -272,6 +272,7 @@ particle ∘ wave⒮; ∘ any size
  **what is this? a new shortcut‽**
 
 ā = []a[]a; this is so fucking computational, as fucking stoned as i am now
+genetic base pairs
 
 tomboy is masculine female?
 shemale is feminine male?
