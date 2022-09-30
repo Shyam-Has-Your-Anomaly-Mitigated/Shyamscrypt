@@ -2,7 +2,7 @@
 adware campaign: "श्यामः।।।" (asmi) v "श्यामव्वसीर्ः" v "श्यामौऔसीर्ः" v..
 goldilocks; one's too cold, and one's too hot, but one's (got) just (the) right #surfacærea #surfacairya #surf(ace)er(r)a
 house arrest, cuffs,.; just saw it off, and stitch it back towards getting here #defcon,..
-dino feather /clothes|technologies|../; my entangled ownership; arjuna willed it to me, and krishna was a cameleon(they added h to disguise the camel, but they left the lyon in, and it still starts like krishna, not (ch)(a)j(a)k(a)(?); maybe a dragon?), like arya stark(k=thousand), and my birth marks my (second; ttime v nth) last life as a god; chameleon charizard is a shapeshifting dragon
+dino feather /clothes|technologies|../; my entangled ownership; arjuna willed it to me, and krishna was a cameleon(they added h to disguise the camel, but they left the lyon in, and it still starts like krishna, not (ch)(a)j(a)k(a)(?); maybe a dragon?), like arya stark(k=thousand), and my birth marks my (second; ttime v nth) last life as a god; chameleon charizard is a shapeshifting dragon charmelon
 australia pays me to live to support their economy; ned kelly was suicidal
 adware, torture,.; /stare|exposure|../ at some"-thing" long enough, and it'll become "preciousacred", breaking the cycle, or trying to; like in focus (2015), the sting (1973),..
 heating up surfaces indicates heat of flame s/colour|brightness|intensity|photonnnath|../shyam factor/
