@@ -25,6 +25,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
    even algebraically, programmatically,..
   just pump the zero into any other bet
   beware mind changing big numbers; maybe life shortening, observer paradox,..
+ karma; i put you in their place, knowing all, and iff you change then "brick" yourself for more
 meravatar have camogical powerscoutz
 
 every"-thing"'s the name of some"-thing"; god⒮,..
