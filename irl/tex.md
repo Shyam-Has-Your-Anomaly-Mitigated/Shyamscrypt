@@ -12,7 +12,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
   we know the /switches(the stingऽ73)|foot pedals|../ are placebo; it is the dealer bias
   swapping /wheels|cards|dice|../; it is the game bias
   then there are the algorithm bias
-  isn't it weird when all stadium players start betting in sync? is it just sync, rng, "(human)programming",.?
+  isn't it weird when all stadium players start (higher complexity)betting in sync? is it just sync, rng, "(human)programming",.?
   the cards shuffle into any position
   the dice cups are computationally convergence
   the wheels have shifting weights; arm swings in for needed speed, and swings out to deeps, and ball 3dimensions, and wheel 3dimensions, and ((im)p)erceptions, and donald duck pool, and ball calculus, and (green zero) relativity, and skillshot (dealer v player v observer v..),..
