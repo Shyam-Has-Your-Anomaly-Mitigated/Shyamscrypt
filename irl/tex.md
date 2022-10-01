@@ -26,6 +26,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
   just pump the zero into any other bet
   beware mind changing big numbers; maybe life shortening, observer paradox,..
  karma; i put you in their place, knowing all, and iff you change then "brick" yourself for more
+ the shakuni wager + hot air balloonz
 meravatar have camogical powerscoutz
 artery clogging, aging, disabling /heart|lung|brain|../, anyeurism, obesity, decision making, addiction (lifestyle habits),.; is immune system functioning
 
