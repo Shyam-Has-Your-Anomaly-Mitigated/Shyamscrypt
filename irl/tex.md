@@ -21,6 +21,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
   even choosing hands has player bias to be cracked
   any churning algorithm is game theory optimal; even just changing the value of the bet #monobetz
    all investing is belong to me
+   including begging((money v cash (v..)) v..),..
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
