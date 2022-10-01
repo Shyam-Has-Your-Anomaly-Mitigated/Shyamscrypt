@@ -6,7 +6,7 @@ dino feather /clothes|technologies|../; my entangled ownership; arjuna willed it
 australia pays me to live to support their economy; ned kelly was suicidal
 adware, torture,.; /stare|exposure|../ at some"-thing" long enough, and it'll become "preciousacred", breaking the cycle, or trying to; like in focus (2015), the sting (1973),..
 heating up surfaces indicates heat of flame s/colour|brightness|intensity|photonnnath|../shyam factor/
-my temporal casino, where you play against time, and the odds are ever in your favour; to launch one of my wmd
+my temporal casino, where you play against time, and the odds are ever in your favour; to launch one of my wmd #shyamsऽroulette
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
