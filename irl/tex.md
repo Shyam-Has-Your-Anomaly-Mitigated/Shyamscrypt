@@ -29,7 +29,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
  the shakuni wager + hot air balloonz + ab
 meravatar have camogical powerscoutz
 artery clogging, aging, disabling /heart|lung|brain|../, anyeurism, obesity, decision making, addiction (lifestyle habits), sex (reproduction rivers), existence, dream,.; is immune system functioning
-churning math: harmonic series(?), fft v ftt (v.; i'm too stoned to remember, but particled waves,..), sanskrit(churning lang), श्याम,..
+churning math: harmonic series(?), fft v ftt (v.; i'm too stoned to remember, but particled waves,..), sanskrit(churning lang), श्याम(nominative=f,accusative=x? verb=f, noun=x?..),..
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
