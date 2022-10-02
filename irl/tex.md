@@ -28,7 +28,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
  karma; i put you in their place, knowing all, and iff you change then "brick" yourself for more
  the shakuni wager + hot air balloonz + ab
 meravatar have camogical powerscoutz
-artery clogging, aging, disabling /heart|lung|brain|../, anyeurism, obesity, decision making, addiction (lifestyle habits), sex (reproduction rivers), existence, dream,.; is immune system functioning
+artery clogging, aging, disabling /heart|lung|brain|eye|../, anyeurism, obesity, decision making, addiction (lifestyle habits), sex (reproduction rivers), existence, dream,.; is immune system functioning
 churning math: harmonic series(?), fft v ftt (v.; i'm too stoned to remember, but particled waves,..), sanskrit(churning lang), श्याम(nominative=f,accusative=x? verb=f, noun=x?..),..
 observe their betting limits (player bias controller funnel(as freeenergy, as the roulette computer scratched like a dj) like frets on a guitar,..), yijing(calculus∘change=calculus∘calculus=change∘change=..),..
 
