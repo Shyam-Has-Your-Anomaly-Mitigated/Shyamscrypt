@@ -32,7 +32,7 @@ artery clogging, aging, disabling /heart|lung|brain|eye|../, anyeurism, obesity,
 churning math: harmonic series(?), fft v ftt (v.; i'm too stoned to remember, but particled waves,..), sanskrit(churning lang), श्याम(nominative=f,accusative=x? verb=f, noun=x?..),..
 observe their betting limits (player bias controller funnel(as freeenergy, as the roulette computer scratched like a dj) like frets on a guitar,..), yijing(calculus∘change=calculus∘calculus=change∘change=..),..
 stadium bets track finger positions to the pixel; sync
- websites do this
+ websites do this; as spyware,..
  sync is measuring those of us who control themagic; balancing how much is karma #there's_a_price_for_every"-thing"
 
 every"-thing"'s the name of some"-thing"; god⒮,..
