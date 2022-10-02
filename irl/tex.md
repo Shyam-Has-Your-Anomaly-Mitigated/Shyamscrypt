@@ -21,7 +21,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
   even choosing hands has player bias to be cracked
   any churning algorithm is game theory optimal; even just changing the value of the bet #monobetz
    all investing is belong to me
-   including begging((money v cash (v..)) v..), customer service /fishing|phishing|../, sales, farming, studying, living, working, exercising, dieting, priming, concrastination, mantras, श्यामn, shopping, contagious(smilesales,laughter,yawn@yoganidra,..), entertainment, music, stories, art,..
+   including begging((money v cash (v..)) v..), customer service /fishing|phishing|../, sales, farming, studying, living, working, exercising, dieting, priming, concrastination, mantras, श्यामn, shopping, contagious(smilesales,laughter,yawn@yoganidra,..), entertainment, music, stories, art, gaming(board v video v..),..
    even algebraically, programmatically,..
   just pump the zero into any other bet
   beware mind changing big numbers; maybe life shortening, observer paradox,..
