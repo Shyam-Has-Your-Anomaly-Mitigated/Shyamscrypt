@@ -33,7 +33,7 @@ churning math: harmonic series(?), fft v ftt (v.; i'm too stoned to remember, bu
 observe their betting limits (player bias controller funnel(as freeenergy, as the roulette computer scratched like a dj) like frets on a guitar,..), yijing(calculus∘change=calculus∘calculus=change∘change=..),..
 stadium bets track finger positions to the pixel; sync
  websites do this
- sync is measuring those of us who control themagic
+ sync is measuring those of us who control themagic; balancing how much is karma #there's_a_price_for_every"-thing"
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
