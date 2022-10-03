@@ -36,7 +36,7 @@ stadium bets track finger positions to the pixel; sync
  sync is measuring those of us who control themagic; balancing how much is karma #there's_a_price_for_every"-thing"
 just turning over a coin, or reciting a mantra,.; is /hacking|cracking|../
 krishna never repeats himself; who doesn't? #churning
-i just invented a way to measure the /it?ching/
+i just invented a way to measure the /it?ching/; i know how to beat the observer paradox at it's own game
 all the other players at the casino are actually npc$, like disney land, brick & mortar,..
 cows will become small; machines that magicast grass into milk, magicast /moon|mars|../ into cheese (control physics; mv earth middle_of_goldilocks_zone)
 i just discovered how to scratch scratchies to get any prize
