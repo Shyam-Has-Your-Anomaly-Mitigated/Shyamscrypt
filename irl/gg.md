@@ -28,3 +28,4 @@ that crazy game; it's like prop hunt, but you can be ghosts, or the ghosts can m
 the casino servers; in time (2011), ghost possession, devil deals,..
 the job games; can you exploit the system? like accountants taking coins from their customers, bribery,.; can you escape from prison? yes it's just that deep, but your ttime limit is the end of the 'verse (you always host iff the longevity isn't hosted; popularity determines payout, and only deciders get paid); job = con
 the battle of the spells game; /cooking|graphing|inking|scratching|rapping|pen spinning|drumstick twirling|wand flip|breaking bboy|freerunning parkour|jackie chan|cosplay|art|illusions|"magic"|mathing|hacking|cracking|../
+memorising /number plates|colours|(race|model)|../ to make pig calls
