@@ -31,3 +31,4 @@ the battle of the spells game; /cooking|graphing|inking|scratching|rapping|pen s
 memorising /number plates|colours|(race|model)|../ to make pig calls
 predicting you means an environment can be produced that you will never be law abiding; not even the trivial road rules kids know about
 so pvp v axiomatised difficulty (rng, within comfort zone, challenging c̄ respect to the conceptual difference between [my nth best, and my mth best],..)
+golf,.; mountain goating, path optimisation (sfx,..),..
