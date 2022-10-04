@@ -42,7 +42,8 @@ cows will become small; machines that magicast grass into milk, magicast /moon|m
 i just discovered how to scratch scratchies to get any prize
 i already discovered the lottery; it's based on at least one theory from roulette
 when they say any who know the science of dice can never lose; their opponent can only lose, or brick themselves trying otherwise
-shake gases into liquids(stagnant water,..)
+shake gases into liquids(stagnant water,..), solids, gases, plasmas,..
+as my immune system moves liquid from my lungs to my throat for me to clear, and swallow, to clean my lungs back in my body for analysis; ganja medz
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
