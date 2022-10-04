@@ -10,7 +10,7 @@ paniniya shiksha (vyakarana(patanjali mahabhasya v panini' astadhyayi; is panini
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
 8<gañjaudanam (boiling into rice(i still have stocks; canned veges is the goal though) is better than baking into pizzætte; abbott' flat bread (s/pizza/herb/ (those little squares are good too, but i think i prefer the herb the most; more cheese, less crustage) fits in my pizza oven; never tried a full pizza bread; i always halve it; gañjā garnish didn't really work for me, or i didn't use enough, or didn't do it properly,..) + coles' pizza sauce + sheese' grated tasty cheese), and suryaphalam, are the first compounds>8
-8<find श्याम, find sanskrit; works anywhere like a charm>8
+8<find श्याम (ś_ya_am,s_h_ya_am,.; could that be anusvara?), find sanskrit; works anywhere like a charm>8
 …
 śikṣā: dino(godz(illa-k(illa)?)?)?z?, where lizard people control the world; like the big bang in pool that pockets all my chocolate salty balls through your lips, and netted by your tongue
  jurassic bone flute is a good starting p∘o
