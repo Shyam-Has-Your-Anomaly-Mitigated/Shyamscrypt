@@ -32,3 +32,6 @@ memorising /number plates|colours|(race|model)|../ to make pig calls
 predicting you means an environment can be produced that you will never be law abiding; not even the trivial road rules kids know about
 so pvp v axiomatised difficulty (rng, within comfort zone, challenging c̄ respect to the conceptual difference between [my nth best, and my mth best],..)
 golf,.; mountain goating, path optimisation (sfx,..),..
+we live in a world where anyone can do whatever entertainment; news anchor,..
+ your audience pays to keep you doing what you're doing; innocent humour, bullying insultation,..
+ anyone, means anyone; some formats involve just displaying the big words (cfg; auto v speech-recognised-and-highlighted-teleprompter button v..), whether be to same ttime, offending, learning a new language (from any age; babies pass the equivalence of the mirror test, when they recognise their axiomatised quality of lifestyle is dependent on their axiomatised quality of lifestyle, where the intelligent ui does it's best to teach this c̄ hacking away your freewill,..),..
