@@ -52,9 +52,9 @@ exposure to /music|speech|../; evolve plasticity to /detect|reproduce|../
 iff kids look closer to one parent, and not the other; got (self)incest? 42% genetic /o.*/ testing
 /cancer|std|tick|flea|mosquito|shark|fate|destiny|luck|../ is immune response; /karma|dharma|sharma|../ entanglement
 श्याम is so formally safe; it is clearly understood when श्याम+1,..
- i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors (noise? abuse of some system(s)?..),..
+ i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors (noise? abuse of some system(s)? what happens iff entanglements are isolated, and one is microwaved rice? (i forget iff) /are? atoms|atoms are?/ the same iff their electrons are stripped away from them?..),..
   deviation can be applied to s/casiknows/casinoes/ #stealthe
-the correct way to use tampons is "in the pussy", but it must look like a puppy bitche; the strings can be cut, iff you don't mind getting your hands dirty from the riverlogged ride
+the correct way to use tampons is "in the pussy", but it must look like a puppy bitche; the strings can be cut, iff you don't mind getting your hands dirty from the riverlogged ride of an immune system response
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
