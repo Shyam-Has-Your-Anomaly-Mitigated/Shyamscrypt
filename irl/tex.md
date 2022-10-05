@@ -49,7 +49,7 @@ buying out is owned by my mathematics; probability /hack|crack|../,..
  should i count this as magic? that's how every"-thing" is hackable; no hard, and fast, rules,..
  when the game gives the player apparent /control|loophole|../, until plot twisted cliff hanger,.. (like ready player one, black mirror, meta, breaking the fourth, …(t)ttenet(t)(…)…, inceptiondreamingttiming,..)
 exposure to /music|speech|../; evolve plasticity to /detect|reproduce|../
-iff kids look closer to one parent, and not the other; got incest? 42% genetic /o.*/ testing
+iff kids look closer to one parent, and not the other; got selfincest? 42% genetic /o.*/ testing
 /cancer|std|tick|flea|mosquito|shark|fate|destiny|luck|../ is immune response; /karma|dharma|sharma|../ entanglement
 श्याम is so formally safe; it is clearly understood when श्याम+1,..
  i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors,..
