@@ -36,3 +36,9 @@ we live in a world where anyone can do whatever entertainment; news anchor,..
  your audience pays to keep you doing what you're doing; innocent humour, bullying insultation,..
  anyone, means anyone; some formats involve just displaying the big words (cfg; auto v speech-recognised-and-highlighted-teleprompter button v..), whether be to same ttime, offending, learning a new language (from any age; babies pass the equivalence of the mirror test, when they recognise their axiomatised quality of lifestyle is dependent on their axiomatised quality of lifestyle, where the intelligent ui does it's best to teach this c̄ hacking away your freewill,..),..
 it's a popularity contest, but working to help the worst is the jackpot, so everyone's a winner; it's a conceptional distance "-thing"
+
+to be a decider, it's all software
+you have to implement every spec to gain access to the deployed source
+you have to solve it in all the different schools of thought, and all the different optimisations
+approved experiments not autobotted must be performed by all deciders, before non-deciders can do them too
+ any /poisoning|venoming|immune response|../, and you'll be locked down into quarantine until you recover; you were dumb enough to lose your decidership (enough of that, and you'll lose it permanently until you do better than fully recover; your loss is (well-informed? there are some expectations of deciders to have a brain that works) human subject research), before the decision to relax tolerance within acceptable parameters
