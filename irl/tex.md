@@ -55,7 +55,7 @@ iff kids look closer to one parent, and not the other; got (self)incest? 42% gen
  i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors (noise? abuse of some system(s)? what happens iff entanglements are isolated, and one is microwaved rice? (i forget iff) /are? atoms|atoms are?/ the same iff their electrons are stripped away from them?..),..
   deviation can be applied to s/casiknows/casinoes/ #stealthe
 the correct way to use tampons is "in the pussy", but it must look like a puppy bitche; the strings can be cut, iff you don't mind getting your hands dirty from the riverlogged ride of an immune system response #blood_magic(+sex_magic=jizz_wizard+dream_wizard)
-cracking medical research is acting+makeup"artist"+directed(porn v movie v television v stage v.; battle of the skillz!!! :D)+formalmæthods+..
+cracking medical research is acting+makeup"artist"+directed(porn v movie v television v stage v.; battle of the skillz!!! :D)+formalmæthods+.; battle of the skillz!!! :D
  ∵ sex sells, the best porn always wins (for every age); rule 34 sexualises any"-thing", and every"-thing", so everyone can win!!! :D
 
 every"-thing"'s the name of some"-thing"; god⒮,..
