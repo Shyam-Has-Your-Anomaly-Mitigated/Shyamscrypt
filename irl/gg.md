@@ -46,5 +46,5 @@ approved experiments not autobotted must be performed by all deciders, before no
 photons are programmable matter; quantum eraser transforms photons into particles, but there are waves, and /wave-particles|particle-waves|dualities|../
 photon emitters (conways' game of life #glider) take surrounding photons, and our immune system interprets like sleightly flipped sight
 the same for hearing; phonons v photons v other senses v..
-topology proves donut-shaped handled mugs = doughnuts; perception is like rendering + sensory interpretations +..
+topology proves donut-shaped handled mugs = doughnuts; programmable perception is like rendering + sensory interpretations +..
 immune system
