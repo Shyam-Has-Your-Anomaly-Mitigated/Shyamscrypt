@@ -45,4 +45,5 @@ approved experiments not autobotted must be performed by all deciders, before no
 
 photons are programmable matter; quantum eraser transforms photons into particles, but there are waves, and /wave-particles|particle-waves|dualities|../
 photon emitters take surrounding photons, and our immune system interprets like sleightly flipped sight
+the same for hearing; phonons v photons v other senses v..
 immune system
