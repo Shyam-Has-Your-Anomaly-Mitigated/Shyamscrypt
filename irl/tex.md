@@ -52,7 +52,7 @@ exposure to /music|speech|../; evolve plasticity to /detect|reproduce|../
 iff kids look closer to one parent, and not the other; got (self)incest? 42% genetic /o.*/ testing
 /cancer|std|tick|flea|mosquito|shark|fate|destiny|luck|../ is immune response; /karma|dharma|sharma|../ entanglement
 श्याम is so formally safe; it is clearly understood when श्याम+1,..
- i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors,..
+ i am the endless eldritch (terror); doing the same "-thing" over, and over, forever, and i'll never get bored, but controlled whatever, besides face fucking, is trivial to…you know, it's like quantum gates, and microwave pulsed vectors (noise? abuse of some system(s)?..),..
   deviation can be applied to s/casiknows/casinoes/ #stealthe
 the correct way to use tampons is "in the pussy", but it must look like a puppy bitche; the strings can be cut, iff you don't mind getting your hands dirty from the riverlogged ride
 
