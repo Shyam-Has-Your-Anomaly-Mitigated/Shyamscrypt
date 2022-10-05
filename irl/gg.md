@@ -48,3 +48,4 @@ photon emitters (conways' game of life #glider) take surrounding photons, and ou
 the same for hearing; phonons v photons v other senses v..
 topology proves donut-shaped handled mugs = doughnuts; programmable perception is like renderings + sensory interpretations +..
 immune system
+my will goes to my organs; organixarma entanglement
