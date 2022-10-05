@@ -42,3 +42,6 @@ you have to implement every spec to gain access to the deployed source
 you have to solve it in all the different schools of thought, and all the different optimisations
 approved experiments not autobotted must be performed by all deciders, before non-deciders can do them too
  any /poisoning|venoming|immune response|../, and you'll be locked down into quarantine until you recover; you were dumb enough to lose your decidership (enough of that, and you'll lose it permanently until you do better than fully recover; your loss is (well-informed? there are some expectations of deciders to have a brain that works) human subject research), before the decision to relax tolerance within acceptable parameters
+
+photons are programmable matter; quantum eraser transforms photons into particles, but there are waves, and /wave-particles|particle-waves|dualities|../
+immune system
