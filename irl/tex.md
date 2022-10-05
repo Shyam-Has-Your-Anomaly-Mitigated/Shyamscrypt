@@ -47,7 +47,7 @@ as my immune system moves liquid from my lungs to my throat for me to clear, and
 blocked nose = no smoke
 buying out is owned by my mathematics; probability /hack|crack|../,..
  should i count this as magic? that's how every"-thing" is hackable; no hard, and fast, rules,..
- when the game gives the player apparent /control|loophole|../, until plot twisted cliff hanger,.. (like black mirror,..)
+ when the game gives the player apparent /control|loophole|../, until plot twisted cliff hanger,.. (like black mirror, inception, meta,..)
 exposure to /music|speech|../; evolve plasticity to /detect|reproduce|../
 iff kids look closer to one parent, and not the other; got incest? genetic /o.*/ testing
 /cancer|std|tick|flea|mosquito|shark|fate|destiny|luck|../ is immune response; /karma|dharma|sharma|../ entanglement
