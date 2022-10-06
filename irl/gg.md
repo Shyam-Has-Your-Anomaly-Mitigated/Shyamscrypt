@@ -68,4 +68,4 @@ temporal(≥50qubitz long four quantum supremacy, like ttime³) quantum algorith
 it's like a quine, but the goal to satisfy is math the noise problem (like it's a roulette model + mfg precision + measurement err +.. = shyam factor), and answer the query
 i can't believe i own noisy algorithms
 just you wait until you see what comes next(ish(es(…)))
-are microwaves optimal, or are they just stupid? gammarays are the smallest, but the quantum chip needs to be mfg more numerals of pi,..
+are microwaves optimal, or are they just stupid? gammarays are the smallest (electromagnetic spectrum; but i /know|own/ the inverse of श्याम), but the quantum chip needs to be mfg more numerals of pi,..
