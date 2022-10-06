@@ -74,4 +74,4 @@ planned obsolescence(?) is counter hardware crackers, warranty fraud,.. (and as 
 ganja smoke (machine; like lithp machine) is a complex wave form, where the shyam factor includes aerodynamics(of ganja particles, and whatnot), air pressure, air molecules, quantum states, (sspace)ttime,..
 third gender is probably just neuter
 bruce lee, and harry houdini, were assasinated by martial experts v poetic justice v.. (who would ever suspect?)
-was thier punch the same? literally! (qubitz)
+was thier punch the same? literally! (qubitz; spellz, iz, waz, biznes(illegal; we do no buisness, nor business), bidnes(high stakes, gambling,..), loknes, dat, s/baybe(y; gerlz yuz i<3)/baib(i ownle yuz wai wen it maiks sens)/, tok)
