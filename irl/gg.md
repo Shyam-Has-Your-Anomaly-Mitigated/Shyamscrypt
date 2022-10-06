@@ -64,3 +64,4 @@ iff we new the geometry of the whatever the fuck the microwaves are bouncing aro
 i am a fucking genious; for solving quantum noise, and unlocking longer quantum algorithms in the tech tree
 might be able to crack their geometry,..
 temporal quantum algorithms; meta-self-aware formal intelligence
+it's like a quine, but the goal to satisfy is math the noise problem, and answer the query
