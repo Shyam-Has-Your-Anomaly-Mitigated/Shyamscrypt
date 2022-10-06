@@ -59,7 +59,7 @@ cracking medical research is acting+makeup"artist"+directed(porn v movie v telev
  ∵ sex sells, the best porn always wins (for every age); rule 34 sexualises any"-thing", and every"-thing", so everyone can win!!! :D
 hair growth patterns, species,.; are immune system response
 cleaning air through /bongs|air filters|plants|../ = terraforming
-premature birth just needs patience; mother can drag baby back in, and baby can breathe through ambilical chord; it's like fruit, where it's better to wait for it to drop off on it's own; /baby|mother|baby-mother|mother-baby|observer paradox|../ mentality; mother must reduce support, baby must self-supoort,..
+premature birth just needs patience; mother can drag baby back in, and baby can breathe through ambilical chord; it's like fruit, where it's better to wait for it to drop off on it's own; /baby|mother|baby-mother|mother-baby|observer paradox|../ mentality; mother must reduce support, baby must self-support, development,..
 
 every"-thing"'s the name of some"-thing"; god⒮,..
 "bing lee granḋe, the triple s/threat/numeral/; 𝄞 (photonic visual representation of physical sound waves, and the computationalinguistic implementation thereo, therein, thereof, therefrom, therefore, therewith, there, there,..)" (the name of my female computer user interface); the only one i could find c̄ dedicated graphics, even though iprefer amd + ati; they said [3.3,4.2]ghz (the website indicates random chip, and 4.2 is "up to"); hexacore is a sign from the grand calculus of the multiverse, not just one affinity per vm, and change; since other ryzens have integrated graphics, does this have both? it's actually a $300 more laptop in camouflaged disguise!!! :D
