@@ -96,3 +96,5 @@ now i just reinvented keyboarding
 
 i want both registers, and stacks,.; fuck risc,..
 i want both /modal|integrated/ cores, and dedicated cores,.; not just cores,..
+
+firewall will scan for portscans, and other patterns, by default, but cfg
