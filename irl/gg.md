@@ -43,7 +43,7 @@ you have to solve it in all the different schools of thought, and all the differ
 approved experiments not autobotted must be performed by all deciders, before non-deciders can do them too
  any /poisoning|venoming|immune response|../, and you'll be locked down into quarantine until you recover; you were dumb enough to lose your decidership (enough of that, and you'll lose it permanently until you do better than fully recover; your loss is (well-informed? there are some expectations of deciders to have a brain that works) human subject research), before the decision to relax tolerance within acceptable parameters
 
-battle of the hackerz!!! :D (/dbz?/ themed commentator,.; every"-thing" we use is from the battlez)
+battle of the hackerz!!! :D (/dbz?/ themed commentator,.; every"-thing" we use is from the battlez, and the hackerz /vote|debate|../ for yijing)
 battle of the crackerz!!! :D (script kiddies r us,.; our excuse is "we got hacked; somebody else stole our funds, and pulled a fast & furious level stunt on us, leaving us pnwed to the max, who am i? i don't even know myself, but i'm sure the police will probably find my physical appearance doesn't match my genetic appearance, and you'll find a chip in my brain that says who owns this human trafficked vessel, and the prize money is in the hands of some other owner, because what is /a name|an identity/ (anyway)? obvcourse all the owners are chipped owners, and the trail leads to getting chipped")
 
 physical manifestations of ≥(1)¢(+)0$≤
