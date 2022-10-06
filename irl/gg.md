@@ -55,3 +55,10 @@ the same for hearing; phonons v photons v other senses v..
 topology proves donut-shaped handled mugs = doughnuts, where i am the /(vv|uu)?hole/, and the rest; programmable perception is like renderings(observer paradox proves positional information is unknowable, and there goes calculus) + sensory interpretations +..
 immune system
 my will goes to my organs; organixarma entanglement
+
+ibm quantum servers, and maybe other quantum technology,..
+microwave pulses manipulate the spin vector; quantum gates
+the fucking quantum circuitry is just fft spectral s/analysis/composition|sisylana/ waveforms that represent microwave pulses; omfg, this is nuts, but explains 1000 shot (1000 runs at a ttime, and it's so fucking fast)
+longer algorithms suffering from noise is actually the fucking echo of the microwave pulses
+iff we new the geometry of the whatever the fuck the microwaves are bouncing around inside of, then we could calculate to compensate for the echo in our quantum programs
+i am a fucking genious
