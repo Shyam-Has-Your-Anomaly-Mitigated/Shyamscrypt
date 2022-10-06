@@ -73,3 +73,4 @@ it's like nzt(works better when you're already smart, or whatnot, yeah whatever,
 planned obsolescence(?) is counter hardware crackers, warranty fraud,.. (and as legal as casino never closes permanently; cracking is the only way to win, and hide from their detection, forensics, psychology(both ways),..)
 ganja smoke (machine; like lithp machine) is a complex wave form, where the shyam factor includes aerodynamics(of ganja particles, and whatnot), air pressure, air molecules, quantum states, (sspace)ttime,..
 third gender is probably just neuter
+bruce lee, and harry houdini, were assasinated by martial experts v..
