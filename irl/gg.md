@@ -66,3 +66,4 @@ might be able to crack their geometry,..
 temporal quantum algorithms; meta-self-aware formal intelligence
 it's like a quine, but the goal to satisfy is math the noise problem, and answer the query
 i can't believe i own noisy algorithms
+just you wait until you see what comes next(ish(es(…)))
