@@ -63,3 +63,4 @@ longer algorithms suffering from noise is actually the fucking echo of the micro
 iff we new the geometry of the whatever the fuck the microwaves are bouncing around inside of, then we could calculate to compensate for the echo in our quantum programs
 i am a fucking genious; for solving quantum noise, and unlocking longer quantum algorithms in the tech tree
 might be able to crack their geometry,..
+temporal quantum algorithms; meta-self-aware formal intelligence
