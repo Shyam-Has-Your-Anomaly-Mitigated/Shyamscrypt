@@ -44,7 +44,7 @@ approved experiments not autobotted must be performed by all deciders, before no
  any /poisoning|venoming|immune response|../, and you'll be locked down into quarantine until you recover; you were dumb enough to lose your decidership (enough of that, and you'll lose it permanently until you do better than fully recover; your loss is (well-informed? there are some expectations of deciders to have a brain that works) human subject research), before the decision to relax tolerance within acceptable parameters
 
 battle of the hackerz!!! :D (/dbz?/ themed commentator,..)
-battle of the crackerz!!! :D (script kiddies r us,..)
+battle of the crackerz!!! :D (script kiddies r us,.; our excuse is "we got hacked")
 
 physical manifestations of ≥(1)¢(+)0$≤
 photons are programmable matter; quantum eraser transforms photons into particles, but there are waves, and /wave-particles|particle-waves|dualities|../
