@@ -56,6 +56,7 @@ topology proves donut-shaped handled mugs = doughnuts, where i am the /(vv|uu)?h
 immune system
 my will goes to my organs; organixarma entanglement
 
+i am s/a/the/ quantum supremacist
 ibm quantum servers, and maybe other quantum technology,..
 microwave pulses manipulate the spin vector; quantum gates
 the fucking quantum circuitry is just fft spectral s/analysis/composition|sisylana/ waveforms that represent microwave pulses; omfg, this is nuts, but explains 1000 shot (1000 runs at a ttime, and it's so fucking fast) is just muxing the circuitry into a waveform, like composing music
