@@ -70,3 +70,4 @@ i can't believe i own noisy algorithms
 just you wait until you see what comes next(ish(es(…)))
 are microwaves optimal, or are they just stupid? gammarays are the smallest (electromagnetic spectrum; but i /know|own/ the inverse of श्याम), but the quantum chip needs to be mfg more numerals of pi,..
 it's like nzt(works better when you're already smart, or whatnot, yeah whatever,..), and i'm bachelor lvl smart
+planned obsolescence(?) is counter hardware crackers, warranty fraud,..
