@@ -77,3 +77,4 @@ bruce lee, and harry houdini, were assasinated by martial experts v poetic justi
 was thier punch the same? literally! (qubitz; spellz, iz, waz, biznes(illegal; we do no buisness, nor business), bidnes(high stakes, gambling,..), loknes, dat, s/baybe(y; gerlz yuz i<3)/baib(i ownle yuz wai wen it maiks sens)/, tok,..)
 virtual machine(s); virtual particle(s) + quantum instruction(s) + /shyam factor|sharm tractor/ +..
 fewer digits of pi is planned obsolescence,..
+people who think they're smart are not smart enough iff they can't /solve trivial problems|trivially solve problems|../
