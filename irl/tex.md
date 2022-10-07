@@ -7,7 +7,7 @@ australia pays me to live to support their economy; ned kelly was suicidal
 adware, torture,.; /stare|exposure|../ at some"-thing" long enough, and it'll become "preciousacred", breaking the cycle, or trying to; like in focus (2015), the sting (1973),..
 heating up surfaces indicates heat of flame s/colour|brightness|intensity|photonnnath|../shyam factor/
 my temporal casino, where you play against time, and the odds are ever in your favour; to launch one of my wmd #shyamsऽroulette
- pussy v a hole
+ pussy v a hole; pussies have me on thier side, but sometimes the a holes win, and your an a hole for losing, but the manothe house always wins
  beat the bias; includes all algorithms
   we know the /switches(the stingऽ73)|foot pedals|../ are placebo; it is the dealer bias
   swapping /wheels|cards|dice|../; it is the game bias
