@@ -47,6 +47,7 @@ battle of the hackerz!!! :D (/dbz?/ themed commentator,.; every"-thing" we use i
 battle of the crackerz!!! :D (script kiddies r us,.; our excuse is "we got hacked; somebody else stole our funds, and pulled a fast & furious level stunt on us, leaving us pnwed to the max, who am i? i don't even know myself, but i'm sure the police will probably find my physical appearance doesn't match my genetic appearance (brain transplant,..), and you'll find a chip in my brain that says who owns this human trafficked vessel, and the prize money is in the hands of some other owner, because what is /a name|an identity/ (anyway)? obvcourse all the owners are chipped owners, and the trail leads to getting chipped")
  the official meta is us v them, where they have to stop any cracker from taking any of the money, without getting caught; everyone who participates will somehow be arrested, and die doing ttime, and the money will stay to build up until the best cracker dies, but the best crackers go for no kill streaks #irobot #sci-fi_author #..(i'm so stoned)
   can you fill the jackpot? my bank account is the jackpot - (prepaid)taxes
+ whitehatz: "/readers|spies|aliens|gods|../ are watching"
 
 physical manifestations of ≥(1)¢(+)0$≤
 photons are programmable matter; quantum eraser transforms photons into particles, but there are waves, and /wave-particles|particle-waves|dualities|../
