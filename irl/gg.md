@@ -80,4 +80,4 @@ virtual machine(s); virtual particle(s) + quantum instruction(s) + /shyam factor
 fewer digits of pi is planned obsolescence,..
 people who think they're smart are not smart enough iff they can't /solve trivial problems|trivially solve problems|../
 
-observer paradox proves scientists can't measure, and are wrong about every"-thing"
+observer paradox proves scientists can't measure, and are (always) wrong (about every"-thing")
