@@ -81,4 +81,4 @@ fewer digits of pi is planned obsolescence,..
 people who think they're smart are not smart enough iff they can't /solve trivial problems|trivially solve problems|../
 
 observer paradox proves /scientists|senses|../ can't measure, and are (always) wrong (about every"-thing")
-lemon cleansanitises throat; '=svzv..
+lemon /cleansanitises|disinfect|../ throat; '=svzv..
