@@ -81,6 +81,6 @@ fewer digits of pi is planned obsolescence,..
 people who think they're smart are not smart enough iff they can't /solve trivial problems|trivially solve problems|../
 
 observer paradox proves /scientists|senses|../ can't measure, and are (always) wrong (about every"-thing")
- when?..
+ when?.. iff simulation, then we don't experience time /skips|laps|../
 lemon /cleansanitises|disinfect|../ throat; '=svzv..
 sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from coughing?
