@@ -87,3 +87,5 @@ observer paradox proves /scientists|senses|../ can't measure, and are (always) w
  in a nutshell, it's only vacwm anyway; my inverse represents some"-thing", and electrons are dragons
 lemon /cleansanitises|disinfect|../ throat; '=svzv..
 sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from coughing?
+
+is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
