@@ -89,3 +89,4 @@ lemon /cleansanitises|disinfect|../ throat; '=svzv..
 sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from coughing?
 
 is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
+the giant fork technique is to jump forward(s), and throw(spear v chakra v sideways log (aoe) v..) it when you see around the corner; favours grounded players, since the trajectory is physically consistent (expect for intelligent bugs), and the other player can step out of the way of the giant flying fork
