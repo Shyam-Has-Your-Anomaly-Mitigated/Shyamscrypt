@@ -86,7 +86,7 @@ observer paradox proves /scientists|senses|../ can't measure, and are (always) w
  you can put it in a box, even the 'versal set, and know it is not inside, and iff you know it's outside, then it's not outside either, nor inbetween; where?..
  in a nutshell, it's only vacwm anyway; my inverse represents some"-thing", and electrons are dragons
 lemon /cleansanitises|disinfect|../ throat; '=svzv..
-sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from coughing?
+sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from frictional coughing?
 
 is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
 the giant fork technique is to jump forward(s), and throw(spear v chakra (cfg, hold to spin /faster|slower/, like throwing knives,..) v sideways log (aoe) v..) it when you see around the corner; favours grounded players, since the trajectory is physically consistent (expect for intelligent bugs), and the other player can step out of the way of the giant flying fork
