@@ -95,4 +95,4 @@ the best maps have trick shots; comms describes distances, height of wall, weath
 
 the games where the baddies are guilt tripped by npc(also players who read the scripts over improvisational rpg) goodies into crying; even for legal unethical plays, you didn't even do it (force confessions, gas lighting, syphilis,..),..
 
-the rage quit servers, where you can always escape, and not be penalised, but they have lower payouts; who wants to sit in detention, juvie, jail, prison, escape room, spot the difference,.?
+the rage quit servers, where you can always escape, and not be penalised, but they have lower payouts; who wants to sit in detention, juvie, jail, prison, escape room, spot the difference, hidden object,.?
