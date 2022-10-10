@@ -103,7 +103,7 @@ shop keeper is playing a game where other players go out, and work hard, to earn
 shoppers are playing a game where other players work hard to earn income from providing services
 it's like going to the stadium, and seeing naked girls serving food; they work, we (be) entertain(ed)
  human avatars; i was mostly thinking about soccer
-  full contact was allowed until the metastrat became, all the worst players on our team will sprint into their best player, and our best player can out manoeuvre the other team, and it became like bludgeoning quidditch, but a tidal wave of red flaggers
+  full contact was allowed until the metastrat became, all the worst players on our team will sprint into their best player, and our best player can out manoeuvre the other team, and it became like bludgeoning quidditch, but a tidal wave of red flaggers, and their target didn't even have the ball; "goto $player" is now well defined as (goto (before player)), where every"-thing"s a s/variable/shyam factor/
   now the avatars are encouraged to dodge each other, but sprinters must stop before crashing, and the player loses iff they were too late to perform a controlled break; the penalty is your avatar will /dodgingly|dodgedly/ /walk off, and return after|sit until|../ the alotted ttime; instead of standing there for minutes
   now all controls must be the same performance; voice is a disadvantage over buttons, joysticks, wheels,.; unless you revert to clicks, and whistles, and whatnot; no "make it so",.; unless the game permits
   rc c̄ human avatar v human avatar driving by command; down clutch, turn right $degree, shift gears $gear, turn left $degree, up clutch,..
