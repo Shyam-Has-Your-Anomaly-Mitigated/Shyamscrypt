@@ -85,8 +85,9 @@ observer paradox proves /scientists|senses|../ can't measure, and are (always) w
  you can point at it, you can even touch it, and /(deep)+/ down you know it's not (even) (really) there
  you can put it in a box, even the 'versal set, and know it is not inside, and iff you know it's outside, then it's not outside either, nor inbetween; where?..
  in a nutshell, it's only vacwm anyway; my inverse represents some"-thing", and electrons are dragons
-lemon /cleansanitises|disinfect|../ throat; '=svzv..
-sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from frictional coughing?
+(strawed; bypass dental enamel (not that i have any; anyway…), taste buds,..) lemon /cleansanitises|disinfect|../ throat; '=svzv..
+sipping (water; one day i'll set up the kettle…) seems to help stop coughing, and cleans the throat; is that the problem, or is it supposed to protect my throat from frictional coughing? just drinking it away (is the plan; eventually, when i goto buy it in 1.5l bottles, instead of the 10l omfg this takes so long, and yoy am i drinking it in shots‽)
+/distilled|electrolysis|../ water will absorb me; icontainerisation
 
 is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
 the giant fork technique is to jump forward(s), and throw(spear (threading the needle) v chakra (cfg, hold one button to spin /faster|slower/ (a button per axis, like skateboarding; or joy dicks), and one button to throw /faster|slower (over wall)/, like throwing knives,..) v sideways log (aoe) v..) it when you see around the corner; favours grounded players, since the trajectory is physically consistent (expect for intelligent bugs), and the other player can step out of the way of the giant flying fork
@@ -96,3 +97,7 @@ the best maps have trick shots; comms describes distances, height of wall, weath
 the games where the baddies are guilt tripped by npc(also players who read the scripts over improvisational rpg) goodies into crying; even for legal unethical plays, you didn't even do it (force confessions, gas lighting, syphilis,..),..
 
 the rage quit servers, where you can always escape, and not be penalised, but they have lower payouts; who wants to sit in detention, juvie, jail, prison, escape room, spot the difference, hidden object,.?
+
+shop keeper is playing a game where other players go out, and work hard, to earn enough to buy
+shoppers are playing a game where other players work hard to earn income from providing services
+it's like going to the stadium, and seeing naked girls serving food; they work, we (be) entertain(ed)
