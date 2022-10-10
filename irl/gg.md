@@ -107,3 +107,4 @@ it's like going to the stadium, and seeing naked girls serving food; they work, 
   now the avatars are encouraged to dodge each other, but sprinters must stop before crashing, and the player loses iff they were too late to perform a controlled break; the penalty is your avatar will /dodgingly|dodgedly/ /walk off, and return after|sit until|../ the alotted ttime; instead of standing there for minutes
   now all controls must be the same performance; voice is a disadvantage over buttons, joysticks, wheels,.; unless you revert to clicks, and whistles, and whatnot; no "make it so",.; unless the game permits
   rc c̄ human avatar v human avatar driving by command; down clutch, turn right $degree, shift gears $gear, turn left $degree, up clutch, put $gear_hand on wheel,..
+you have to earn your way into all stars by winning c̄ loser teannnnates, and performance(s),..
