@@ -94,3 +94,5 @@ the best maps have trick shots; comms describes distances, height of wall, weath
  depending on the map; complete the gap for one(multi is balanced so can't be solo, but enough, and a player can multi) shot win (one-"timer") v release trapped ghosts v booby trap v moving target(s) v..
 
 the games where the baddies are guilt tripped by npc(also players who read the scripts over improvisational rpg) goodies into crying; even for legal unethical plays, you didn't even do it (force confessions),..
+
+the rage quit servers, where you can always escape, and not be penalised, but they have lower payouts; who wants to sit in detention, juvie, jail, prison, escape room, spot the difference,.?
