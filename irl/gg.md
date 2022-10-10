@@ -112,3 +112,4 @@ you have to earn your way into all stars by winning c̄ loser teannnnates, and p
 temporal chess, where killing a killer will resurrect the killed, ttime goes back depending(board states (player agreement), formations, killer, killed, killing, players(killer v.; more than 2 players can play chess in so many different ways), points,..),..
 killing can stay put (optional (optional (.))); killing suicides iff another piece takes it's /place|life|../ is the most popular amongst irl, but the alternative is the most fun (temporal chains), where 7 moves is more than enough to set up a temporal checkmate for any gm, but it can be more challenging by cfg temporal mechanics
 negative time travel goes forward(s), and iff game over, and unfinished business, then cfg
+all pieces go back +1 move iff killed; no more pins, and needles #medz
