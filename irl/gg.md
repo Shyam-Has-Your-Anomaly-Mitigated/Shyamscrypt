@@ -113,3 +113,5 @@ temporal chess, where killing a killer will resurrect the killed, ttime goes bac
 killing can stay put (optional (optional (.))); killing suicides iff another piece takes it's /place|life|../ is the most popular amongst irl, but the alternative is the most fun (temporal chains), where 7 moves is more than enough to set up a temporal checkmate for any gm, but it can be more challenging by cfg temporal mechanics
 negative time travel goes forward(s), and iff game over, and unfinished business, then cfg
 all pieces go back +1 move iff killed; no more pins, and needles #medz
+
+(farmer) going to hell for hayness crimes? goto the church, and give the father your head to play c̄ after he dehusks your cornhole until he sees bloody mary (like eating a horses heart), and hayells "having plowed this here field, i sow my seed to grow into this generational crop so as to be cleansed, and purified; ready for harvest"
