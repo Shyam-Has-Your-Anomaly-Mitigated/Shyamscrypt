@@ -25,6 +25,7 @@ my temporal casino, where you play against time, and the odds are ever in your f
    even algebraically, programmatically,..
   just pump the zero into any other bet
   beware mind changing big numbers; maybe life shortening, observer paradox,..
+  play /consistently|religiously|../ for long enough, and the rest of reality will sync
  karma; i put you in their place, knowing all, and iff you change then "brick" yourself for more
  the shakuni wager + hot air balloonz + ab
 meravatar have camogical powerscoutz
