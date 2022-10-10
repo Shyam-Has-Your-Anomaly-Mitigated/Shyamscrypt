@@ -91,4 +91,4 @@ sipping (water; one day i'll set up the kettle…) seems to help stop coughing, 
 is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
 the giant fork technique is to jump forward(s), and throw(spear (threading the needle) v chakra (cfg, hold one button to spin /faster|slower/ (a button per axis, like skateboarding; or joy dicks), and one button to throw /faster|slower (over wall)/, like throwing knives,..) v sideways log (aoe) v..) it when you see around the corner; favours grounded players, since the trajectory is physically consistent (expect for intelligent bugs), and the other player can step out of the way of the giant flying fork
 the best maps have trick shots; comms describes distances, height of wall, weather,..
- depending on the map; complete the gap for one(multi is balanced so can't be solo, but enough, and a player can multi) shot win (one-"timer") v release trapped ghosts v booby trap v..
+ depending on the map; complete the gap for one(multi is balanced so can't be solo, but enough, and a player can multi) shot win (one-"timer") v release trapped ghosts v booby trap v moving target(s) v..
