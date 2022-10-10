@@ -98,6 +98,7 @@ the games where the baddies are guilt tripped by npc(also players who read the s
 
 the rage quit servers, where you can always escape, and not be penalised, but they have lower payouts; who wants to sit in detention, juvie, jail, prison, escape room, spot the difference, hidden object,.?
 
+#psychology
 shop keeper is playing a game where other players go out, and work hard, to earn enough to buy
 shoppers are playing a game where other players work hard to earn income from providing services
 it's like going to the stadium, and seeing naked girls serving food; they work, we (be) entertain(ed)
