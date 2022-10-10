@@ -99,3 +99,5 @@ i want both /modal|integrated/ cores, and dedicated cores,.; not just cores,..
 
 firewall will scan for portscans, and other patterns, by default, but cfg
 we'll just run 24/7 security breach services, and inform the ip address they are /botnetted|../, recommending /digital forensics services|../ (we'll test their skillz, battle of the skillz style)
+
+never escape; there's always a parent vm
