@@ -123,3 +123,14 @@ never say never is a fallacy, not a phalluse
 shut up, and talk; that's a very confusing combination of commands
 maybe i should make a list of funny females, and see how they run, walk(like doyle),..
 no pubes v natural pubes v midnight cocoa bean pubes v s/ginger|carrot|orange|hindu|../red/ pubes v nazi pubes v old pubes v..
+
+            a monumental  mo  ment
+  10km tall black crossed monument decloaks in isræl
+no shadow's cast; at midday
+     the wind guides the direction of the arms
+the underside falls 1km, directly underneath finds towel heads trying to escape, and the middlemen are attacked as it stops 1m from the dirty ground 
+github wrap fucking makes this harder than it needs to be; a towel head throws a stone onto the platform, and is known as stonethrower
+thanks alot github; as soon as the stone touches the platform, it returns
+the next midday it descends again c̄ unspaced hebrew carved into the stone demanding stonethrower by genetic sequencing; the unlettered surfaces of the stone, where the highest densities of genetic material were found
+when they force stonethrower onto the topside of the underside, it ascends at break neck speeds
+the next midday it returns; stonethrower has been unbroken, and has two, or three, stone tablets
