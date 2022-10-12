@@ -129,7 +129,7 @@ no pubes v natural pubes v midnight cocoa bean pubes v s/ginger|carrot|orange|hi
 no shadow's cast; at midday
      the wind guides the direction of the arms
 the underside falls 1km, directly underneath finds towel heads trying to escape, and the middlemen are attacked as it stops 1m from the dustye ground 
-github wrap fucking makes this harder than it needs to be; a towel head throws a stone onto the platform, and is known as stonethrower
+github wrap fucking makes this harder than it needs to be; a towel head throws a stone onto the platform, and is known as stonethrower, leader of /earth|adamah(wikipedia says shiva created adam)?|../
 thanks alot github; as soon as the stone touches the platform, it returns
 the next midday it descends again c̄ unspaced hebrew carved into the stone demanding stonethrower by genetic sequencing; the unlettered surfaces of the stone, where the highest densities of genetic material were found
 when they force stonethrower onto the topside of the underside, it ascends at break neck speeds
