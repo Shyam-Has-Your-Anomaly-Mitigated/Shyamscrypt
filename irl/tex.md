@@ -128,7 +128,7 @@ no pubes v natural pubes v midnight cocoa bean pubes v s/ginger|carrot|orange|hi
   10km tall black crossed monument decloaks in isræl
 no shadow's cast; at midday
      the wind guides the direction of the arms
-the underside falls 1km, directly underneath finds towel heads trying to escape, and the middlemen are attacked as it stops 1m from the dusty ground 
+the underside falls 1km, directly underneath finds towel heads trying to escape, and the middlemen are attacked as it stops 1m from the dustye ground 
 github wrap fucking makes this harder than it needs to be; a towel head throws a stone onto the platform, and is known as stonethrower
 thanks alot github; as soon as the stone touches the platform, it returns
 the next midday it descends again c̄ unspaced hebrew carved into the stone demanding stonethrower by genetic sequencing; the unlettered surfaces of the stone, where the highest densities of genetic material were found
