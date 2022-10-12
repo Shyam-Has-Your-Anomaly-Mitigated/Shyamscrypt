@@ -281,3 +281,5 @@ shemale is feminine male?
 /crossdresser|tranny|../ is neuter /male|female/?
 (hæy) /sis(s(y|ie)?)?|cis(prank)?/ is feminine
 bro is masculine
+
+䷻, where f(lim÷x->y)=f(lim÷x≤y)
