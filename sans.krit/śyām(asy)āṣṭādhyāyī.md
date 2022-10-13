@@ -283,3 +283,5 @@ shemale is feminine male?
 bro is masculine
 
 ䷻, where f(lim÷x->y)=f(lim÷x≤y)
+䷏, where sophia hanson = enthused
+this is like sanskrit; you start seeing it everywhere
