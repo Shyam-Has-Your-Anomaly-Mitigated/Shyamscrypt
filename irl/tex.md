@@ -134,3 +134,5 @@ thanks alot github; as soon as the stone touches the platform, it returns
 the next midday it descends again c̄ unspaced hebrew carved into the stone demanding stonethrower by genetic sequencing; the unlettered surfaces of the stone, where the highest densities of genetic material were found
 when they force stonethrower onto the topside of the underside, it ascends at break neck speeds
 the next midday it returns; stonethrower has been unbroken, and has two, or three, stone tablets
+
+putt putt holes are wet, butt butt holes are dry
