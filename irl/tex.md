@@ -135,6 +135,6 @@ the next midday it descends again c̄ unspaced hebrew carved into the stone dema
 when they force stonethrower onto the topside of the underside, it ascends at break neck speeds
 the next midday it returns; stonethrower has been unbroken, and has two, or three, stone tablets
 
-(/(wood|branch|..)(thrower|catcher|..)/) abo prey catching boomerangs all day(s) catches the blade, and kill(s) all the white man
+(/(wood|branch|..)(thrower|catcher|..)/) abo prey catching boomerangs all day(s) catches the blade, and kill(s) all the white man; spied on them abosmithing it, and metal bending in a handfire
 
 putt putt holes are wet, butt butt holes are dry
