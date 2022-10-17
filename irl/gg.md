@@ -118,3 +118,7 @@ negative time travel goes forward(s), and iff game over, and unfinished business
 all pieces go back +1 move iff killed; no more pins, and needles #medz
 
 (farmer) going to hell for hayness crimes? goto the church, and give the father your head to play c̄ after he dehusks your cornhole until he sees bloody mary (like eating a horses heart), and hayells "having plowed this here field, i sow my seed to grow into this generational crop so as to be cleansed, and purified; ready for harvest"
+
+hogwarts' house points; what are they (good) for?
+shops; what is magic for? (or is it like bruteforcing crafting systems? people died in human subject research for evade-a-cadaver,..)
+(finger)wands; don't seem to be necessary to do magic!
