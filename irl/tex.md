@@ -122,7 +122,7 @@ do i only use one nostril at a time? breathing in through one nostril, and out t
 never say never is a fallacy, not a phalluse
 shut up, and talk; that's a very confusing combination of commands
 maybe i should make a list of funny females, and see how they run, walk(like doyle),..
-no pubes v natural pubes v midnight cocoa bean pubes v s/ginger|carrot|orange|hindu|../red/ pubes v nazi pubes v old pubes v..
+no pubes v natural pubes v midnight cocoa bean pubes v s/ginger|carrot|orange|hindu|../red/ pubes v nazi (spy) pubes v old pubes v..
 
             a monumental  mo  ment
   10km tall black crossed monument decloaks in isræl
