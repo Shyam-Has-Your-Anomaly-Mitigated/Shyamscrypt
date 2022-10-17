@@ -90,6 +90,7 @@ sipping (water; one day i'll set up the kettle…) seems to help stop coughing, 
 /distilled|electrolysis|../ water will absorb me; icontainerisation
 holding water in the back of the mouth seems to disable the immune systems' seemingly-automated cough-reflex
 /(o|au|..)?m/ seems to work
+all medicine = placebo; immune responses,..
 
 is there a game out where you can weaponise a giant fork,.? i just had a flash(back?)
 the giant fork technique is to jump forward(s), and throw(spear (threading the needle) v chakra (cfg, hold one button to spin /faster|slower/ (a button per axis, like skateboarding; or joy dicks), and one button to throw /faster|slower (over wall)/, like throwing knives,..) v sideways log (aoe) v..) it when you see around the corner; favours grounded players, since the trajectory is physically consistent (expect for intelligent bugs), and the other player can step out of the way of the giant flying fork
