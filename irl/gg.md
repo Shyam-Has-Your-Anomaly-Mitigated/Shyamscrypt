@@ -6,6 +6,7 @@ iff over 50% (target) audience suffer criminally insane tendancies then it's pro
 
 among us is now @ndroid; i can finally play the game i spent so long watching others play, like the kid staring through the shop window; among n008
  i perceive other players in a different way compared to how they probably perceive me #metadvantage
+now that adblocker$ are all fake; i uninstalled every"-thing" #gtfo
 
 i just discovered google has a fishing game; for 404 results (what happens when you type in obscure mantras)
 
