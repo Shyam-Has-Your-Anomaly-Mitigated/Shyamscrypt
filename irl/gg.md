@@ -125,3 +125,4 @@ shops; what is magic for? (or is it like bruteforcing crafting systems? people d
 (finger)wands; don't seem to be necessary to do magic!
 
 white torture is a white lie; just shit, and piss, everywhere, and bite some blood out iff that's not enough; just blind yourself #power_to_the_genie(us)
+conformity is torture enough for simple minded apes
