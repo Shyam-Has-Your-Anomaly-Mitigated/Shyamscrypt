@@ -123,3 +123,5 @@ all pieces go back +1 move iff killed; no more pins, and needles #medz
 hogwarts' house points; what are they (good) for?
 shops; what is magic for? (or is it like bruteforcing crafting systems? people died in human subject research for evadæcadaver, memory hacks,..)
 (finger)wands; don't seem to be necessary to do magic!
+
+white torture is a white lie; just shit, and piss, everywhere, and bite some blood out iff that's not enough; just blind yourself #power_to_the_genie(us)
