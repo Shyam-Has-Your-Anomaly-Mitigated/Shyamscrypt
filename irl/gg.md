@@ -128,3 +128,5 @@ white torture is a white lie; just shit, and piss, everywhere, and bite some blo
 conformity is torture enough for simple minded apes; we are savages
 the /stanford prison experiment|the middle east|../ = (just) propaganda; when the prisoners crack patterns to /kill all the white man|shot the sherrif|../ = this is their greatest fear, and my greatest weapon, but their greatest mantra is "i ain't no sherrif; i'm just a deputy!" (as they raise their arms, i raise my eyebrows (as i disarm them,.. (.)))
 the stanford prison experiment explains animal abuse, but they don't consider the shyam factor; /(k|(d|s)h|..)arma|../,..
+tranny kids = overpopulation propaganda = social filter = psychological manipulation = /syphilis|../ human subject research =..
+most (i'm the only exception) parents are bad parents; even iff everyone claims otherwise, because they're all bad; it's like doctors who malpractice "fixing" what's not broken for the money, like mechanics, like electricians, like plumbers (leaks are a solved problem they don't want anyone to know about; or i'm just too smart; that's probably all ithis is),..
