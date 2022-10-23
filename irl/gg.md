@@ -126,5 +126,5 @@ shops; what is magic for? (or is it like bruteforcing crafting systems? people d
 
 white torture is a white lie; just shit, and piss, everywhere, and bite some blood out iff that's not enough; just blind yourself #power_to_the_genie(us)
 conformity is torture enough for simple minded apes; we are savages
-the /stanford prison experiment|the middle east|../ = (just) propaganda; when the prisoners crack patterns to /kill all the white man|shot the sherrif|../ = this is their greatest fear, and my greatest weapon
+the /stanford prison experiment|the middle east|../ = (just) propaganda; when the prisoners crack patterns to /kill all the white man|shot the sherrif|../ = this is their greatest fear, and my greatest weapon, but their greatest mantra is "i ain't no sherrif; i'm just a deputy!" (as they raise their arms, i raise my eyebrows (as i disarm them,.. (.)))
 the stanford prison experiment explains animal abuse, but they don't consider the shyam factor; /(k|(d|s)h|..)arma|../,..
