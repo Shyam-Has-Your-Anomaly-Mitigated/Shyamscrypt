@@ -105,3 +105,4 @@ never escape; there's always a parent vm
 simcard.hæx; tp(honons) called "telephant", sms, isp,..
 where is my intelligence? #isolation
  it's possible to detect /sand|../, like a /metals?/ detector; even it's poo
+ ganja + /thc|../ threshold,..
