@@ -101,3 +101,7 @@ firewall will scan for portscans, and other patterns, by default, but cfg
 we'll just run 24/7 security breach services, and inform the ip address they are /botnetted|../, recommending /digital forensics services|../ (we'll test their skillz, battle of the skillz style)
 
 never escape; there's always a parent vm
+
+simcard.hæx; tp(honons) called "telephant", sms, isp,..
+where is my intelligence? #isolation
+ it's possible to detect /sand|../, like a /metals?/ detector; even it's poo
