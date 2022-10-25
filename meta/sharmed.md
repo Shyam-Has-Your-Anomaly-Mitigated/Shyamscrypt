@@ -107,3 +107,4 @@ where is my intelligence? #isolation
  it's possible to detect /sand|../, like a /metals?/ detector; even it's poo
  ganja + /thc|../ threshold,..
 butt chugging = bottom feeding; multivitamins, meds, dental dentistry, chemical chemistry,..
+ /vaginal?|anal?|../ dentata; false teeth, and s/glassy?/pink|brown/ /eyes?/
