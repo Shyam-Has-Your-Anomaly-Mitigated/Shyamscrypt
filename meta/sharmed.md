@@ -108,5 +108,5 @@ where is my intelligence? #isolation
  ganja + /thc|../ threshold,..
 butt chugging = bottom feeding; multivitamins, meds, dental dentistry, chemical chemistry,..
  /vaginal?|anal?|../ dentata; false teeth, and s/glassy?/pink|brown/ /eyes?/
-  googleye twerking v spanking v fucking machine v..
+  googleye twerking v spanking v fucking (bio)machine v..
  toothy ona eyed /snake|ladder/ #cyclops
