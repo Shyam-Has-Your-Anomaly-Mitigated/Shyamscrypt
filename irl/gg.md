@@ -132,3 +132,32 @@ the stanford prison experiment explains /animal abuse|child abuse|../, but they 
 most (i'm the only exception; it's so easy, it's just acting lessons, and like what they say about ape sign language being train(wreck)ed, where i teach you every"-thing" you know, and it's as good as programming bots; i don't even need to lift a finger; sspacettime is just written /that|this|../ way) parents are bad parents; even iff everyone claims otherwise, because they're all bad; it's like doctors who malpractice "fixing" what's not broken for the money (and knowing they will never experience orgasmsex, and killing off those parents' bloodlines,.; s/governmental/organised crime syndicate|sellouts|../ agenda v discrimination v..), like mechanics, like electricians, like plumbers (leaks are a solved problem they don't want anyone to know about; or i'm just too smart; that's probably all ithis is), like tech support is 100% a scam (how much do they charge to advise rebooting? it's designed all for the sake of the economy; like legal casinoes,..),.. (some parents just don't want their kids to hate them, butt mistakes hate them anyway)
 
 10s trolley /problem (somettimes ((flashing lights|honking horns|breaking|derailing track changing|..) is game theory optimal, when it works|they switch sides after the 10s|..))?|drift|drag|chicken|fighting|cha(riot)eering|lancing|chasing(cops&robberz)?|stuntrix|../ racing
+
+get the automatic: it never jams #tituu
+ enough bullets will destruct the jam before it jams the automatic
+how much do you want to bribe the 5-0? (/5(\.?0)?/, not 5-0, nor 5.00,..)
+ otherwise get leading questioned into forced confession; sometimes it's coincidental like andor(deserved it)
+  once you admit your guilt, they give your avatar the paperwork to sign, and your avatar signs away its' players' soul to the warden of the (far)north(australia; ned kelly v celebrated competitive cop killing (pig badges = roman (hel⒧)mets) v..)
+  holmes'sister (trivially) just used (trivial) leading questions to control her guards; incriminated into submission c̄ forced confession
+how much do you want to bribe the -judge? (-0, not 0; this is the cheat for affording the automatic (as early as possible))
+ swearing = he(ra)ld( )incontempt⒰of( )(s/t/d/)he( )court(e(s⒮))
+ charitable swear jar ∵ you're allowed to swear for charity; even in court
+(track-based) self driving cars makes it trivial to implement (fastttravel)
+game over when they cut off your nipple in court; judge sentence v held in contempt of the court v..
+ goto irl, goto psychologist (/jobs'? jokes/), admit guilty con-science; i played this game that made me kill babies (infanticide v infantasise v..), the tutorial gave me no choice in the matter, and then i was told i must continue, and now i have ptsd, and it reminds me of the fake electrocution author(?)it(?)aryan experiment, and i felt locked in like my soul was truly /(en)(trapped|thralled|tr?olled|..)/ by the game that abuses: a cautionary tail that put my head on a figuratively proverbial spike
+snatching babies in your own hood will recognise you; cameras will trace you; /cross country|same clothes + entanglement (like fast & furious,..)|(antihero((bro?)?ine)?)?disguise|../ is the strat
+/red rover cross over|whats the ttime mister wolf|../; pickup baby, and move behind mother to steal (only iff she puts it down, or parks the pram,..)
+jammed guns; /click|../ to shoot
+ slowmo; follow the trigger finger, follow the bullet, see the jam (super)collide c̄ bullet, follow the bullet pinged off into space, kerbal space program until self destruct (i thought this was the jam, and open the jar to jam pressure away; until self destruct), rewind back to s/pulling/squeezing/ the trigger, this ttime see the jam ping the bullet off into space, and the jam entangles the gun, and the avatar throws it away to the side, or at the player, breaking the fourᵗʰ wall
+
+poker
+ wild joker(s)
+  iff /win|split/ c̄ joker; split c̄ honest winner⒮
+  iff lose c̄ joker, or /win|split/ c̄out joker; /take|trade for|../ a chip from the (safe)housed overflow, or biggest bully(i'm so op, i bullied the gods into giving me every"-thing") #rob_in_da_hood
+(credit)carded roulette
+ no"-thing" joker⒮
+(credit)carded chips
+ use cards as chips; universal basic income (back) v /metacircular e?valuation/ (front) v..
+ /(safe)?housed overflow|biggest bully/ levels split pots #rob_in_da_hood
+food chips; potatoe, cookie, waste, bloode, digitale, numerale,..
+ ohs code vio
