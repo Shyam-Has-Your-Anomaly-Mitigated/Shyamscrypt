@@ -1,3 +1,11 @@
+shyam is sanskrit. % श्यामः संस्कृतम् ।॥
+```
+killing off too many germs can be unhealthy; sanitisers, showers,..
+ killing off the competition to defeat the unhealthy germs; ecosystems,..
+ /biochemical|microbiodiverse|../ imbalance
+ https://xkcd.com/1161/
+```
+
 **i profess: i am professor s;** not professors, nor professorette⒮, nor professoress⒮,..
 ```
 `(tr script devanagari)`8<maybe just `(= roman script)`, and english is assumed, but later `(= shyamalipi script)`, and shyamskrit is assumed; shyamskrit will probably be hosted by sanskrit, before self-hosting for redundancy backups; a tree is a tree in sanskrit>8
