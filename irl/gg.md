@@ -161,3 +161,7 @@ poker
  /(safe)?housed overflow|biggest bully/ levels split pots #rob_in_da_hood
 food chips; potatoe, cookie, waste, bloode, digitale, numerale,..
  ohs code vio
+
+dicey pen(cil)s, qubits,..
+fruitey bowling, pool,..
+human card shuffling (bio)machine, computer,..
