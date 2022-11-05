@@ -138,3 +138,4 @@ the next midday it returns; stonethrower has been unbroken, and has two, or thre
 (/(wood|branch|..)(thrower|catcher|..)/) abo prey catching boomerangs all day(s) catches the blade, and kill(s) all the white man; spied on them abosmithing it, and metal bending in /(a) handfire|a (great) fireball (produced by (the|his) hand(s))/
 
 putt putt holes are wet, butt butt holes are dry
+sink holes = illegal mining operations; imo they can goto hell iff they're so keen to journey to (the) middle earth, like fake primitive litterbuggery youtubers
