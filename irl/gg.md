@@ -137,7 +137,7 @@ get the automatic: it never jams #tituu
  enough bullets will destruct the jam before it jams the automatic
 how much do you want to bribe the 5-0? (/5(\.?0)?/, not 5-0, nor 5.00,..)
  otherwise get leading questioned into forced confession; sometimes it's coincidental like andor(deserved it)
-  once you admit your guilt, they give your avatar the paperwork to sign, and your avatar signs away its' players' soul to the warden of the (far)north(australia; ned kelly v celebrated competitive cop killing (pig badges = roman (hel⒧)mets) v..)
+  once you admit your guilt, they give your avatar the paperwork to sign, and your avatar signs away its' players' soul to the warden of the (far)north(australia; ned kelly v celebrated competitive cop killing (pig badges = roman (hel⒧)mets #bling) v..)
   holmes'sister (trivially) just used (trivial) leading questions to control her guards; incriminated into submission c̄ forced confession
 how much do you want to bribe the -judge? (-0, not 0; this is the cheat for affording the automatic (as early as possible))
  swearing = he(ra)ld( )incontempt⒰of( )(s/t/d/)he( )court(e(s⒮))
