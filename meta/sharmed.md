@@ -110,3 +110,5 @@ butt chugging = bottom feeding; multivitamins, meds, dental dentistry, chemical 
  /vaginal?|anal?|../ dentata; false teeth, and s/glassy?/pink|brown/ /eyes?/
   googleye twerking v spanking v fucking (bio)machine v..
  toothy ona eyed /snake|ladder/ #cyclops
+
+and0r(gates)
