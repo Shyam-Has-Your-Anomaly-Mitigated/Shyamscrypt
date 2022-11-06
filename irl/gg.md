@@ -163,5 +163,5 @@ food chips; potatoe, cookie, waste, bloode, digitale, numerale,..
  ohs code vio
 
 dicey pen(cil)s, qubits,..
-fruitey bowling, pool,..
+fruitey bowling, pool, five nuts,..
 human card shuffling (bio)machine, computer,..
