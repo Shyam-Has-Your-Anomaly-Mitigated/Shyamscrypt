@@ -137,5 +137,17 @@ the next midday it returns; stonethrower has been unbroken, and has two, or thre
 
 (/(wood|branch|..)(thrower|catcher|..)/) abo prey catching boomerangs all day(s) catches the blade, and kill(s) all the white man; spied on them abosmithing it, and metal bending in /(a) handfire|a (great) fireball (produced by (the|his) hand(s))/
 
+tail gaters tm(: the movie)
+breaking v (rear)dashcam v..
+tail gating (the) pigs (literal training montage),..
+millfield to paxton; dad maxing out the speedo #nfs:u
+
+(the) professor and (gate(s))
+
+underpaid legless french frog beggars in barets
+
+surveillance satellites, where the dual-wielded solar panels are real, and the landers are web-painted plungers, butt it's not hallow(een)ed
+spider pig = mission corruptable #inspectable
+
 putt putt holes are wet, butt butt holes are dry
 sink hole(y computer)s = illegal /mining|drilling|youtu\.be\/BeJqgI6rw9k|../ operations; imo they can goto hell iff they're so keen to journey to (the) middle earth, like fake primitive litterbuggery youtubers
