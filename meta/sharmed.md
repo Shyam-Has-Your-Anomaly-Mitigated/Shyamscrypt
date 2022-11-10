@@ -63,6 +63,8 @@ now magic!!! :D
 as my immune system writ
 v
 my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.; keep it moving (it's motion towards winning)
+ bets: x, x+1, x, x+1, x, x+1,..
+ they spin the wheel /differently|inconsistently/ (for the bias); usually alternating, but occasionally /double|../ spy(ing) #tbc #quantum
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|(brute)?forcing|../ through the probabilities at escape (/(from|to).*/) velocity
