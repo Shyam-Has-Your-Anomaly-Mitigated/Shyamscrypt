@@ -154,5 +154,5 @@ spider pig = mission corruptable #inspectable
 putt putt holes are wet, butt butt holes are dry
 sink hole(y computer)s = illegal /mining|drilling|youtu\.be\/BeJqgI6rw9k|../ operations; imo they can goto hell iff they're so keen to journey to (the) middle earth, like fake primitive litterbuggery youtubers
 
-transform a particular bullet into a waveform, and shoot an army down in one shot
+transform a particular bullet into a waveform, and shoot an army down in one shot; transform a /wave?y/ musical note into a particle, and battle of the bands
 i discovered how to double slit experiment moons, planets, stars, solar systems, galaxies (great attractors,..),.; finding nemo has currents, wormholes,.; sbs,..
