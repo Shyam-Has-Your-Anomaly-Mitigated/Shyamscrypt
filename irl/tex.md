@@ -156,3 +156,6 @@ sink hole(y computer)s = illegal /mining|drilling|youtu\.be\/BeJqgI6rw9k|../ ope
 
 transform a particular bullet into a waveform, and shoot an army down in one shot; transform a /wave?y/ musical note into a particle, and battle of the bands c̄ phononic blasters, sound sabers,..
 i discovered how to double slit experiment moons, planets, stars, solar systems, galaxies (great attractors,..),.; finding nemo has currents, wormholes,.; sbs,..
+observed double slit (=) laser (phaser) …
+fuses: 6°∘separation, solar magnifying glass burns through weighted string, dune humidity rises the ball like money in the womb until stackoverflow (rainfalls too fast), air pressure, frictional wind, thermal (shock,..),..
+the second dimension of ttime, where my wmd(s)' ripples build up, and your past selves don't know what hit them, but "now" you exponentially experience as you are the sum of your past; my experiments proved it when everyone got a headache all at the same ttime (including sleepers, comers,..) (before residual memories kicked in v placebo (sfx) v immune (sys) v bro v..), like tesla quaking the earth
