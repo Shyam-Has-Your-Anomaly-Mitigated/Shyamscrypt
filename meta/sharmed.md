@@ -67,6 +67,7 @@ my thoughts are @roulette; single bets on all, but one; -bet 1, -bet 2, -bet 3,.
  they spin the wheel /differently|inconsistently/ (for the bias); usually alternating, but occasionally /double|../ spy(ing) #tbc #quantum
  betting on what it landed on is bad; doubles are a "-thing"; maybe skip landings iff the cycle; maybe even eitherside of landings
  no"-thing" is bad
+ betting against your own currency is a blessing, and a curse
 hammering away at one number is interesting (as interesting as being stoned by the gods); /breaking|punching|(brute)?forcing|../ through the probabilities at escape (/(from|to).*/) velocity
  it's like mining cryptocurrencies; crack 1, crack 2, crack 3,.; keep it going (it's motion towards winning)
 a coin flips on heads, and the next odds are (50+(n÷श्याम)-𝄞t)% tails, and (50-(n÷श्याम)-𝄞t)% heads, and 𝄞t% third eye (e is for edging; sounds like yijing), where n is the number of heads; n=1 in this context
