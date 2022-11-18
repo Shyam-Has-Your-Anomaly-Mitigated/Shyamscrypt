@@ -54,7 +54,7 @@ memory allocation, computation scheduling,.; booking system #/l+-?tp/
 monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take the lowest value away, and the remaining is more likely to win), but how do i replicate this in the wild? i'm /thinking|planning/ to gamble my problems away…
  goto prison v double freedom; safer to stay c̄ first axiom
 ^
-breaking the law in low crime rate densities is how to get away with it, like patching planes #compstat
+breaking the law in /low crime|high bribe/ rate densities is how to get away with it, like patching planes #compstat
 (2(12))/(3(12)+`s/..|1|2|3|../c/`) probaballistics c(the house edge) into a gamblers fallacy
 comes from 2/3 bets (which outsides are /doublet?s|twins/, and which outsides are /trip(let?)?s/?), it's always better to change; just like monty hall problem
 there are 2 2/3 bets, but changing overlaps some heat
