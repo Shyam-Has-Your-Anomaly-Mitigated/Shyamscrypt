@@ -55,7 +55,7 @@ monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take th
  goto prison v double freedom; safer to stay c̄ first axiom
 ^
 (2(12))/(3(12)+`s/..|1|2|3|../c/`) probaballistics c(the house edge) into a gamblers fallacy
-comes from 2/3 bets (which outsides are doubles, and which outsides are triples?), it's always better to change; just like monty hall problem
+comes from 2/3 bets (which outsides are /doublet?s|twins/, and which outsides are /trip(let?)?s/?), it's always better to change; just like monty hall problem
 there are 2 2/3 bets, but changing overlaps some heat
 teaching about gambling; reverse psychology application
 teach plasticity; (prenatal? whatever that means; before born, and new born)baby exposed to /camera|imagery|../ will not be camera shy, audiences will not be frightened of stages,.. (mother must be calm, and relaxed, or dazed, and confused,..)
