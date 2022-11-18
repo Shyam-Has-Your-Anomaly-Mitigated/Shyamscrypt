@@ -55,6 +55,8 @@ monty hall problem; iff choose a (⅓), {b,c} (⅔ = more likely to win; take th
  goto prison v double freedom; safer to stay c̄ first axiom
 ^
 breaking the law in /low crime|high bribe/ rate densities is how to get away with it, like patching planes #compstat
+ this is like /track?ing/ governmental corruption (im)probabilities through linguistics (geometry,..), and threading the needles of the evidence board; to discover /spies|intelligences|../ the public don't know about, because the "government" autamatically assumes everyone is a criminal (especiialy law enforcement, judges,..)
+  there are many promotional (fast)tracks; up, and out,..
 (2(12))/(3(12)+`s/..|1|2|3|../c/`) probaballistics c(the house edge) into a gamblers fallacy
 comes from 2/3 bets (which outsides are /doublet?s|twins/, and which outsides are /trip(let?)?s/?), it's always better to change; just like monty hall problem
 there are 2 2/3 bets, but changing overlaps some heat
