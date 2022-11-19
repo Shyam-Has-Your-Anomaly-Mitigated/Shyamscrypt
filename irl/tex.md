@@ -170,3 +170,9 @@ the observable universe is inclusive shyamspace(ttime), and (cmbr is) (ob)serve(
 (para)dox is (para)llel(, )(para)llel isn'(avagraha)t (para)dox
                  symmetryyrtemmys the 1fw(fullword) by the invested(civilised vestments symbolises sufficiently advanced planning'head) power∘identity
 human(spy) (massless(compression))wave(net) can pass through (slits; single, double, triple,..); virtual(reality v holowave project-ions) phantom limb experiment
+my decidership has the highest population densities
+ the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
+  it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
+  there are flip bubbles, turn bubbles, traffic jams, bulkhead lockdowns (each bulkhead section (the smallest infrastructure you can fit into is the cheapest; stretched arms can be easier for cleaning chore( contrib(ution))s #roi) cycles it's own atmosphere, and communication lines to servers; stdin, stdout, stderr(s/random(ised)/continuous/ sampling,..),..), redundancies,..
+ cheapest interactive games are like eye spy c̄ my little eye, where the cheapest is one "-thing", and cheapest two "-thing"s involves them staring contesting one c̄ them sandwiched; iff you can say which before(now) then you can break the record(more points than it costs to play), and /coincidence|magic|../; judged by frame(60fps,..) for (win percentage divided by frames(preframes are like -judges)) times popularity views,.; player choose is cheaper than npc choose is cheaper than predetermination is cheaper than kobayashi maru (poker intelligence, rigged casinos, rigged elections,..)
+ mental health tests are freewilled; choose your own adventure, but iff you don't get 100%, then you failose the risk-reward #gg
