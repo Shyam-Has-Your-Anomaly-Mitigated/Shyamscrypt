@@ -165,3 +165,4 @@ after losing all my money at the casino, and not being able to afford a new phon
 my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
 there is a non-zero probability (that) the (hre)galaxies're where they are observed
 calling ganja hemp primes a different experience
+waves /tractor(pull|beam|mux|..)?s?/, particles collide; unstoppable force meets immovable object(,) (para)docrossing
