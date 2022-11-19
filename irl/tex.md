@@ -166,3 +166,6 @@ my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
 there is a non-zero probability (that) the (hre)galaxies're where they are observed
 calling ganja hemp primes a different experience
 waves /tractor(pull|beam|mux|..)?s?/, particles collide; unstoppable force meets immovable object(,) (para)docrossing
+the observable universe is inclusive shyamspace(ttime), and (cmbr is) (ob)serve(r) (para)docrossed
+(para)dox is (para)llel(, )(para)llel isn'(avagraha)t (para)dox
+                 symmetryyrtemmys the 1fw(fullword) by the invested(civilised vestments symbolises sufficiently advanced planning'head) power∘identity
