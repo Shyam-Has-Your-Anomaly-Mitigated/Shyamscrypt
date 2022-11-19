@@ -169,4 +169,4 @@ waves /tractor(pull|beam|mux|..)?s?/, particles collide; unstoppable force meets
 the observable universe is inclusive shyamspace(ttime), and (cmbr is) (ob)serve(r) (para)docrossed
 (para)dox is (para)llel(, )(para)llel isn'(avagraha)t (para)dox
                  symmetryyrtemmys the 1fw(fullword) by the invested(civilised vestments symbolises sufficiently advanced planning'head) power∘identity
-human wave can pass through (slits; single, double, triple,..); virtual(reality) phantom limb experiment
+human(spy) wave(net) can pass through (slits; single, double, triple,..); virtual(reality) phantom limb experiment
