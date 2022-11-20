@@ -163,7 +163,7 @@ the second dimension of ttime, where my wmd(s)' ripples build up, and your past 
 iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #ftw
 roulette is just a /3(7|8|9)/ sided dice #science∘dice
 
-/cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system #/(de|re)?mux/ #fft)
+/cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system #/(de|re)?mux/ #fft #metawave(s))
 this(super advanced origami,..) came from teflon(i think this is the unwashed bits that took forever to escape my mouth; the probability it will ever escape my body is low, and it builds up overttime); kmart rice cookers look like they aren't safe anymore (iff ever?)
  boil water, and fume hud, and "distill", and microscope; or just gandalf test
 the optimal material science (besides virtual particles, waves v particles v dualities v.,..), is probably closer to (unpolluted v immunity v..) /nitrox|atmosphere|air|../, or total mixed ration,.; it needs to pass the lick test, the ear test, the inhalation test, the nose test, the eye test, the handling test, the blind test, the allergic test,..
