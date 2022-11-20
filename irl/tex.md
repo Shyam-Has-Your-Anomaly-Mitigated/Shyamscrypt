@@ -219,7 +219,8 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
    it's not safe to stick around; cops have guns, fake cops,..
    they rock the boat, and dive to the watergate, each wave; those divers swim to /die|death|heaven|hell|rescue to drag them back for the next wave(s)|../, highe$t rank$ fir$t (incentivi$ed intelligence$),..
     solo dive to climb the ladder
-    party; dive to ladder, and pass the parcels, while tapping shoes c̄ the other hand
+    party; dive to ladder, and pass the parcels, while tapping shoes c̄ the other hand; they signal the count, to give the last man every"-thing" they've got (or their last breath, before going for their second wind; signalling up, and down, back, and forth(s),..)
+    bucket from two points closest to the top
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
