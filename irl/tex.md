@@ -199,7 +199,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
    then relises he needs to flare, and sees a flare, before he flares
    then decides to wait until later; like being charged down by (eldritched) no"-thing"ness #(de)void
    then realises to flare at the flare to add flared brightness; prematurely ejaculating his flare
-   then questions which direction out loud, so as to scare tactic the passenger form; you wasted our one, and only flare; oh, wait, it looks like we have an extra flare (for the second count from the first choreography that never happend, because it was interrupted by a fog horn from far far away) (i think when it hits the water, then resync, where counting is statistically expected)
+   then questions which direction out loud, so as to scare tactic the passenger form; you wasted our one, and only flare; oh, wait, it looks like we have an extra flare (for the second count from the first choreography that never happend, because it was interrupted by a fog horn from far far away) (i think when it hits the water, then resync, where counting is statistically expected value)
    then remembers he has to count from the /flared|flaring|now dying|../ flare
    then sees all the flares; completely unorchestrated
    then sees all the flares; completely synchonised
