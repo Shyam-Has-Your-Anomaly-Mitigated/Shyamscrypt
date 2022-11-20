@@ -211,7 +211,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
    they confirm the ship name, and acknowledge the titanicspy signal, and give theirs while saying "well, we have a" so, and so, on board
    more brains alive, more brains survive; they need to de-escalate brain panic( attack)s
    it's not safe to stick around; cops have guns, fake cops,..
-   they rock the boat, and dive to the watergate, each wave; those divers swim to /die|death|heaven|hell|../
+   they rock the boat, and dive to the watergate, each wave; those divers swim to /die|death|heaven|hell|rescue to drag them back for the next wave(s)|../, highe$t rank$ fir$t (incentivi$ed intelligence$),..
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
