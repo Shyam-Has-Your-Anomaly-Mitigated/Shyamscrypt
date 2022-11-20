@@ -177,7 +177,8 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
     jews died for every enemy citizen, and they did the same #prop(aganda)s
      they show us many different (fake)royalties; not just "pʰaro-dies",..
    they probably (magic)spelled peaceful by mahaatma; like guru' minion-banana drink,..
-  they sunk the titanic for the film industry, (anti)es-pi-on-age,..
+  they sunk the titanic for the film industry, (anti)es-peon-age,..
+imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 my decidership has the highest population densities
  the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
   it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
