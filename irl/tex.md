@@ -179,6 +179,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
    they probably (magic)spelled peaceful by mahaatma; like guru' minion-banana drink,..
   they sunk the titanic for the film industry, (anti)es-peon-age,..
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
+ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
  the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
   it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
