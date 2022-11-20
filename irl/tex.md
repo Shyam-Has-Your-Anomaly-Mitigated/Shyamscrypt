@@ -173,7 +173,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
 (blueyed)blondes are genetically weaker against psycho-logical miniopulation #banana
  (temporal)history c̄ minions have good ones #thc̄
   hitlers from another tribe; was it the original? they just got lost on an adventure,..
-   -(i can't remember what was lost)
+   -(i can't remember what was lost; maybe it was yellow japanese submarines,..)
     jews died for every enemy citizen, and they did the same #prop(aganda)s
      they show us many different (fake)royalties; not just "pʰaro-dies",..
 my decidership has the highest population densities
