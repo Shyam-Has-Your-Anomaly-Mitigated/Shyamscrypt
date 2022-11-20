@@ -173,7 +173,8 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
 (blueyed)blondes are genetically weaker against psycho-logical miniopulation #banana
  (temporal)history c̄ minions have good ones #thc̄
   hitlers from another tribe; was it the original? they just got lost on an adventure,..
-   jews died for every enemy citizen, and they did the same #prop(aganda)s
+   -(i can't remember what was lost)
+    jews died for every enemy citizen, and they did the same #prop(aganda)s
 my decidership has the highest population densities
  the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
   it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
