@@ -208,6 +208,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
    he asks the name of the ship, followed by a "/friend|excom(raid)?/"s initials (including rank,..)
    they confirm the ship name, and acknowledge the titanicspy signal, and give theirs while saying "well, we have a" so, and so, on board
    more brains alive, more brains survive; they need to de-escalate brain panic( attack)s
+   it's not safe to stick around; cops have guns, fake cops,..
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
