@@ -175,6 +175,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
   hitlers from another tribe; was it the original? they just got lost on an adventure,..
    -(i can't remember what was lost)
     jews died for every enemy citizen, and they did the same #prop(aganda)s
+     they show us many different (fake)royalties; not just "pʰaro-dies",..
 my decidership has the highest population densities
  the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
   it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
