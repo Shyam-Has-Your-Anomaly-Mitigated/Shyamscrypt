@@ -221,6 +221,8 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
     solo dive to climb the ladder
     party; dive to ladder, and pass the parcels, while tapping shoes c̄ the other hand; they signal the count, to give the last man every"-thing" they've got (or their last breath, before going for their second wind; signalling up, and down, back, and forth(s),..)
     bucket from two points closest to the top
+   see a bomb disposal expert running away? run in the opposite direction, so as to avoid; out of the frying pan, and into the fire(literal)
+    like trick shots into the pool, roulette,.; see a rolling cannonball c̄ing in like a wreckingball? do the math, as it pendulums, or not!!!
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
