@@ -161,6 +161,7 @@ fuses: 6°∘separation, solar magnifying glass burns through weighted string, d
 the second dimension of ttime, where my wmd(s)' ripples build up, and your past selves don't know what hit them, but "now" you exponentially experience as you are the sum of your past; my experiments proved it when everyone got a headache all at the same ttime (including sleepers, comers,..) (before residual memories kicked in v placebo (sfx) v immune (sys) v bro v..), like tesla quaking the earth
 
 iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #ftw
+roulette is just a /3(7|8|9)/ sided dice #science∘dice
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
@@ -179,7 +180,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
     jews died for every enemy citizen, and they did the same #prop(aganda)s
      they show us many different (fake)royalties; not just "pʰaro-dies",..
    they probably (magic)spelled peaceful by mahaatma; like guru' minion-banana drink,..
-  they sunk the titanic for the film industry, (anti)es-peon-age, multitrillion dollar /(human subject|..)? research|training|../,..
+  they sunk the titanic for the film industry, (anti)es-peon-age, multitrillion dollar /(human subject|..)? research|training|../ (and sacrificing civvies for overpopulation, postwarttime rebellion,..),..
    this (war veteran)employee, wve, does his rounds /checking|reporting|../ on other employees, on the lookout for passengers ohs, spies,..
    he "relieves" a /guard|guide|../
    some employees ask for help; too easy to get lost, disorientated,..
