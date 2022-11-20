@@ -160,7 +160,7 @@ observed double slit (=) laser (phaser) …
 fuses: 6°∘separation, solar magnifying glass burns through weighted string, dune humidity rises the ball like money in the womb until stackoverflow (rainfalls too fast), air pressure, frictional wind, thermal (shock,..),..
 the second dimension of ttime, where my wmd(s)' ripples build up, and your past selves don't know what hit them, but "now" you exponentially experience as you are the sum of your past; my experiments proved it when everyone got a headache all at the same ttime (including sleepers, comers,..) (before residual memories kicked in v placebo (sfx) v immune (sys) v bro v..), like tesla quaking the earth
 
-iff i (plan to) keep myself in a shyamposition /in|from/ the future #ftw
+iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #ftw
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
