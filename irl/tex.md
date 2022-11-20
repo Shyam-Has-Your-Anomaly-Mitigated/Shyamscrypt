@@ -163,7 +163,7 @@ the second dimension of ttime, where my wmd(s)' ripples build up, and your past 
 iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #ftw
 roulette is just a /3(7|8|9)/ sided dice #science∘dice
 
-/cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,..
+/cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system)
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
