@@ -171,7 +171,8 @@ the observable universe is inclusive shyamspace(ttime), and (cmbr is) (ob)serve(
                  symmetryyrtemmys the 1fw(fullword) by the invested(civilised vestments symbolises sufficiently advanced planning'head) power∘identity
 human(spy) (massless(compression))wave(net) can pass through (slits; single, double, triple,..); virtual(reality v holowave project-ions) phantom limb experiment
 (blueyed)blondes are genetically weaker against psycho-logical miniopulation #banana
- (temporal)history c̄ minions have good ones #thc
+ (temporal)history c̄ minions have good ones #thc̄
+  hitlers from another tribe; was it the original? they just got lost on an adventure,..
 my decidership has the highest population densities
  the cheapest living conditions are axial; /x|y|z/, /horizontal|vertical|angal/,..
   it's cheaper to flip horizontal to horizontal, than horizontal to any other angle
