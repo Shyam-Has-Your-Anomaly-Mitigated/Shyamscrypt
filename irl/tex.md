@@ -178,6 +178,35 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
      they show us many different (fake)royalties; not just "pʰaro-dies",..
    they probably (magic)spelled peaceful by mahaatma; like guru' minion-banana drink,..
   they sunk the titanic for the film industry, (anti)es-peon-age,..
+   this (war veteran)employee, wve, does his rounds /checking|reporting|../ on other employees, on the lookout for passengers ohs, spies,..
+   he "relieves" a /guard|guide|../
+   some employees ask for help; too easy to get lost, disorientated,..
+   he leaves his post, or whatever
+   as they approach their rooms at the foundation base of the stairs, he hears a female say it's damp
+   he sees water dripping from the ceiling, and tells everybody to walk up, and away, but they delay; i want to goto my room,.; while he "knows" /he's|they're/ dead, and he's the captain of this school of fancy rich fi$h
+   he knows they are higher, and everyone on the otherside of the bulkhead is (now) dead, and the water flash flooded to the lowerdecks
+   as he tries to explain, they start rising; now these fancy rich gits are taking him, and his don't panic, more seriously
+   he says to hold the stairway railing; one old woman doesn't hold that thought seriously enough, and breaks her neck when they fall back to water (or was it falling into the lifeboat? they could be two different passengers; they could've carried the cripple)
+   there's more room, but the lifesavers tell him to get in
+    he follows orders without question
+    he wouldn't be allowed on iff there were more passengers, but any steeper, and the lifeboat will nosedive
+   he has given up all hope; no knowledger of radio, neighbours, enemies, pirates,..
+   he's offered an rather expensive fur coat, but refuses; they need to live, and he'll get a medal on his way out (he's well trained)
+   someone /asked|said/ some"-thing"; he orders everyone to look for (back)doored compartments,..
+   he mistakenly passes on his keys; he's supposed take point, the rope is at the front, so vets goto the front, and /weapon|fighting/ experience goto the back; the front fail to take the ship, then the rear grab weapons, and take the ship; he later realises his relieved is on this lifeboat
+   they gingerly pass an empty flare gun (weapon), followed by a flare
+   he has lost hope
+   then relises he needs to flare, and sees a flare, before he flares
+   then decides to wait until later; like being charged down by (eldritched) no"-thing"ness #(de)void
+   then realises to flare at the flare to add flared brightness; prematurely ejaculating his flare
+   the questions which direction out loud, so as to scare tactic the passenger form; you wasted our one, and only flare; oh, wait, it looks like we have an extra flare (for the second count from the first choreography that never happend, because it was interrupted by a fog horn from far far away)
+   then remembers he has to count from the /flared|flaring|now dying|../ flare
+   then sees all the flares; completely unorchestrated
+   then sees all the flares; completely synchonised
+   then hears a fog horn
+   when they approach; they look friendly
+   he asks the name of the ship, followed by a "/friend|excom(raid)?/"s initials (including rank,..)
+   they confirm the ship name, and acknowledge the titanicspy signal, and give theirs while saying "well, we have a" so, and so, on board
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
