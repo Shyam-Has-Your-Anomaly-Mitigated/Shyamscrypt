@@ -180,7 +180,7 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
     jews died for every enemy citizen, and they did the same #prop(aganda)s
      they show us many different (fake)royalties; not just "pʰaro-dies",..
    they probably (magic)spelled peaceful by mahaatma; like guru' minion-banana drink,..
-  they sunk the titanic for the film industry, (anti)es-peon-age, multitrillion dollar /(human subject|..)? research|training|../ (and sacrificing civvies for overpopulation, postwarttime rebellion,..),..
+  they sunk the titanic for the film industry, (anti)es-peon-age, multitrillion dollar /(human subject|..)? research|training|../ (and sacrificing civvies for overpopulation, postwarttime rebellion, spies (s/both/all/ ways),..),..
    this (war veteran)employee, wve, does his rounds /checking|reporting|../ on other employees, on the lookout for passengers ohs, spies,..
    he "relieves" a /guard|guide|../
    some employees ask for help; too easy to get lost, disorientated,..
