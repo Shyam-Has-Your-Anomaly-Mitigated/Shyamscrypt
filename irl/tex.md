@@ -164,6 +164,9 @@ iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #f
 roulette is just a /3(7|8|9)/ sided dice #science∘dice
 
 /cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system #/(de|re)?mux/ #fft)
+this(super advanced origami,..) came from teflon; kmart rice cookers look like they aren't safe anymore (iff ever?)
+ boil water, and fume hud, and "distill", and microscope; or just gandalf test
+the optimal material science (besides virtual particles), is probably closer to (unpolluted v immunity v..) /nitrox|atmosphere|air|../, or total mixed ration,.; it needs to pass the lick test, the ear test, the inhalation test, the nose test, the eye test, the handling test, the blind test, the allergic test,..
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
