@@ -195,6 +195,11 @@ walk in police officer uniform:
   you think you're saying it for different reasons; middlemanned biomachine
 after you goto your fam(+friends+strangers+c(4continue(ous))); they say "yeah, but how do you know you're not still in it?", and "am i even real?", or "are you real?", or "how do you know you're real?",.. #totalrecall
 
+chess is dice #shakuni
+ each game can be a roll
+ each move can be a roll; first to kill + point system +..
+  iff you bet half; you can win the jackpot, and now you're playing against yourself(i$h greed, lust,..) #shys
+
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
 my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
