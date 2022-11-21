@@ -174,6 +174,7 @@ this(super advanced origami,..) came from teflon(i think this is the unwashed bi
 the optimal material science (besides virtual particles, waves v particles v dualities v.,..), is probably closer to (unpolluted v immunity v..) /nitrox|atmosphere|air|../, or total mixed ration,.; it needs to pass the lick test, the ear test, the inhalation test, the nose test, the eye test, the handling test, the blind test, the allergic test,..
 
 gamified work vr; get paid /while|tw?o/ you game
+vegan is a good greenscreename
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
