@@ -181,6 +181,16 @@ sap is good glue, and /selective breeding|environmentalab conditionals|../ can d
 i don't even have to pay them minimum wage, and besides; my bots are worse than child labour, for the diplomacy!!! :D
 watch repair is a surgical procedure,..
 superintelligence can /invade|penetrate|outvade|evade/ human computer networks; superbugs are meta(computations) #btc
+walk in police officer uniform:
+ shots fired; you remove the cardboard(literal(ly)) goggles, and open the soundproof door
+ you see your "partner in anticrime unit$" dead on the geometric floor patterns
+ you will be recusred radioed; call <number> radio jammed goto <address> nuclear emergency iff you don't stop it everyone will die and any survivors who flee will be shot on sight for espionage the military forces are converging on your location #diehard
+ on the way, you witness drive-dies, shootouts, old ladies who want you to rescue their cats from the trees,.. 
+ you get back into the gaming room you just left (or is it?), and disable the radio jammer so we can triangulate spies in the area (over the telephone), and defuse the bomb (or not?)
+ the game you selected starts playing, and fades to cardboard; you realise none of your injuries hurt anymore
+ hypnosis spirals are all the (body)camsee
+ robots put a fake gun (rapid mfg) higher than the real one; the visual arts department phantom limbed you to warped mirror your perception
+after you goto your fam(+friends+strangers+c(4continue(ous))); they say "yeah, but how do you know you're not still in it?", and "am i even real?", or "are you real?", or "how do you know you're real?",.. #totalrecall
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
