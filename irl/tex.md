@@ -166,7 +166,7 @@ tardis(not the one i found when i got lost) into side of building; what ttime in
  it was like inception; i walked to the corner of the park, and then straight, but s/ended/wound(ed)?/ up getting lost, and also found a fountained memorial fountain (juice, not drink)
  they say "gimme your'and", or "gimme your hand", or "give me your hand" (in marriage; depending on the scenario),., and scibble "wwtdd", and maybe even say "iff ya wait long enough, ya might just see some\"-thing", or "just wait until you observe others react, and detective reasons why", impatiently "welllook; iff you want to leave early, then (you'll just have to) make your way to(wards (of)) the back",., alls the whilst accepting bribes (for tips aswell)
  the opposite desk is not for fobs #watche(r)s
-the foundation' first clone contaminated all of them; they are not the true rulers, and he is still alive as an android biocomputing bot(the og(od(s)))
+the foundation' first clone contaminated all of them; they are not the true rulers, and he is still alive as an android biocomputing bot(the og(odz))
 
 /cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system #/(de|re)?mux/ #fft #metawave(s))
 this(super advanced origami,..) came from teflon(i think this is the unwashed bits that took forever to escape my mouth; the probability it will ever escape my body is low, and it builds up overttime); kmart rice cookers look like they aren't safe anymore (iff ever? now i'm folding@home)
