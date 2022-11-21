@@ -173,7 +173,7 @@ this(super advanced origami,..) came from teflon(i think this is the unwashed bi
  boil water, and fume hud, and "distill", and microscope; or just gandalf test
 the optimal material science (besides virtual particles, waves v particles v dualities v.,..), is probably closer to (unpolluted v immunity v..) /nitrox|atmosphere|air|../, or total mixed ration,.; it needs to pass the lick test, the ear test, the inhalation test, the nose test, the eye test, the handling test, the blind test, the allergic test,..
 
-gamified work vr; get paid /while|tw?o/ you game
+gamified work /(v|a)?r/; get paid /while|tw?o/ you game
 vegan is a good greenscreename
 no need to bend the knees; chew chew, you moo moo cash cowz
 leaves = green pigmentation = vegan packaging
