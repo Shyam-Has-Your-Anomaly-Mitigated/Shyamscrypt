@@ -178,6 +178,7 @@ vegan is a good greenscreename
 no need to bend the knees; chew chew, you moo moo cash cowz
 leaves = green pigmentation = vegan packaging
 sap is good glue, and /selective breeding|environmentalab conditionals|../ can drop fruits at any stage; for the sour grape drink in its' own skin (the tardis had an apostrophe in my' /own'?/ image)
+i don't even have to pay them minimum wage, and besides; my bots are worse than child labour, for the diplomacy!!! :D
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
