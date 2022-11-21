@@ -189,7 +189,7 @@ walk in police officer uniform:
  you get back into the gaming room you just left (or is it?), and disable the radio jammer so we can triangulate spies in the area (over the telephone), and defuse the bomb (or not?)
  the game you selected starts playing, and fades to cardboard; you realise none of your injuries hurt anymore
  hypnosis spirals are all the (body)camsee
- robots put a fake gun (rapid mfg) higher than the real one; the visual arts department phantom limbed you to warped mirror your perception
+ robots put a fake gun (rapid mfg) higher than the real one; the visual arts department phantom limbed you to warped mirror your perception, thermal grill illusion(torture), clustered shocks,..
 after you goto your fam(+friends+strangers+c(4continue(ous))); they say "yeah, but how do you know you're not still in it?", and "am i even real?", or "are you real?", or "how do you know you're real?",.. #totalrecall
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
