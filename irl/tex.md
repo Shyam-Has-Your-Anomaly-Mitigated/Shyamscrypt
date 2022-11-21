@@ -162,7 +162,7 @@ the second dimension of ttime, where my wmd(s)' ripples build up, and your past 
 
 iff i (plan to) keep myself in a shyamposition /in|from/ the future supremacy #ftw
 roulette is just a /3(7|8|9)/ sided dice #science∘dice
-tardis(not the one i found when i got lost) into side of building; what ttime in the future do you want to depart? maybe somewhere between 5pm, and 6pm, to catch all the 925errz? okay, now go wait in the waiting room in the general direction of that area over there to your 526; i'm not going to point, because it's rude, and my weapon of choice is my esd-safe screwdriver, and from a sign-language pov it's just confusing to culturally be expected to conform to anyone elses expectations…
+tardis(not the one i found when i got lost) into side of building; what ttime in the future do you want to depart? maybe somewhere between 5pm, and 6pm, to catch all the -3211=925errz? okay, now go wait in the waiting room in the general direction of that area over there to your 526=-11212; i'm not going to point, because it's rude, and my weapon of choice is my esd-safe screwdriver, and from a sign-language pov it's just confusing to culturally be expected to conform to anyone elses expectations…
  it was like inception; i walked to the corner of the park, and then straight, but s/ended/wound(ed)?/ up getting lost, and also found a fountained memorial fountain (juice, not drink)
 
 /cooling|heating|(de|re)?pressurising|../ infrastructure; megastructures, sspace(ttime) travel,.. (might as well turn it into a computer(storage(registers,..),..) system #/(de|re)?mux/ #fft #metawave(s))
