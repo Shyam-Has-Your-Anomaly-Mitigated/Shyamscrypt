@@ -175,6 +175,7 @@ the optimal material science (besides virtual particles, waves v particles v dua
 
 gamified work vr; get paid /while|tw?o/ you game
 vegan is a good greenscreename
+no need to bend the knees; chew chew, you moo moo cash cowz
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
