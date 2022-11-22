@@ -221,6 +221,7 @@ the government is well known for corruption; economy over health, and safety,.. 
 
 a new scifi; exploring the geotemporal gaps c̄ real science of quantum eraser reconfiguration for more sophisticated temporal mechanics experimental (sspace)ttimæchine, shyamgate(s)!!! :D
 synchronised brainwavelengths; cryptic overexposure, cryptoplasticity,..
+ psychiatrists are crazy
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins,..
