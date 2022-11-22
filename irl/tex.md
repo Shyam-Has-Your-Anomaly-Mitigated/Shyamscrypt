@@ -205,6 +205,9 @@ organisations can pump&dump from internal trading
  cryptocurrency is traceable from triangulating isp data c̄ banks, cellular, wifi, gps, western unions,..
  hiring practices show&tell; f(schools,grades,work_history,seniority,..),..
   some managers will trash your cookie cutter scheme, and buy cheapest, and sell highest, to pump&dump your profit margins, while trashing your reputation; sacrificing longterm in favour⁴ shorterm
+  goodoldfashioned, "the old ways",.; this (re)stabilises,.. (until it's out c̄ the old, in c̄ the new; hierarchical ladder climbing;..)
+jocks are given simple-minded rules, and "do as you're told" (follow ordersoldier); it's not like they cap(tain(t)) the best grades, no, it's a popularity contest, teachers grooming(heavy pætting) pet(s),..
+ all who are not last, especially the second pair, are less bullied than the last, and now least, spotli(gh)t(ed) pair; whose ((particular)virtual)grades are boosted #p&d
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
