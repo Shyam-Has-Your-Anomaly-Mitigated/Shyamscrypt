@@ -214,6 +214,7 @@ industrial espionage
  spread the word about expansion
  spread the word about bigger, well established, companies; expand where?
  pay someone for life to apply for up&c̄errz hiring manager(s) #crash&burn
+  fall guy: the movie
  who is still the household name (around here)?
 99% of buisnesses fail; 99% of them for a reason
 
