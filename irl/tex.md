@@ -209,6 +209,7 @@ organisations can pump&dump from internal trading
   sell to family, and friends (anyone you keep in touch (my) c̄ #handshake), then apologetically (pity)buy, while making it look like you were (trying to) doing them a favour; fernature is tradable
 jocks are given simple-minded rules, and "do as you're told" (follow ordersoldier); it's not like they cap(tain(t)) the best grades, no, it's a popularity contest, teachers grooming(heavy pætting) pet(s),..
  all who are not last, especially the second pair, are less bullied than the last, and now least, spotli(gh)t(ed) pair; whose ((particular)virtual)grades are boosted #p&d
+and that's why kmart(')s(') corner cutting rice cookers
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
