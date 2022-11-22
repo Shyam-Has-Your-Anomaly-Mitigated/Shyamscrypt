@@ -210,6 +210,12 @@ organisations can pump&dump from internal trading
 jocks are given simple-minded rules, and "do as you're told" (follow ordersoldier); it's not like they cap(tain(t)) the best grades, no, it's a popularity contest, teachers grooming(heavy pætting) pet(s),..
  all who are not last, especially the second pair, are less bullied than the last, and now least, spotli(gh)t(ed) pair; whose ((particular)virtual)grades are boosted #p&d
 and that's why kmart(')s(') corner cutting rice cookers; offering equity, perks, cuffs, bribes,..
+industrial espionage
+ spread the word about expansion
+ spread the word about bigger, well established, companies; expand where?
+ pay someone for life to apply for up&c̄errz hiring manager(s) #crash&burn
+ who is still the household name (around here)?
+99% of buisnesses fail; 99% of them for a reason
 
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
