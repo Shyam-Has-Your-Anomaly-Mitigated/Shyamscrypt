@@ -197,6 +197,7 @@ after you goto your fam(+friends+strangers+c(4continue(ous))); they say "yeah, b
 
 chess is dice #shakuni
  each game can be a roll
+ each turn can be a roll
  each move can be a roll; first to kill + point system +..
   iff you bet half; you can win the jackpot, and now you're playing against yourself(i$h greed, lust,..) #shys
 
