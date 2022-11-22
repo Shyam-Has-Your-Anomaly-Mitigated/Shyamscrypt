@@ -216,7 +216,7 @@ industrial espionage
  pay someone for life to apply for up&c̄errz hiring manager(s) #crash&burn
   fall guy: the movie
  who is still the household name (around here)?
-99% of buisnesses fail; 99% of them for a reason
+99% of buisnesses fail; 99% of them for a reason (other than the hype cycle,..)
 the government is well known for corruption; economy over health, and safety,.. #boomerang(politics)
 
 (sspace)ttemporal (meta)entanglement includes; {x,..}, {x,y,..},..
