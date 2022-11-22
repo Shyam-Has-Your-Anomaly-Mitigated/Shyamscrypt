@@ -224,7 +224,7 @@ synchronised brainwavelengths; cryptic overexposure, cryptoplasticity,..
  psychiatrists are crazy
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
- (logic)chains, (wheel)spins,..
+ (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
 my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
