@@ -219,7 +219,7 @@ industrial espionage
 99% of buisnesses fail; 99% of them for a reason (other than the hype cycle,..)
 the government is well known for corruption; economy over health, and safety,.. #boomerang(politics)
 
-(sspace)ttemporal (meta)entanglement includes; {x,..}, {x,y,..},..
+(sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
