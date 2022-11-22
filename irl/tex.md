@@ -220,6 +220,7 @@ industrial espionage
 the government is well known for corruption; economy over health, and safety,.. #boomerang(politics)
 
 (sspace)ttemporal (meta)entanglement includes; {x,..}, {x,y,..},..
+ (logic)chains, (wheel)spins,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
 my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
