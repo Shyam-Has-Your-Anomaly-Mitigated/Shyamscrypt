@@ -206,6 +206,7 @@ organisations can pump&dump from internal trading
  hiring practices show&tell; f(schools,grades,work_history,seniority,..),..
   some managers will trash your cookie cutter scheme, and buy cheapest, and sell highest, to pump&dump your profit margins, while trashing your reputation; sacrificing longterm in favour⁴ shorterm
   goodoldfashioned, "the old ways",.; this (re)stabilises,.. (until it's out c̄ the old, in c̄ the new; hierarchical ladder climbing;..)
+  sell to family, and friends (anyone you keep in touch (my) c̄ #handshake), then apologetically (pity)buy, while making it look like you were (trying to) doing them a favour
 jocks are given simple-minded rules, and "do as you're told" (follow ordersoldier); it's not like they cap(tain(t)) the best grades, no, it's a popularity contest, teachers grooming(heavy pætting) pet(s),..
  all who are not last, especially the second pair, are less bullied than the last, and now least, spotli(gh)t(ed) pair; whose ((particular)virtual)grades are boosted #p&d
 
