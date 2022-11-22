@@ -217,7 +217,7 @@ industrial espionage
   fall guy: the movie
  who is still the household name (around here)?
 99% of buisnesses fail; 99% of them for a reason (other than the hype cycle,..)
-the government is well known for corruption; economy over health, and safety,.. #boomerang(politics)
+the government is well known for corruption; economy over health, and safety,.. #boomerang(politics; shellac is mixed c̄ pig c̄,..)
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins,..
