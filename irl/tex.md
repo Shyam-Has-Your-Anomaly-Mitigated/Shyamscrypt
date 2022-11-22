@@ -220,6 +220,7 @@ industrial espionage
 the government is well known for corruption; economy over health, and safety,.. #boomerang(politics; shellac is mixed c̄ pig c̄, ((((5)when)where)wolf?(is just a man c̄ trained wolf; say his friend is camouflaged, (dis)illusioned, puppetted, miraged, sleighted,..))dogs are reskinned c̄ pig plumbing for the shiteaters,.; just because you're a pig, doesn't mean you have to eat shit, the original meat analogy)
 
 a new scifi; exploring the geotemporal gaps c̄ real science of quantum eraser reconfiguration for more sophisticated temporal mechanics experimental (sspace)ttimæchine, shyamgate(s)!!! :D
+synchronised brainwavelengths; cryptic overexposure, cryptoplasticity,..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins,..
