@@ -295,4 +295,5 @@ my decidership has the highest population densities
  it costs more for a "pixel", and a "button", than it does for the (person(interspecies communication is heavily subsidised; plants are not the cheapest),human,computer,..)"speaker", and the microphones(you still have to pay for it but it's cheaper, because it's already there for the zero blindspots)
  harry potter stairs cost more than a person coming to future get you unstuck you
  others pay to send you messages, you pay for them, and access v ignore(all)
+ gamified jobs; used to orchestrate human computers, redundancies,..
  deciders lose decidership iff forget shyam rules; literally, figuratively, whorfian contagious influence, +overexposure = love(hate relationship; addictively crave unhealthiness),.. #bl
