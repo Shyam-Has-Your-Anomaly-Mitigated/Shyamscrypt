@@ -219,7 +219,7 @@ industrial espionage
 99% of buisnesses fail; 99% of them for a reason (other than the hype cycle,..)
 the government is well known for corruption; economy over health, and safety,.. #boomerang(politics; shellac is mixed c̄ pig c̄, dogs are reskinned c̄ pig plumbing for the shiteaters,.; just because you're a pig, doesn't mean you have to eat shit, the original meat analogy)
 
-a new scifi; exploring the geotemporal gaps c̄ real science of quantum eraser reconfiguration for more sophisticated temporal mechanics experimental (sspace)ttimæchine, shyamgate!!! :D
+a new scifi; exploring the geotemporal gaps c̄ real science of quantum eraser reconfiguration for more sophisticated temporal mechanics experimental (sspace)ttimæchine, shyamgate(s)!!! :D
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins,..
