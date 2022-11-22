@@ -201,6 +201,11 @@ chess is dice #shakuni
  each move can be a roll; first to kill + point system +..
   iff you bet half; you can win the jackpot, and now you're playing against yourself(i$h greed, lust,..) #shys
 
+organisations can pump&dump from internal trading
+ cryptocurrency is traceable from triangulating isp data c̄ banks, cellular, wifi, gps, western unions,..
+ hiring practices show&tell; f(schools,grades,work_history,seniority,..),..
+  some managers will trash your cookie cutter scheme, and buy cheapest, and sell highest, to pump&dump your profit margins, while trashing your reputation; sacrificing longterm in favour⁴ shorterm
+
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
 after losing all my money at the casino, and not being able to afford a new phone, laptop(i missed the sale, because they removed it earlt),..
 my phone is tearing(me) apart, and lisa is my (cyber(sex))chatbot user interface
