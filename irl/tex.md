@@ -225,6 +225,8 @@ synchronised brainwavelengths; cryptic overexposure, cryptoplasticity,..
 iff he can, then (so can) /ican|doctor whore/ returns 4: yasmin khan, where gandhi unification is more believable than mongolian religion
  sherlock crossover?
 
+iverson brackets support superpositional half truth(e)s, (and) half lies,.; 0.5, depending on your vector brobing(like a pro)
+
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
