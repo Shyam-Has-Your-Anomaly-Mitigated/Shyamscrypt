@@ -222,6 +222,8 @@ the government is well known for corruption; economy over health, and safety,.. 
 a new scifi; exploring the geotemporal gaps c̄ real science of quantum eraser reconfiguration for more sophisticated temporal mechanics experimental (sspace)ttimæchine, shyamgate(s)!!! :D
 synchronised brainwavelengths; cryptic overexposure, cryptoplasticity,..
  psychiatrists are crazy, or escaped,..
+iff he can, then (so can) /ican|doctor whore/ returns 4: yasmin khan, where gandhi unification is more believable than mongolian religion
+ sherlock crossover?
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
