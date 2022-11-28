@@ -226,6 +226,7 @@ iff he can, then (so can) /ican|doctor whore/ returns 4: yasmin khan, where gand
  sherlock crossover?
 superbugz(space pirates), butt probing buggery by superintelligent superbully supervillainz, and the worst is yet to cum
 iverson brackets support superpositional half truth(e)s, (and) half lies, godelling,.; 0.5, depending on your vector brobing(like a pro)
+brackette = /{|}/
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
