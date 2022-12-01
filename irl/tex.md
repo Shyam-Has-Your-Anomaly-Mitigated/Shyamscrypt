@@ -231,9 +231,9 @@ brackette = /{|}/
 was shakuni the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
  round the /(anti)?clock(wise|face)?/ (%)
  it's faster c̄ multiple distinguishable dice
- bias
+ bias #locality
  observational perspectives
- dice rolls v win:loss v..
+ dice rolls v win:loss v local v global v., where locality can be a round, table, game, play, bet, casino, jurisdiction, suburban postcode, city, state, nation, country, government,.. (taiwan v roc v prc v..)
 inderaction v entanglement v intistinguishability v..
 iff inferrometer can measure nanoscope; i thought it could measure itself for some reason i think this is a trivial monodirectional speed∘ligʰt, not adjusted for observer paradox (not merely inderaction, unless celebrated)
 can mirrors contain photons? like a bdfl!!! :D
