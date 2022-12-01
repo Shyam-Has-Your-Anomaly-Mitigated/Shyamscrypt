@@ -229,7 +229,7 @@ iverson brackets support superpositional half truth(e)s, (and) half lies, godell
 brackette = /{|}/
 
 was shakuni the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
- round the /(anti)?clock(wise|face)?/
+ round the /(anti)?clock(wise|face)?/ (%)
  it's faster c̄ multiple distinguishable dice
  bias
  observational perspectives
@@ -239,7 +239,7 @@ iff inferrometer can measure nanoscope; i thought it could measure itself for so
 can mirrors contain photons? like a bdfl!!! :D
 containing antimatter containments; enough resolutionary samples, and we can see the bigger picture, even iff it's not (anti)photons (they are like self-observing; we wære observed from the place outside of the (meta)possibilities; possibilities are always possibilities∘possibilities),..
 antidualities v antiwaves v antiparticles v lightmatter v..
-does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages, instead of waiting around for an occasional superstitious cosmic ray
+does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages (%), instead of waiting around for an occasional superstitious cosmic ray
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
