@@ -252,6 +252,11 @@ https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
  use teleportation for teleportation, and now it continuous real time instant messaging; this is like barely-there virtual /duality|particle|wave|../ infrastructure
  self-teleporting, is that a "-thing"? i think it is; it's just pointer arithmetic,..
  shyamgate!!! :D
+ so we pair our /singularities|dualities|pluralities/
+ now i'm just referencing the just push it movement; she's a great actress (maybe she still will be, even iff this doesn't happen this ttime; she got famous because of this, and you need (x)p to make (x)p), but don't be too pushy, or get filtered!
+ i s/did/was going to/ do an "a pushes to b", "b pushes to a",..
+ so transmitting the next (tele)port(ation) key, the next observational measure sspacettime, and the rest of the message; who needs to update intervals? (whether they be locally, or globally, decided)
+ the extra (virtual)particles can be used for redundancy instead; virtual redundancies are redundant
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
