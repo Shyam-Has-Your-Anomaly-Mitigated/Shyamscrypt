@@ -241,6 +241,7 @@ containing antimatter containments; enough resolutionary samples, and we can see
 antidualities v antisingularities(antiwaves v antiparticles) v lightmatter v..
 does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages (%), instead of waiting around for an occasional superstitious cosmic ray(dance)
 is the antidimension the mirrorverse? we see what they see
+is the speed∘ligʰt actually 149,896,229(m÷s)?
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
