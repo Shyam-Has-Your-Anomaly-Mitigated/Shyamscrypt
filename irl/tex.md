@@ -246,6 +246,8 @@ how does nasa move their rockets? it can be done c̄ just a giant s/ball/shuttle
 i'm thinking about megastructures; environmental control for /contraction|expansion/, tailwhipping v a straight line that earthquakes free like an unstoppable force meets an immovable object v.,..
 measure(prior) + entangle
 a hits b hits c; teleports a2c (while also measuring a through b; i like this redundancy), regardless of where c came from, unless it was observed, or b won't hit c (even iff we think we have paradoxically observed the probabilistic event),..
+https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
+ just use quantum teleportation, and a shenmue qte, before it gets erased; ftl comms up (the website is down)
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
