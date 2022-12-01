@@ -236,6 +236,7 @@ was shakuni the first to discover the 'versal rng, quantumagic,.? considering th
  dice rolls v win:loss v..
 inderaction v entanglement v intistinguishability v..
 iff inferrometer can measure nanoscope; i thought it could measure itself for some reason i think this is a trivial monodirectional speed∘ligʰt, not adjusted for observer paradox (not merely inderaction, unless celebrated)
+can mirrors contain photons? like a bdfl!!! :D
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
