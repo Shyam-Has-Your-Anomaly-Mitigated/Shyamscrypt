@@ -247,7 +247,7 @@ i'm thinking about megastructures; environmental control for /contraction|expans
 measure(prior) + entangle
 a hits b hits c; teleports a2c (while also measuring a through b; i like this redundancy), regardless of where c came from, unless it was observed, or b won't hit c (even iff we think we have paradoxically observed the probabilistic event),..
 https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
- just use quantum teleportation, and a shenmue qte, before it gets erased; ftl comms up (the website is down)
+ just use quantum teleportation, and a shenmue qte, before it gets erased; ftl /com(m|p)/s up (the website is down)
  it's like inspecting((self)teleporting(photons)) addresses, before inter-acting(entangling); all good languages optimally leave other programs' radiation for the hacker to handle c̄ care
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
