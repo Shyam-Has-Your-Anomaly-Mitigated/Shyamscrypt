@@ -242,6 +242,8 @@ antidualities v antisingularities(antiwaves v antiparticles) v lightmatter v..
 does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages (%), instead of waiting around for an occasional superstitious cosmic ray(dance)
 is the antidimension the mirrorverse? we see what they see
 is the speed∘ligʰt actually 149,896,229(m÷s)? is the double-way 599,584,916(m÷s)?
+how does nasa move their rockets? it can be done c̄ just a giant ball, and electromagnets, or a dice cup computer for free electrons
+i'm thinking about megastructures; environmental control for /contraction|expansion/, tailwhipping v a straight line that earthquakes free like an unstoppable force meets an immovable object v.,..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
