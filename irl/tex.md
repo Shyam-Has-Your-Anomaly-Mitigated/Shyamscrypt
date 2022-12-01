@@ -255,7 +255,7 @@ https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
  so we pair our /singularities|dualities|pluralities/
  now i'm just referencing the just push it movement; she's a great actress (maybe she still will be, even iff this doesn't happen this ttime; she got famous because of this, and you need (x)p to make (x)p), but don't be too pushy, or get filtered!
  i s/did/was going to/ do an "a pushes to b", "b pushes to a",..
- so transmitting the next (tele)port(ation) key, the next observational measure sspacettime, and the rest of the message; who needs to update intervals? (whether they be locally, or globally, decided)
+ so transmitting the next (tele)port(ation) key, the next observational measure sspacettime, and the rest of the message; who needs to update intervals? (whether they be locally, or globally, decided; local choices are decided globally; this is like patriarchical sanskrit, where decisions are masculine, and choices aren't)
  the extra (virtual)particles can be used for redundancy instead; virtual redundancies are redundant
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
