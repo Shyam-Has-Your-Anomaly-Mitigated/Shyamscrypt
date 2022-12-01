@@ -249,6 +249,7 @@ a hits b hits c; teleports a2c (while also measuring a through b; i like this re
 https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
  just use quantum teleportation, and a shenmue qte (after they are expected to have read our ␖), before it gets erased (c̄ "␆" probably, unless "send /shyam|virgins|food|water|meds|troops|../", "ripples" (is the nasa sspace moving (just) wiggling those two rings like shuttlecocked, andor loaded, rockets? is it an inverted m-drive?), "flux", "invasion", "evacuate (away from us; (p)zombiez)", "prepare (for us; refugees battling stars up their own gal'ticker)", "..|.. -_- ..|..", "101 (@u)", "contents of the decrement register", "short-short-short long-long-long-long-long long long-long-long-long-long long-long-long long-long-long-long-long short-long-long-short long-long-long-long-long long-short-short (opposite of C; i don't understand how this is supposed to work either (t(-)0 v 0t))", "", "[]",..); ftl /com(m|p)/s up (the website is down)
  it's like inspecting((self)teleporting(photons)) addresses, before inter-acting(entangling); all good languages optimally leave other programs' radiation for the hacker to handle c̄ care
+ use teleportation for teleportation, and now it continuous real time instant messaging
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
