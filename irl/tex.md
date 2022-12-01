@@ -238,7 +238,7 @@ inderaction v entanglement v intistinguishability v..
 iff inferrometer can measure nanoscope; i thought it could measure itself for some reason i think this is a trivial monodirectional speed∘ligʰt, not adjusted for observer paradox (not merely inderaction, unless celebrated)
 can mirrors contain photons? like a bdfl!!! :D
 containing antimatter containments; enough resolutionary samples, and we can see the bigger picture, even iff it's not (anti)photons (they are like self-observing; we wære observed from the place outside of the (meta)possibilities; possibilities are always possibilities∘possibilities),..
-antiwaves v antiparticles v lightmatter v..
+antidualities v antiwaves v antiparticles v lightmatter v..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
