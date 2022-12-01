@@ -239,7 +239,7 @@ iff inferrometer can measure nanoscope; i thought it could measure itself for so
 can mirrors contain photons? like a bdfl!!! :D
 containing antimatter containments; enough resolutionary samples, and we can see the bigger picture, even iff it's not (anti)photons (they are like self-observing; we wære observed from the place outside of the (meta)possibilities; possibilities are always possibilities∘possibilities),..
 antidualities v antisingularities(antiwaves v antiparticles) v lightmatter v..
-does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages (%), instead of waiting around for an occasional superstitious cosmic ray(dance)
+does s/quantum eraser/cosmic ray magnet/ filter stuck pixels? iff it doesn't work all the (sspace)ttime, then it isn't very important; i want to see lhc level of commitment towards beating the averages (%), instead of waiting around for an occasional superstitious cosmic ray(dance) v observer paradox (reversed (sspace)ttime)
 is the antidimension the mirrorverse? we see what they see
 is the speed∘ligʰt actually 149,896,229(m÷s)? is the double-way 599,584,916(m÷s)?
 how does nasa move their rockets? it can be done c̄ just a giant s/ball/shuttle'cock/, and electromagnets, or a dice cup computer for free electrons
