@@ -251,6 +251,7 @@ https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
  it's like inspecting((self)teleporting(photons)) addresses, before inter-acting(entangling); all good languages optimally leave other programs' radiation for the hacker to handle c̄ care
  use teleportation for teleportation, and now it continuous real time instant messaging; this is like barely-there virtual /duality|particle|wave|../ infrastructure
  self-teleporting, is that a "-thing"? i think it is; it's just pointer arithmetic,..
+ shyamgate!!! :D
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
