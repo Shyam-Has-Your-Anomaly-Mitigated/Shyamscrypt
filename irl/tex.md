@@ -258,6 +258,7 @@ https://en.wikipedia.org/wiki/Quantum_eraser_experiment#Common_misconception
  so transmitting the next (tele)port(ation) key, the next observational measure sspacettime, and the rest of the message; who needs to update intervals? (whether they be locally, or globally, decided; local choices are decided globally; this is like patriarchical sanskrit, where decisions are masculine, and choices aren't)
  the extra (virtual)particles can be used for redundancy instead (ibm thinks 1000 shots is a good default, 1008 is better; at least 1 /err|"bug"|now we know our systems are perfect/, but more can communicate, compute,..); virtual redundancies are redundant
 human wave of human particles at stadium; is a wave just made up of /a frequency|frequencies/ of particles?
+the expansion of the 'verse can be added up as to what the boundary ('verse' (some'imes ' is ' (not ('lw'ys) ' (nor ')))) "box" is to the temporal vector in any dimension, where i'm contemplating the second dimension as a contraction of the third dimension; until you /curve|bend|want/ your vector, since it can be sliced along any axis
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
