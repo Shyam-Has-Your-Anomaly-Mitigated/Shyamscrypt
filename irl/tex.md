@@ -261,6 +261,7 @@ human wave of human particles at stadium; is a wave just made up of /a frequency
 the expansion of the 'verse can be added up as to what the boundary ('verse' (some'imes ' is ' (not ('lw'ys) ' (nor ')))) "box" is to the temporal vector in any dimension, where i'm contemplating the second dimension as a contraction of the third dimension; until you /curve|bend|want/ your vector, since it can be sliced along any axis #temporaleverage
 a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 2.3 represents a rectangularea of 1.5, from a rectangled perimetre of 5; not 6, nor 2.3, in this context ∵ #iprefer
+(temporal) observation through memory
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
