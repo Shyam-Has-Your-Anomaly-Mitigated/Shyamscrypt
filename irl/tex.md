@@ -262,6 +262,8 @@ the expansion of the 'verse can be added up as to what the boundary ('verse' (so
 a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 2.3 represents a rectangularea of 1.5, from a rectangled perimetre of 5; not 6, nor 2.3, in this context ∵ #iprefer
 (temporal) observation through memory
+does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons,..
+singularity(wave v particle) collisions v duality collisions v plurality collisions v..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
