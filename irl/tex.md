@@ -263,7 +263,7 @@ a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 2.3 represents a rectangularea of 1.5, from a rectangled perimetre of 5; not 6, nor 2.3, in this context ∵ #iprefer
 *** i cann't remember what goes here
 (temporal) observation through memory
-does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons,..
+does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons, positrons + positrons,..
 singularity(wave v particle) collisions v duality collisions v plurality collisions v..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
