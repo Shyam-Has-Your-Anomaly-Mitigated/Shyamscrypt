@@ -265,6 +265,7 @@ a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 (temporal) observation through memory
 does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons, positrons + positrons,..
 singularity(wave v particle) collisions v duality collisions v plurality collisions v..
+antiquantum, /light|dark/ quantumatter,..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
