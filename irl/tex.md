@@ -274,7 +274,7 @@ nobody wants to improve education for the sake of their own /job|financial|../ s
 how to overthrow governments: non-financial trading (like houses made of a single ('versal)paperclip) = tax evasion to cripple (inter)national economies
 early kamikaze queen gets the worm into emotionally cripple the opponent into a false sense of security; the queen is a lie, the optimal first /play|act(ing)?|scene|strat(act)?|meta|move|turn|../
 it's /better|proper|formal|official|legal|contractually obligatory|../ to trade your first wife for a porn(shop); /break|read|../ through the lines
-(in)timidation
+(in)timidation; newspaper collage penpals exchange verbalooks for "there's a bomb at f1(sos(license)); goto (alt(current))f4"
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
