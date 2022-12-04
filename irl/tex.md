@@ -264,7 +264,7 @@ a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 *** i cann't remember what goes here
  it was probably using hair as eeg; haircuts can $teal passwords, cryptowallets, criminal histories, (first person, 3rd party, 2nd, 4th, 0th, `(minuth)`,..) personally identifiable information, big data,..
  like tree ring musica s/'versalis/solaris/
- black mirror pet surveillance
+ black mirror /pet|babby|(decr?eased & desisted|comatoasted|sleeping(sounds)|..)? victims/ surveillance
 (temporal) observation through memory
 does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons, positrons + positrons,..
 singularity(wave v particle) collisions v duality collisions v plurality collisions v..
