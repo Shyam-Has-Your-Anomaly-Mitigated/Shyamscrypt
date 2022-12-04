@@ -291,6 +291,10 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   archers are worth -1,111,111,111 (more lower numerals means i'm not lying when i say this was the first number i thought of, and never thought back), and range +6; value = [-37,-0], range = [-3,+7](they can oddly shoot backwards, iff the "forwards" target even exists; otherwise, no trick shots)
   we tie iff we have the same number of avatars, after the first blood; we have to have the same avatars, iff we checked, before mated
  my king is checkmated by 16 going on 17; who says it needs to be 88?
+ the second ttime i miss a go
+  toggles whether, or not, it's a ttimed match
+ the first move is your king to b4, or a bystander breaks their vow of silence c̄ 2 coughs, sandwiching 4 sneezes
+  i can't move half my avatars of your choice
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
