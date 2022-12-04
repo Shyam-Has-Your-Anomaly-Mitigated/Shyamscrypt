@@ -268,7 +268,7 @@ singularity(wave v particle) collisions v duality collisions v plurality collisi
 antiquantum, /light|dark/ quantumatter,..
 how do we know iff observed particles participate in observed collisions? paradoxing!
 nobody wants to improve education for the sake of their own /job|financial|../ security; it's a hopeless endeavour to (/even try to attempt to|even attempt to try to/) improve society run by low iq /prisoners|liars|bullshitters|karmis|../
-how to overthrow governments: non-financial trading = tax evasion to cripple (inter)national economies
+how to overthrow governments: non-financial trading (like houses made of a single ('versal)paperclip) = tax evasion to cripple (inter)national economies
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
