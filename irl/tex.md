@@ -263,6 +263,7 @@ a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
 2.3 represents a rectangularea of 1.5, from a rectangled perimetre of 5; not 6, nor 2.3, in this context ∵ #iprefer
 *** i cann't remember what goes here
  it was probably using hair as eeg; haircuts can $teal passwords, cryptowallets, criminal histories, (first person, 3rd party, 2nd, 4th, 0th, `(minuth)`,..) personally identifiable information, big data,..
+ like tree ring musica s/'versalis/solaris/
 (temporal) observation through memory
 does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons, positrons + positrons,..
 singularity(wave v particle) collisions v duality collisions v plurality collisions v..
