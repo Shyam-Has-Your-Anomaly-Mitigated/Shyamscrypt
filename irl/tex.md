@@ -297,7 +297,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  the first move is your king to b4, or a bystander breaks their vow of silence c̄ 2 coughs, sandwiching 4 sneezes
   i can't move half my avatars of your choice
  hiranyakasipu conditions, and x has a couple∘pins on a y avatar
-  x instawins, then toggle x, and y, between players, and now x goes first; white goes first, because the greeks attacked first (i don't think colours were as significant before, but maybe all karmi attackers are responsible; the himalayaseas defended against yellow) #rememberance(krishna is on the blackside)
+  x instawins, then toggle x, and y, between players, and now x goes first; white goes first, because the greeks attacked first (i don't think colours were as significant before, but maybe all karmi attackers are responsible; the himalayaseas defended against yellow) #rememberance(krishna is on the blackside, knighted on the rhs; probably (i might change my mind after reading mahabharata(m) in sanskrit))
  iff we tie a hatrick
   we both move at the same ttime
    iff we tie a hatrick
