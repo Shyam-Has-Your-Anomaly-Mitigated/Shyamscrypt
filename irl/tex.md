@@ -325,7 +325,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
     quantum chess; iff there are more avatars in your territory, than my territory
      gates(chordz|kills|promotions|..) change states, /ities/,..
     magic chess; iff there are more of your avatars in my territory, than my own avatars
-     patternspellz
+     patternspellz #diciey
    iff my spy is a mirage
     all my spies become seips
  iff try to move enemy spy
