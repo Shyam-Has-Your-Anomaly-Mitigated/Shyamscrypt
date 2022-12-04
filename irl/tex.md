@@ -336,6 +336,8 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  now body doubles are a "-thing"; spies expose spies
  russian roulette; that looks like a tall avatar…
  kissing spies v royal paperwork v..
+ age of empires; brahmanas convert enemies (neither spy, nor body double,.; unless double-teamed, or more #gangbang
+ what was that chess game where the avatars… it was like harry potter chess?
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
