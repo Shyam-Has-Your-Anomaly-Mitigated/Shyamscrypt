@@ -290,6 +290,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   you must cut off your thumb, iff your total score becomes 108
   archers are worth -1,111,111,111 (more lower numerals means i'm not lying when i say this was the first number i thought of, and never thought back), and range +6; value = [-37,-0], range = [-3,+7](they can oddly shoot backwards, iff the "forwards" target even exists; otherwise, no trick shots)
   we tie iff we have the same number of avatars, after the first blood; we have to have the same avatars, iff we checked, before mated
+  toggle en passant, every odd toggle toggles move distance, and en passant range
  my king is checkmated by 16 going on 17; who says it needs to be 88?
  the second ttime i miss a go
   toggles whether, or not, it's a ttimed match
@@ -318,6 +319,8 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   iff my spy is in your territory
    my spy becomes your avatar
   iff my spy is on the border between our territories
+   continue; iff the border is full
+    s/your yps/my spy/
    quantum chess; iff there are more avatars in your territory, than my territory
     gates(chords|kills|promotions|..) change states, /ities/,..
    magic chess; iff there are more of your avatars in my territory, than my own avatars
