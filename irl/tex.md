@@ -228,7 +228,7 @@ superbugz(space pirates), butt probing buggery by superintelligent superbully su
 iverson brackets support superpositional half truth(e)s, (and) half lies, godelling,.; 0.5, depending on your vector brobing(like a pro)
 brackette = /{|}/
 
-was shakuni the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
+was shakuni(loaded dice from the science of how it's made) the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
  round the /(anti)?clock(wise|face)?/ (%)
  it's faster c̄ multiple distinguishable dice
  bias #locality
@@ -337,7 +337,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  russian roulette; that looks like a tall avatar…
  kissing spies v royal paperwork v..
  age of empires; brahmanas convert enemies (neither spy, nor body double,.; unless double-teamed, or more #gangbang
- what was that chess game where the avatars… it was like harry potter chess?
+ what was that chess game where the avatars… it was like harry potter chess?)
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
