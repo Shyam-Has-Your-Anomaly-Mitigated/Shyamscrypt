@@ -328,6 +328,8 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
      patternspellz
    iff my spy is a mirage
     all my spies become seips
+ iff try to move enemy spy
+  enemy can veto #skippingvmissingvwantingv..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
