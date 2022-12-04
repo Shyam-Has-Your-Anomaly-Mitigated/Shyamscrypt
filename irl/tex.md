@@ -313,20 +313,21 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
              …
            …
  now avatars need shells; iff try to move a yps
-  iff my spy is in my territory
-   my all spy-a-likes become your spies
-   my spy dies; out of confusion, (dis)loyalties,..
-  iff my spy is in your territory
-   my spy becomes your avatar
-  iff my spy is on the border between our territories
-   continue; iff the border is full
-    s/your yps/my spy/
-   quantum chess; iff there are more avatars in your territory, than my territory
-    gates(chordz|kills|promotions|..) change states, /ities/,..
-   magic chess; iff there are more of your avatars in my territory, than my own avatars
-    patternspellz
-  iff my spy is a mirage
-   all my spies become seips
+  undo
+   iff my spy is in my territory
+    my all spy-a-likes become your spies
+    my spy dies; out of confusion, (dis)loyalties,..
+   iff my spy is in your territory
+    my spy becomes your avatar
+   iff my spy is on the border between our territories
+    continue; iff the border is full
+     s/your yps/my spy/
+    quantum chess; iff there are more avatars in your territory, than my territory
+     gates(chordz|kills|promotions|..) change states, /ities/,..
+    magic chess; iff there are more of your avatars in my territory, than my own avatars
+     patternspellz
+   iff my spy is a mirage
+    all my spies become seips
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
