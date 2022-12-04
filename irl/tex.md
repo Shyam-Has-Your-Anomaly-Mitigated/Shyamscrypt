@@ -272,6 +272,7 @@ antiquantum, /light|dark/ quantumatter,..
 how do we know iff observed particles participate in observed collisions? paradoxing!
 nobody wants to improve education for the sake of their own /job|financial|../ security; it's a hopeless endeavour to (/even try to attempt to|even attempt to try to/) improve society run by low iq /prisoners|liars|bullshitters|karmis|../
 how to overthrow governments: non-financial trading (like houses made of a single ('versal)paperclip) = tax evasion to cripple (inter)national economies
+early kamikaze queen gets the worm into emotionally cripple the opponent into a false sense of security; the queen is a lie, the optimal first /play|act(ing)?|scene|strat(act)?|meta|move|turn|../
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
