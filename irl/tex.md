@@ -339,6 +339,19 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  age of empires; brahmanas convert enemies (neither spy, nor body double,.; unless double-teamed, or more #gangbang
  what was that chess game where the avatars… it was like harry potter chess?)
 
+as i played pancguti using dice (now it's the only way; i do remember how to find the best stones though they can be carved, and i like stoner games, but getting stoned is in a superposition; high v fucked to death); i realised the dice that fall are zeroed, and you can choose to risk rolling them around (like speedwalking), and you can apply mathematics to multiple s/ides/faces/
+ n colours = best of n v..
+https://en.wikipedia.org/wiki/Pancha-Gauda
+https://en.wikipedia.org/wiki/Pancha-Dravida
+https://unesdoc.unesco.org/ark:/48223/pf0000373435(/PDF/373435eng.pdf.multi)
+[https://en.wikipedia.org/wiki/Knucklebones](https://en.wikipedia.org/wiki/Knucklebones#South_Asia) #wtf‽
+ that's only one game‽(do you throw the pickups, or only 1 everyttime; you throw the pickups probably)‽
+ what happened to scooping them through the goal‽‽‽
+ and backhanding them all up can be caught /under(arm|hand)/ v /over(arm|hand)/‽‽‽‽
+ i haven't played since gurukule, before highschool‽‽‽‽‽
+stones that are caught #dice
+ opponent can be the tosser?
+
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
