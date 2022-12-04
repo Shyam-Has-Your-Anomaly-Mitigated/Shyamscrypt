@@ -295,6 +295,8 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   toggles whether, or not, it's a ttimed match
  the first move is your king to b4, or a bystander breaks their vow of silence c̄ 2 coughs, sandwiching 4 sneezes
   i can't move half my avatars of your choice
+ hiranyakasipu conditions, and x has a couple∘pins on a y avatar
+  x instawins, then toggle x, and y, between players, and now x goes first; white goes first, because the greeks attacked first (i don't think colours were as significant before, but maybe all karmi attackers are responsible; the himalayaseas defended against yellow) #rememberance
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
