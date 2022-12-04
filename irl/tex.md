@@ -409,6 +409,8 @@ human(spy) (massless(compression))wave(net) can pass through (slits; single, dou
     bucket from two points closest to the top
    see a bomb disposal expert running away? run in the opposite direction, so as to avoid; out of the frying pan, and into the fire(literal)
     like trick shots into the pool, roulette,.; see a rolling cannonball c̄ing in like a wreckingball? do the math, as it pendulums, or not!!!
+    the water is lava; anyone touches it gets thrown overboard, where clothes can be removed (even though there's a statistical probability a scarf looks like a "kick me" sign from the 'versalis, as they scream for their' life)
+    the more passengers, the more /warmth|computational power|medallion (assuming survivors, and they don't forget during their interrogation as a suspected spy)|../
 imagine having a pi aged daughter on pi day, and she turn pi on pi day, birthday, pi measurements (now you're 2pi, tau,.. #biometricsecurity),..
 ned kelly(gang) shot the (white)sherrif(s), and killed all the white "man"
 my decidership has the highest population densities
