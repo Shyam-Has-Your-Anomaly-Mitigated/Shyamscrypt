@@ -339,7 +339,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  age of empires; brahmanas convert enemies (neither spy, nor body double,.; unless double-teamed, or more #gangbang
  what was that chess game where the avatars… it was like harry potter chess?)
 
-as i played pancguti using dice (now it's the only way; i do remember how to find the best stones though they can be carved, and i like stoner games, but getting stoned is in a superposition; high v fucked to death); i realised the dice that fall are /zeroed|negated|../, and you can choose to risk rolling them around (like speedwalking), and you can apply mathematics to multiple s/ides/faces/
+as i played pancguti using dice (now it's the only way; i do remember how to find the best stones though they can be carved, and i like stoner games, but getting stoned is in a superposition; high v fucked to death); i realised the dice that fall are /zeroed|negated|../, and you can choose to risk rolling them around (like speedwalking), and you can apply mathematics to multiple s/ides/faces/, but must catch to count against no"-thing", or less
  n colours = best of n v..
 https://en.wikipedia.org/wiki/Pancha-Gauda
 https://en.wikipedia.org/wiki/Pancha-Dravida
