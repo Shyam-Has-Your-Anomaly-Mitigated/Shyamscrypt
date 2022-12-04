@@ -228,7 +228,7 @@ superbugz(space pirates), butt probing buggery by superintelligent superbully su
 iverson brackets support superpositional half truth(e)s, (and) half lies, godelling,.; 0.5, depending on your vector brobing(like a pro)
 brackette = /{|}/
 
-was shakuni(loaded dice from the science of how it's made) the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
+was shakuni(loaded dice from the science of how it's made; that is your dice, this is my dice, where my dice will always roll a higher side than your dice; shifting weight-stab-ility) the first to discover the 'versal rng, quantumagic,.? considering the speed∘ligʰt (even iff all ligʰt(urez) is not equal, metaligʰt (patterns), /(red|phase)?shift/,..)
  round the /(anti)?clock(wise|face)?/ (%)
  it's faster c̄ multiple distinguishable dice
  bias #locality
