@@ -307,7 +307,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
         duel
          iff we tie a hatrick
           reboot, and switch lives
-           iff we tie a hatrick on the same weekday
+           iff we tie a hatrick on the same weekday on the same monthday on the same yearday
             we both move at the same ttime
              …
            …
