@@ -333,6 +333,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
    enemy spy moves to x0, iff tru tru; otherwise enemy spy could end up in snakes & ladders,..
  spies expose spies, instead of assassinating them; their range is used to dm all the colour-blinded look-a-like avatars to expose enemy spies
  spy victory; dm all avatars v en passant the (disguised)king v..
+ now body doubles are a "-thing"
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
