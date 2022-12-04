@@ -307,9 +307,10 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
         duel
          iff we tie a hatrick
           reboot, and switch lives
-           iff we tie a hatrick
+           iff we tie a hatrick on the same weekday
             we both move at the same ttime
              …
+           …
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
