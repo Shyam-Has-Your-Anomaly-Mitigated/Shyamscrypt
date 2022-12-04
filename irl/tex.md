@@ -281,7 +281,7 @@ baiting is a good strat; especially iff they moved /sh(y|ort)/, since they could
 temporal pins are the meta; every"-thing" is quantum (both sspacettime)
 a good way to play; the next games' (shyam)rules depend on the prior probabilities
  my porn dies at /.(1|8)/; whichever's closest to my initial condition #poo
-  toggles whether, or not, porn can be rewound 
+  toggles whether, or not, porn can be rewound (snakes & ladders #chordsspace #killz #ttime)
  my porn checkmates your king
   brahmanas can become devas
   chariots swap manoeuvrable c̄ elephants' tally whacker
@@ -322,7 +322,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
    continue; iff the border is full
     s/your yps/my spy/
    quantum chess; iff there are more avatars in your territory, than my territory
-    gates(chords|kills|promotions|..) change states, /ities/,..
+    gates(chordz|kills|promotions|..) change states, /ities/,..
    magic chess; iff there are more of your avatars in my territory, than my own avatars
     patternspellz
   iff my spy is a mirage
