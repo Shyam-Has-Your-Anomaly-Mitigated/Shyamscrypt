@@ -297,6 +297,19 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   i can't move half my avatars of your choice
  hiranyakasipu conditions, and x has a couple∘pins on a y avatar
   x instawins, then toggle x, and y, between players, and now x goes first; white goes first, because the greeks attacked first (i don't think colours were as significant before, but maybe all karmi attackers are responsible; the himalayaseas defended against yellow) #rememberance
+ iff we tie a hatrick
+  we both move at the same ttime
+   iff we tie a hatrick
+    real ttime strat #modal(ity)
+     iff we tie a hatrick
+      table flip wins
+       iff we tie a hatrick
+        duel
+         iff we tie a hatrick
+          reboot, and switch lives
+           iff we tie a hatrick
+            we both move at the same ttime
+             …
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
