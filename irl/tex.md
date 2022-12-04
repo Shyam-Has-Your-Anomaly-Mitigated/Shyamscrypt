@@ -312,7 +312,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
             we both move at the same ttime
              …
            …
- now avatars need shells; iff try to move a yps
+ now avatars need /turtles|shells|coverstories|../; iff try to move a yps
   undo
    iff my spy is in my territory
     my all spy-a-likes become your spies
@@ -331,6 +331,8 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
  iff try to move enemy spy
   enemy can veto #skippingvmissingvwantingv..
    enemy spy moves to x0, iff tru tru; otherwise enemy spy could end up in snakes & ladders,..
+ spies expose spies, instead of assassinating them; their range is used to dm all the colour-blinded look-a-like avatars to expose enemy spies
+ spy victory; dm all avatars v en passant the (disguised)king v..
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
