@@ -265,6 +265,8 @@ a squared perimetre is defined as [x=y]×(2x+2y); (who) need where()?
  it was probably using hair as eeg; haircuts can $teal passwords, cryptowallets, criminal histories, (first person, 3rd party, 2nd, 4th, 0th, `(minuth)`,..) personally identifiable information, big data,..
  like tree ring musica s/'versalis/solaris/
  black mirror /pet|babby|(decr?eased & desisted|comatoasted|sleeping(sounds)|..)? victims|(criminal|corrupted|..) selfie/ surveillance
+ how often do you think about committing /crime|treason|mutiny|terrorism|blasphemy(iff it'sn't crime)?|../,..
+ what colour is your underwear? how much are you willing to pay for products? how little are your willing to work for? how hard are you going to work? good underwear is hard to find!
 (temporal) observation through memory
 does lhc collide matter c̄ antimatter? electron + positron, electron + photon, positron + photon, phonons, positrons + positrons,..
 singularity(wave v particle) collisions v duality collisions v plurality collisions v..
