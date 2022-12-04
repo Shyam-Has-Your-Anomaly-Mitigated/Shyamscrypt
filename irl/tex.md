@@ -277,6 +277,8 @@ how to overthrow governments: non-financial trading (like houses made of a singl
 early kamikaze queen gets the worm into emotionally cripple the opponent into a false sense of security; the queen is a lie, the optimal first /play|act(ing)?|scene|strat(act)?|meta|move|turn|../
 it's /better|proper|formal|official|legal|contractually obligatory|../ to trade your first wife for a porn(shop); /break|read|../ through the lines
 (in)timidation; newspaper collage penpals exchange verbalooks for "there's a bomb at f1(sos(license)); goto (alt(current))f4", and "pull my pin, so i can queef in your porn(star) face bluff", "i put a bomb in your house (([`(at)`=`@`] (implicit multiplication #p(r)emdas) number 8, hitler street)", "i(x) shot the pope, but ii didn't shoot no king",..
+baiting is a good strat; especially iff they moved /sh(y|ort)/, since they could have productively done some"-thing" else, before i /seduce|lure|../ that /sh(ort|y)/ #wasted
+temporal pins are the meta; every"-thing" is quantum (both sspacettime)
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
