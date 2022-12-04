@@ -279,6 +279,18 @@ it's /better|proper|formal|official|legal|contractually obligatory|../ to trade 
 (in)timidation; newspaper collage penpals exchange verbalooks for "there's a bomb at f1(sos(license)); goto (alt(current))f4", and "pull my pin, so i can queef in your porn(star) face bluff", "i put a bomb in your house (([`(at)`=`@`] (implicit multiplication #p(r)emdas) number 8, hitler street)", "i(x) shot the pope, but ii didn't shoot no king",..
 baiting is a good strat; especially iff they moved /sh(y|ort)/, since they could have productively done some"-thing" else, before i /seduce|lure|../ that /sh(ort|y)/ #wasted
 temporal pins are the meta; every"-thing" is quantum (both sspacettime)
+a good way to play; the next games' (shyam)rules depend on the prior probabilities
+ my porn dies at /.(1|8)/; whichever's closest to my initial condition #poo
+  toggles whether, or not, porn can be rewound 
+ my porn checkmates your king
+  brahmanas can become devas
+  chariots swap manoeuvrable c̄ elephants' tally whacker
+  your spy gets -1 distance from my king; maximum total is +5, minimum total is +2
+  my spies get +3 distance from your king; minimum total is -1, maximum total is +4
+  you must cut off your thumb, iff your total score becomes 108
+  archers are worth -1,111,111,111 (more lower numerals means i'm not lying when i say this was the first number i thought of, and never thought back), and range +6; value = [-37,-0], range = [-3,+7](they can oddly shoot backwards, iff the "forwards" target even exists; otherwise, no trick shots)
+  we tie iff we have the same number of avatars, after the first blood; we have to have the same avatars, iff we checked, before mated
+ my king is checkmated by 16 going on 17; who says it needs to be 88?
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
