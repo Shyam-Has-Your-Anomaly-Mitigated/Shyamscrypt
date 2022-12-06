@@ -379,6 +379,9 @@ red + odd v black + even; best bets, but far from game theory (optimal)
 interaction v unification
 s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
 positional particle detectors (/phasal|phaser/ observer paradox phases); analog xray-less xray vision
+ only sspace is x-ray
+ only ttime is /past|present|future/
+ holowave projections
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
