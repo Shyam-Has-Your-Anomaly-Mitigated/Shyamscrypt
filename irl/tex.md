@@ -366,6 +366,9 @@ t(here)i(s)p(roblem)
 obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,..
 court rooms need (/motivational|subliminal/) posters for de-escalation, contempt,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
 they call the military in for australians, but not organised crime (not national security; publicivvies aren't national); intelligences is more concerned c̄ "terrorism" (mostly committing it, while faking it #propaganda)
+ it's easy to beat organised crime; just do what they do, and accept you're going to die, but kill as many of them; even one is worth it, and even moreso iff they're p(olice)i(n)g(ang) #rip
+  that documentary showcased evidence of code /blue|(green|khaki|..)(\?)/ for killing australians; who needs linguistic analysis, when they openly admit to corruption?
+ just as the government has only ever influenced my life through ganja, so too is my life only ever influence by organised crime; otherwise i'd be dead, and i'd've taken as many of them c̄ me
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
