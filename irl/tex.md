@@ -369,6 +369,7 @@ they call the military in for australians, but not organised crime (not national
  it's easy to beat organised crime; just do what they do, and accept you're going to die, but kill as many of them; even one is worth it, and even moreso iff they're p(olice)i(n)g(ang) #rip
   that documentary showcased evidence of code /blue|(green|khaki|..)(\?)/ for killing australians; who needs linguistic analysis, when they openly admit to corruption?
  just as the government has only ever influenced my life through ganja, so too is my life only ever influence by organised crime; otherwise i'd be dead, and i'd've taken as many of them c̄ me
+ the only reason they allow /tor|cryptocurrency|../ is for their own corruption
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
