@@ -385,7 +385,8 @@ positional particle detectors (/phasal|phaser/ observer paradox phases; sole obs
  holowave projections
  it's like a handheld monocle /telescope|monoculars?/; like /light(speed)?|ftl|../ computers
   naked eyes knowingly observe laser radiation wavesingularities; pussible particlesingularities, pluralities, dualities,..
-lever-age
+ lever-age
+ what does stillness feel like? not everyone's, nor every"-thing"s, a time traveller
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
