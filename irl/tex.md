@@ -362,6 +362,10 @@ iff the government claims suicide, doesn't tng
 donald, (fuck) a duck, paves the way for buisness to run government, by taking credit for artificial economic success; while leading example of political bullshitting (never built no wall, never made no foreigners pay for any"-thing", besides tourism; better economies pay more though, so it's still a loss), and political terrorism (arabian v australian; both swans, but america trumps australia in this (ill-e(lectronic)gal; sexbot)case)
 in my country there is problem #(tax)sandwich
 
+t(here)i(s)p(roblem)
+obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,..
+court rooms need (motivational) posters for de-escalation, contempt,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
+
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
