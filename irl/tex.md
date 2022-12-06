@@ -352,6 +352,12 @@ https://unesdoc.unesco.org/ark:/48223/pf0000373435(/PDF/373435eng.pdf.multi)
 stones that are caught #dice
  opponent can be the tosser?
 
+https://youtu.be/4lJUCMKYUUw
+(full-blooded|ugly ducklings) australians are to the government(third nation; can be undo-ne v un-done; shyamaloka is the third nation of australia) of australia(bharata is the first nation, but they can be a second nation; still standing), what taiwan is to the government of china; like australia ever needed to be governed anyway in the first place, and all governments are the same; they are "governments"
+blacksploitation /adware|propaganda/; somettimes(tables) you need throw a spanner into the works, and stir the pot, for more intelligence to datamine (for the uncorrupted always win, and the corrupted always lose #((karma)life)afterlife(b4reincarnation))
+the government of australia prefers australian life expectancy to end at 45, or less (lack of medical, /environment|infrastructure/, /pig|corruption/,.; systematic genocide, while delaying the guillotine (even iff it's after their apparrent death; i don't burn your personality box until reincarnation, butt there's (no) hard, and fast, rules #unlocketted)); i think they only get 60k(+taxes; in a way… (seeing they probably don't get tax returned for non-deductables)) every year from 18, to the day they die (minus incarceration?); until the government takes it away, and that annual $30b just disappears into the artificial economy (there'll be no noticeable difference; just like elections, where ganja is the only difference i've ever noticed, and now i have no reason to vote, nor goto court(to face my own injustice, over the many injustices that came before; swear on this book to uphold the law that condemns joseph abusing mary, at least in the states, and territories, of 17; for some reason i remember her being 16, but who knows, and who cares), until they becomes as mandatory as the spyware census, and law enforcement; bedroom door knocks, or else it isn't mandatory, and i'm not getting paid, while someone else is (just to scribble on a eceip of paper that i have to pay a fine i'll never pay, and i'll make it cost more than it's worth))
+iff enough suicide, it'll cripple the economy, and their /job|financial|food|bio(diversity)?|../ security
+
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
