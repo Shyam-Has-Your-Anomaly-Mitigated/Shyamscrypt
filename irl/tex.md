@@ -378,7 +378,7 @@ personality boxes v s/carrot|stick/narration/ v.; hypno(violence,force,..)traini
 red + odd v black + even; best bets, but far from game theory (optimal)
 interaction v unification
 s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
-positional particle detectors (/phasal|phaser/ observer paradox phases); analog xray-less xray vision
+positional particle detectors (/phasal|phaser/ observer paradox phases; sole observation); analog xray-less xray vision
  only sspace is x-ray
  only ttime is /past|present|future/
   https://youtu.be/yPVQtvbiS4Y?t=111
