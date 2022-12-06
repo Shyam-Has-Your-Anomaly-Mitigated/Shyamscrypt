@@ -382,6 +382,7 @@ positional particle detectors (/phasal|phaser/ observer paradox phases); analog 
  only sspace is x-ray
  only ttime is /past|present|future/
  holowave projections
+ it's like a handheld monocle telescope; like /light(speed)?|ftl|../ computers
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
