@@ -382,7 +382,7 @@ positional particle detectors (/phasal|phaser/ observer paradox phases); analog 
  only sspace is x-ray
  only ttime is /past|present|future/
  holowave projections
- it's like a handheld monocle telescope; like /light(speed)?|ftl|../ computers
+ it's like a handheld monocle /telescope|monoculars?/; like /light(speed)?|ftl|../ computers
   naked eyes knowingly observe laser radiation wavesingularities; pussible particlesingularities, pluralities, dualities,..
 
 stoner list
