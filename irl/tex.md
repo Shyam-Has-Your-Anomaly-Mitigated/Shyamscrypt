@@ -368,7 +368,7 @@ court rooms need (/motivational|subliminal/) posters for de-escalation, contempt
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
-  she gotto goto the pub when she passed half a decade
+  she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
