@@ -371,6 +371,11 @@ they call the military in for australians, but not organised crime (not national
  just as the government has only ever influenced my life through ganja, so too is my life only ever influence by organised crime; otherwise i'd be dead, and i'd've taken as many of them c̄ me
  the only reason they allow /tor|cryptocurrency|../ is for their own corruption
 
+personality boxes v s/carrot|stick/narration/ v.; hypno(violence,force,..)training #whisper(iff they aren't deaf, or train them to act deaf #horsedmath #_(?)computer) #gesture #..
+ narration is optimal teaching babies; neglect = learning disability
+  neglect is just leaving them to play c̄ toys, or leaving them in the pram to talk c̄ friends, so it can roll away, and you can be done c̄ ptsd,..
+   it's bad enough we are literally disabled /at|by/ that age
+
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
