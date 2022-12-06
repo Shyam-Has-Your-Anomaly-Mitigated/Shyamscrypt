@@ -381,9 +381,11 @@ s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
 positional particle detectors (/phasal|phaser/ observer paradox phases); analog xray-less xray vision
  only sspace is x-ray
  only ttime is /past|present|future/
+  https://youtu.be/yPVQtvbiS4Y?t=111
  holowave projections
  it's like a handheld monocle /telescope|monoculars?/; like /light(speed)?|ftl|../ computers
   naked eyes knowingly observe laser radiation wavesingularities; pussible particlesingularities, pluralities, dualities,..
+lever-age
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
