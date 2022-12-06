@@ -375,6 +375,10 @@ personality boxes v s/carrot|stick/narration/ v.; hypno(violence,force,..)traini
  narration is optimal teaching babies; neglect = learning disability
   neglect is just leaving them to play c̄ toys, or leaving them in the pram to talk c̄ friends, so it can roll away, and you can be done c̄ ptsd,..
    it's bad enough we are literally disabled /at|by/ that age
+red + odd v black + even; best bets, but far from game theory (optimal)
+interaction v unification
+s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
+positional particle detectors (/phasal|phaser/ observer paradox phases); analog xray-less xray vision
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
