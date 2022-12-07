@@ -376,6 +376,7 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
   i guess we call them battles iff it's teams; even iff it's a team(of soldiers) v solo(warrior, hero, master,..)
   i guess we call them wars iff it's /multi(national|cultural|school|style|..)/; solo becomespy(v spy; fighters pick on someone they can relate to, like ned kelly killing whites),..
   cæsar saving the life of an image-builder was always rigged against the winner, who wouldn't've been saved otherwise; viragatim saves those who don't save themselves, as long as there's no delay ∵ that's just execution ∵ cæsar didn't want to reward them in any (in)conceivable way
+   everybody celebrates cæsars' new clothes; for the social engineering,..
 he should have (over)compensated their problems, and then apologised s/post-humou(rou)sly/post-hum(our)ously/; vicariously through an australian prime minister (or a council of tribal elders, or whatever; they might just be at each others throats for the "mine", since animal subject research indicates they are as human, and susceptible, as any other alcoholic,.; unless they were initially missionaried into it, and it spread through contagion), after they all fully recovered, and regained their land rights, uluru, dignity(religious, cultural,..),..
 in my country there is problem #(tax)sandwich
 
