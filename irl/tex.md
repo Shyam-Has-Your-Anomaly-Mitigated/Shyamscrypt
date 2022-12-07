@@ -365,6 +365,7 @@ the pot(of "amrita") at the end of my rainbow will get you high #stoned
 the (dual-wielded)pots(of "gold") at the end of my rainbow will get you knocked up #preggerz
 rain-bow&arrow, as in; every"-thing", everywere, all at once #fullspectrum(not just /(thc|cbd|the most popular terpenes?|..)|("clone"|..)/)
 human sacrifices to me are the most acceptable iff they are 100%; virgins, girls, healths, trained in the (64) art(s) of human /ui|computer|../,..
+ americans,.; how do i /transition(\?)|re-education camps|../ animal hunting? where's sharmie?
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
