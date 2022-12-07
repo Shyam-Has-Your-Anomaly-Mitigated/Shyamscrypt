@@ -391,6 +391,8 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
    (maybe) it'll be legal to spray & taze iff they forget shyam rules; who needs a ref? it's just an expensive expense; better quality fights get a ref per tier, so they can /gangbang|dogpile|maybe just drop them from above, and the net is just a gladitorial convenience/ the loser(s)
 he should have (over)compensated their problems, and then apologised s/post-humou(rou)sly/post-hum(our)ously/; vicariously through an australian prime minister (or a council of tribal elders, or whatever; they might just be at each others throats for the (life stinks)"mine", since animal subject research indicates they are as human, and susceptible, as any other alcoholic,.; unless they were initially missionaried into it, and it spread through contagion), after they all fully recovered, and regained their land rights, uluru, dignity(religious, cultural,..),..
 brexit white convicts back to the brits; not me though, i'm the exception (unless i get my throne of gold at the end of the rainbow, and whatever a "sham"rock is; i want to keep my real dick though, so it should be carved out to fit up over, down under; shyamantaka)
+gina rinehart (second richest in australia; i'm the first, 'versally) paid actors to make a video, and then bribed the government; total cost, $22m
+tor, and cryptocurrency, used to(bribe public servants) buy personally identifiable data(genetic,.; you can run, butt you cam't hide) of all public servants, and buisness owners; total cost, priceless
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
