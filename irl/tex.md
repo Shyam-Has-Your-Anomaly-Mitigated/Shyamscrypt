@@ -363,6 +363,7 @@ donald, (fuck) a duck, paves the way for buisness to run government, by taking c
 white people aren't even animals, according to parli(e)amen(t); we need to crack them open using a can opener, and assimilate their technology into our own
 the pot(of "amrita") at the end of my rainbow will get you high #stoned
 the (dual-wielded)pots(of "gold") at the end of my rainbow will get you knocked up #preggerz
+rain-bow, as in; every"-thing", everywere, all at once #fullspectrum(not just /(thc|cbd|the most popular terpenes?|..)|("clone"|..)/)
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
