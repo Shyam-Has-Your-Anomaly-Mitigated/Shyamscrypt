@@ -361,6 +361,8 @@ iff enough suicide, it'll cripple the economy, and their /job|financial|food|bio
 iff the government claims suicide, doesn't tng
 donald, (fuck) a duck, paves the way for buisness to run government, by taking credit for artificial economic success; while leading example of political bullshitting (never built no wall, never made no foreigners pay for any"-thing", besides tourism; better economies pay more though, so it's still a loss), and political terrorism (arabian v australian; both swans, but america trumps australia in this (ill-e(lectronic)gal; sexbot)case)
 white people aren't even animals, according to parli(e)amen(t); we need to crack them open using a can opener, and assimilate their technology into our own
+the pot(of "amrita") at the end of my rainbow will get you high #stoned
+the (dual-wielded)pots(of "gold") at the end of my rainbow will get you knocked up #preggerz
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
