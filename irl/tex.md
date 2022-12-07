@@ -430,7 +430,7 @@ interaction v unification
 s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
 positional particle detectors (/phasal|phaser/ observer paradox phases; sole observation); analog xray-less xray vision
  only sspace is x-ray
-  particle radiation can be used at any distance; sniffer dogs, metal detectors,..
+  particle radiation can be /used|fft|../ at any distance; sniffer dogs, metal detectors,..
   now i can steal your data; genetics, chip design (trade secrets), rfid,..
  only ttime is /past|present|future/
   https://youtu.be/yPVQtvbiS4Y?t=111
