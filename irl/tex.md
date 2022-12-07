@@ -385,6 +385,7 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
    it's not punishment iff they come out as someone else; sole switching
    i want to see the black belt ohko, the bone breaking block,..
   maybe all contestants should be required to demonstrate their ability to strike; knock 'em down + brokenless, keep 'em up + brokenless, knock 'em down + broken, keep 'em up + broken #shenmue
+   i haven't fully figured this out yet (maybe); so just attack the wall, by flying into it, and bounce off; breakfull v breakless
 he should have (over)compensated their problems, and then apologised s/post-humou(rou)sly/post-hum(our)ously/; vicariously through an australian prime minister (or a council of tribal elders, or whatever; they might just be at each others throats for the (life stinks)"mine", since animal subject research indicates they are as human, and susceptible, as any other alcoholic,.; unless they were initially missionaried into it, and it spread through contagion), after they all fully recovered, and regained their land rights, uluru, dignity(religious, cultural,..),..
 in my country there is problem #(tax)sandwich
 
