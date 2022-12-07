@@ -394,7 +394,7 @@ brexit white convicts back to the brits; not me though, i'm the exception (unles
 gina rinehart (second richest in australia; i'm the first, 'versally) paid actors to make a video, and then bribed the government; total cost, $22m
 tor, and cryptocurrency, used to(bribe public servants) buy personally identifiable data(genetic,.; you can run, butt you cam't hide) of all public servants, and buisness owners; total cost, priceless
 the systematic genocide of the so-called "(super)powerful" all at the same ttime, priceless
- the government saw this coming, and promoted capitalism to share the perceived power; was it utopia(?) that said the government used to do every"-thing" cheaper by hiring their own employees to build the railways(wade through the water,..),.? this is so buisness owners act as a heat sink, and so they are generously rewarded, like breeding "body doubles" who don't know they are'n' fictional story (en)titled resident evil
+ the government saw this coming, and promoted capitalism to share the perceived power; was it utopia(?) that said the government used to do every"-thing" cheaper by hiring their own employees to build the railways(wade in the water,..),.? this is so buisness owners act as a heat sink, and so they are generously rewarded, like breeding "body doubles" who don't know they are'n' fictional story (en)titled resident evil
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
