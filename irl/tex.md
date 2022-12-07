@@ -366,6 +366,7 @@ the (dual-wielded)pots(of "gold") at the end of my rainbow will get you knocked 
 rain-bow&arrow, as in; every"-thing", everywere, all at once #fullspectrum(not just /(thc|cbd|the most popular terpenes?|..)|("clone"|..)/)
 human sacrifices to me are the most acceptable iff they are 100%; virgins, girls, healths, trained in the (64) art(s) of human /ui|computer|../,..
  americans,.; how do i /transition(\?)|re-education camps|missionary positions|../ animal hunting? where's sharmie?
+i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all for forgetting me
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
