@@ -367,6 +367,15 @@ rain-bow&arrow, as in; every"-thing", everywere, all at once #fullspectrum(not j
 human sacrifices to me are the most acceptable iff they are 100%; virgins, girls, healths, trained in the (64) art(s) of human /ui|computer|../,..
  americans,.; how do i /transition(\?)|re-education camps|missionary positions|../ animal hunting? where's sharmie?
 i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all for forgetting me
+ avatar = arjuna, guru = krishna; my game of life is a game of snakes & ladders
+ game of bones
+  you get paid minimum wage, until you lose, or /can't|don't want to|../ fight anymore; good luck $haring, image-building,..
+  all profits goto making my country great again; to avoid charitable money laundering (you don't get to choose)
+  you fight until a broken bone, or you resign, and go home; severence packages are contractually waived
+  you get better quality living conditions after the more back-to-back fights, until the next fight after another pair of fighters
+  i guess we call them battles iff it's teams; even iff it's a team(of soldiers) v solo(warrior, hero, master,..)
+  i guess we call them wars iff it's /multi(national|cultural|school|style|..)/; solo becomespy(v spy; fighters pick on someone they can relate to, like ned kelly killing whites),..
+he should have (over)compensated their problems, and then apologised s/post-humou(rou)sly/post-hum(our)ously/; vicariously through an australian prime minister (or a council of tribal elders, or whatever; they might just be at each others throats for the "mine", since animal subject research indicates they are as human, and susceptible, as any other alcoholic,.; unless they were initially missionaried into it, and it spread through contagion), after they all fully recovered, and regained their land rights,..
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
