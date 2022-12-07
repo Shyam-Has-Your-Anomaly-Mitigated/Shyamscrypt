@@ -393,11 +393,27 @@ he should have (over)compensated their problems, and then apologised s/post-humo
 brexit white convicts back to the brits; not me though, i'm the exception (unless i get my throne of gold at the end of the rainbow, and whatever a "sham"rock is; i want to keep my real dick though, so it should be carved out to fit up over, down under; shyamantaka)
 gina rinehart (second richest in australia; i'm the first, 'versally) paid actors to make a video, and then bribed the government; total cost, $22m
 tor, and cryptocurrency, used to(bribe public servants) buy personally identifiable data(genetic,.; you can run, butt you cam't hide) of all public servants, and buisness owners; total cost, priceless
+the systematic genocide of the so-called "(super)powerful" all at the same ttime, priceless
+ the government saw this coming, and promoted capitalism to share the perceived power; was it utopia(?) that said the government used to do every"-thing" cheaper by hiring their own employees to build the railways(wade through the water,..),.? this is so buisness owners act as a heat sink, and so they are generously rewarded, like breeding "body doubles" who don't know they are'n' fictional story (en)titled resident evil
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
 obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,..
  i just need to get me some lip-o-suction; for your -o- face
+ processing; i guess that includes industrial food chemistry processes, like /isolates|../ from /centrifuges|../
+  this is like feeding plants blood, bone, chemical fertilisers, chemical pesticides,.; veganics is proven game theory optimal, supremacism, dominance,..
+  you need organic(material) to make organic(life)
+  multivitamins are provably unhealthy
+  need to diy juice fruit into drink
+ https://www.youtube.com/watch?v=FBP-DxfZCgo
+ https://www.youtube.com/watch?v=nX1KUPZC3Ck
+  animals more intelligently only eat /fresh|warm/; immediately after they do the killing
+  simon pegg checks for food injections; now i know why
+  it takes "ttime" to prioritise public health & safety over the economy; it takes bribe to do the opposite, and that's why the who is completely ignored by every government on earth
+  don't buy your own supply? nor anyone elses; governments should force all buisness /owners|employees|third parties|../ to use their own products(rng sampling by the government; each individual cycles through every source) on an expected regular basis, labelled on the packaging
+  /governments|buisnesses|academia/ are organised crime syndicates
+  the who was definitive
+  $elloutz just want money; it's too easy to bribe
 court rooms need (/motivational|subliminal/) posters for de-escalation, contempt,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
 they call the military in for australians, but not organised crime (not national security; publicivvies aren't national); intelligences is more concerned c̄ "terrorism" (mostly committing it, while faking it #propaganda)
  it's easy to beat organised crime; just do what they do, and accept you're going to die, but kill as many of them; even one is worth it, and even moreso iff they're p(olice)i(n)g(ang) #rip
@@ -414,13 +430,20 @@ interaction v unification
 s/smellovision/tasteovision/; hearovision (phonons v photons; textured friction)
 positional particle detectors (/phasal|phaser/ observer paradox phases; sole observation); analog xray-less xray vision
  only sspace is x-ray
+  particle radiation can be used at any distance; sniffer dogs, metal detectors,..
+  now i can steal your data; genetics, chip design (trade secrets), rfid,..
  only ttime is /past|present|future/
   https://youtu.be/yPVQtvbiS4Y?t=111
+  temporally entangled particles leak radiation too
+  now i can steal your data from any ttime
  holowave projections
  it's like a handheld monocle /telescope|monoculars?/; like /light(speed)?|ftl|../ computers
   naked eyes knowingly observe laser radiation wavesingularities; pussible particlesingularities, pluralities, dualities,..
  lever-age
  what does stillness feel like? not everyone's, nor every"-thing"s, a /(sspace|ttime)?/ traveller
+ air molecule walls can absorb(conveyor belt) filtered air molecules, including it's own radiation(assuming it remains intact for the filter); this can be (un)blocked for any /side|edge|corner|../ 
+  hard(externally protective) + soft(internally escapive) for jurassic park bubble rides, hard + hard, soft + soft
+  pollution can be allowed in through the s/firewall/airwall/, but i'd rather double door airlocks, and let everyone else solve xᶠᵒ⁽ᵘ⁾ʳ their own problems they are responsible(v power to self-destruct) for
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
