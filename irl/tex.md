@@ -395,6 +395,7 @@ in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
 obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,..
+ i just need to get me some lip-o-suction; for your -o- face
 court rooms need (/motivational|subliminal/) posters for de-escalation, contempt,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
 they call the military in for australians, but not organised crime (not national security; publicivvies aren't national); intelligences is more concerned c̄ "terrorism" (mostly committing it, while faking it #propaganda)
  it's easy to beat organised crime; just do what they do, and accept you're going to die, but kill as many of them; even one is worth it, and even moreso iff they're p(olice)i(n)g(ang) #rip
