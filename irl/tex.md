@@ -288,7 +288,7 @@ a good way to play; the next games' (shyam)rules depend on the prior probabiliti
   your spy gets -1 distance from my king; maximum total is +5, minimum total is +2
   my spies get +3 distance from your king; minimum total is -1, maximum total is +4
   you must cut off your thumb, iff your total score becomes 108
-  archers are worth -1,111,111,111 (more lower numerals means i'm not lying when i say this was the first number i thought of, and never thought back), and range +6; value = [-37,-0], range = [-3,+7](they can oddly shoot backwards, iff the "forwards" target even exists; otherwise, no trick shots)
+  archers are worth -1,111,111,111 (more lower numerals (no"-thing" is always the truth, and never a lie) means i'm not lying when i say this was the first number i thought of, and never thought back), and range +6; value = [-37,-0], range = [-3,+7](they can oddly shoot backwards, iff the "forwards" target even exists; otherwise, no trick shots)
   we tie iff we have the same number of avatars, after the first blood; we have to have the same avatars, iff we checked, before mated
   toggle en passant, every odd toggle toggles move distance, and en passant range
  my king is checkmated by 16 going on 17; who says it needs to be 88?
@@ -378,8 +378,9 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
   cæsar saving the life of an image-builder was always rigged against the winner, who wouldn't've been saved otherwise; viragatim saves those who don't save themselves, as long as there's no delay ∵ that's just execution ∵ cæsar didn't want to reward them in any (in)conceivable way
    everybody celebrates cæsars' new clothes; for the social engineering,..
     /cæsar(ian; et tu, brute?)|tsar|czar|tzar|csar|../
+     hangman on a blackboard is lynchman, where aave(cæsar) jive is the glossary; now it's a uram ihsayabok!!! :D
   relyable gam(e)-bling; roman helmets v pig badges v black belts
-  every fight requires you to score 100%; physical evaluation, psychological evaluation, psychiatric evaluation, hsc(v equivalent; you have to have a brain that works, even iff i didn't get my tpc, nor could i pass the exam; i'm the exception, and maybe i'll learn iff i ever lose; i'm the exception, and maybe i'll spend more of the prize money on myself to make myself feel better about it #compo), lie detector(,) for shyam rules
+  every fight requires you to score 100%; physical evaluation, psychological evaluation, psychiatric evaluation, hsc(v equivalent; you have to have a brain that works, even iff i didn't get my tpc, nor could i pass the exam; i'm the exception, and maybe i'll learn iff i ever lose; i'm the exception, and maybe i'll spend more of the prize money on myself to make myself feel better about it #compo), lie detector(,) for shyam rules (including corruption$)
   both players must agree to the shyam rules of combat (whatever you're willing to accept, and that's how you're paired; iff you aren't willing to dive into the deep end, you don't get into fight club unless you fight, and the fewer rules are more respected; the audience must be made aware of their role, iff they can be used as projectiles, shields, weaponised limbs,..); game of /life|death/ (some levels are more dangerous #roi) iff legal in that agreed jurisdiction, and groin, eye, spine,..
   iff you say karate (for eg); you get more points for proper stance, proper blocks, full katas,..
   quickies are worth more; can't have them killing brain cells to encourage neurodegenerative diseases, and the like, like in the ground & pound
