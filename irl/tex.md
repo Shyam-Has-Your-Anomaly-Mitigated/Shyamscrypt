@@ -377,8 +377,9 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
   i guess we call them wars iff it's /multi(national|cultural|school|style|..)/; solo becomespy(v spy; fighters pick on someone they can relate to, like ned kelly killing whites),..
   cæsar saving the life of an image-builder was always rigged against the winner, who wouldn't've been saved otherwise; viragatim saves those who don't save themselves, as long as there's no delay ∵ that's just execution ∵ cæsar didn't want to reward them in any (in)conceivable way
    everybody celebrates cæsars' new clothes; for the social engineering,..
+    /cæsar(ian; et tu, brute?)|tsar|czar|tzar|csar|../
   relyable gam(e)-bling; roman helmets v pig badges v black belts
-  every fight requires you to score 100%; physical evaluation, psychological evaluation, psychiatric evaluation, hsc(v equivalent; you have to have a brain that works, even iff i didn't get my tpc, nor could i pass the exam; i'm the exception, and maybe i'll learn iff i ever lose; i'm the exception, and maybe i'll spend more of the prize money on myself to make myself feel better about it #compo)
+  every fight requires you to score 100%; physical evaluation, psychological evaluation, psychiatric evaluation, hsc(v equivalent; you have to have a brain that works, even iff i didn't get my tpc, nor could i pass the exam; i'm the exception, and maybe i'll learn iff i ever lose; i'm the exception, and maybe i'll spend more of the prize money on myself to make myself feel better about it #compo), lie detector(,) for shyam rules
   both players must agree to the shyam rules of combat (whatever you're willing to accept, and that's how you're paired; iff you aren't willing to dive into the deep end, you don't get into fight club unless you fight, and the fewer rules are more respected; the audience must be made aware of their role, iff they can be used as projectiles, shields, weaponised limbs,..); game of /life|death/ (some levels are more dangerous #roi) iff legal in that agreed jurisdiction, and groin, eye, spine,..
   iff you say karate (for eg); you get more points for proper stance, proper blocks, full katas,..
   quickies are worth more; can't have them killing brain cells to encourage neurodegenerative diseases, and the like, like in the ground & pound
@@ -388,7 +389,7 @@ i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all
    i haven't fully figured this out yet (maybe); so just attack the wall, by flying into it, and bounce off; breakfull v breakless #cthd
    volunteers get better quality of life, and priority queued to get in, and ytiroirp to fight thereafter; or maybe $ellout wolunteered
    permanent disability must be an agreed outcome, or you both lose
-   (maybe) it'll be legal to spray & taze iff they forget shyam rules; who needs a ref? it's just an expensive expense; better quality fights get a ref per tier, so they can /gangbang|dogpile|maybe just drop them from above, and the net is just a gladitorial convenience/ the loser(s)
+   (maybe) it'll be legal to spray & taze & tranq & ref &..(tuna-bull) iff they forget shyam rules; who needs a ref? it's just an expensive expense; better quality fights get a ref per tier, so they can /gangbang|dogpile|maybe just drop them from above, and the net is just a gladitorial convenience/ the loser(s)
 he should have (over)compensated their problems, and then apologised s/post-humou(rou)sly/post-hum(our)ously/; vicariously through an australian prime minister (or a council of tribal elders, or whatever; they might just be at each others throats for the (life stinks)"mine", since animal subject research indicates they are as human, and susceptible, as any other alcoholic,.; unless they were initially missionaried into it, and it spread through contagion), after they all fully recovered, and regained their land rights, uluru, dignity(religious, cultural,..),..
 brexit white convicts back to the brits; not me though, i'm the exception (unless i get my throne of gold at the end of the rainbow, and whatever a "sham"rock is; i want to keep my real dick though, so it should be carved out to fit up over, down under; shyamantaka)
 gina rinehart (second richest in australia; i'm the first, 'versally) paid actors to make a video, and then bribed the government; total cost, $22m
@@ -398,7 +399,7 @@ the systematic genocide of the so-called "(super)powerful" all at the same ttime
 in my country there is problem #(tax)sandwich
 
 t(here)i(s)p(roblem)
-obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,..
+obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser for the contagious motivation,..) is good for the (h)indus-trial(z) economy(medical,food,.; (h)indus-tries), and contagious enough to feedback loop the government, buisness owners,.. (organised criminals dealing tobacco suffer from second-hand smoke pollution,..)
  i just need to get me some lip-o-suction; for your -o- face
  processing; i guess that includes industrial food chemistry processes, like /isolates|../ from /centrifuges|../
   this is like feeding plants blood, bone, chemical fertilisers, chemical pesticides,.; veganics is proven game theory optimal, supremacism, dominance,..
@@ -444,6 +445,16 @@ positional particle detectors (/phasal|phaser/ observer paradox phases; sole obs
  air molecule walls can absorb(conveyor belt) filtered air molecules, including it's own radiation(assuming it remains intact for the filter); this can be (un)blocked for any /side|edge|corner|../ 
   hard(externally protective) + soft(internally escapive) for jurassic park bubble rides, hard + hard, soft + soft
   pollution can be allowed in through the s/firewall/airwall/, but i'd rather double door airlocks, and let everyone else solve xᶠᵒ⁽ᵘ⁾ʳ their own problems they are responsible(v power to self-destruct) for
+
+iff you (try to #meditation) think you are worse than you are, then you will be better than you were
+https://youtu.be/ig4yr1YqA9U?t=2583
+aum was too powerful at renounciation; for the sake of the /economy|../, the government used their propaganda machine to destroy it in a panic out of fear, and drugged their leadership, who would've otherwise put on the same usual show of keeping up appearances
+don't underestimate the power of the common man; to think for themselves
+do estimate the power of the government to be run by nam nommoc; abuse of illperceived power
+some say they are a victim to make others feel sorry for them, and buy them a drink(s),.. #basic_psychology
+some are paid actors
+sometimes the govenment just likes to kill their own citizens as test subjects, target practice, fun, justice, spies,..
+did a journalist really leave their shopping bag on the street overnight, or just take a picture, and lie about it? what about before a beggar? what about money? what about organised crime syndicates? japanese are as much as canadian hospitality; it's like saying an irish lass touring australia is australian
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
