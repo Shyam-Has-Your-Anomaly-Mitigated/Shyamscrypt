@@ -416,7 +416,7 @@ obesity(fat,sugar,g(lucose)i(ndex),(ultra)processing,not watching biggest loser 
   /governments|buisnesses|academia/ are organised crime syndicates
   the who was definitive
   $elloutz just want money; it's too easy to bribe
-court rooms need (/motivational|subliminal/) posters for de-escalation, contempt,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
+court rooms need (/motivational|subliminal/) posters for de-escalation, contempt, etiquette,.; vague enough laws to allow for /discrimination|"edge cases"|../, discretion at every level, unaccountable lying to the public (they build walls to imprison the public, and make the public pay for it),..
 they call the military in for australians, but not organised crime (not national security; publicivvies aren't national); intelligences is more concerned c̄ "terrorism" (mostly committing it, while faking it #propaganda)
  it's easy to beat organised crime; just do what they do, and accept you're going to die, but kill as many of them; even one is worth it, and even moreso iff they're p(olice)i(n)g(ang) #rip
   that documentary showcased evidence of code /blue|(green|khaki|..)(\?)/ for killing australians; who needs linguistic analysis, when they openly admit to corruption?
