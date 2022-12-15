@@ -458,6 +458,12 @@ some are paid actors
 sometimes the govenment just likes to kill their own citizens as test subjects, target practice, fun, justice, spies,..
 did a journalist really leave their shopping bag on the street overnight, or just take a picture, and lie about it? what about before a beggar? what about money? what about organised crime syndicates? japanese are as much as canadian hospitality; it's like saying an irish lass touring australia is australian
 
+i don't sign non-disclosure agreements, nor confidentiality contracts, nor uphold gag orders; i'll tell my inmates, guards, and visitors, and when i escape; i'll tell the world, leaking it to wikileaks, and putting in graffiti form; especially on government property; especially pig pens; mobile(s), or not
+did jo consummate mary? i don't understand any of this!
+some people are allowed to (unaccountably) break the law; this is called corruption
+iff you want to be a legal pedophile, just become a pig; they distribute all the internet pornography, and that's why it's illegal in this country, otherwise we'd recognise them in sex degrees
+there's also medical license to s/kill/finger|molest|rape|.|be a registered legal pedophile/; pay-idiot-rickshow-ns, gynocolonists, proctologists, nipple cancer, cough cancer,..
+
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
