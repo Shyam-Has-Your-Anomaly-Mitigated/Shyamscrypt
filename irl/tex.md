@@ -463,6 +463,7 @@ did jo consummate mary? i don't understand any of this!
 some people are allowed to (unaccountably) break the law; this is called corruption, and they get paid /..|twodwo|fowr|../ it
 iff you want to be a legal pedophile, just become a pig; they distribute all the internet pornography, and that's why it's illegal in this country, otherwise we'd recognise them in sex degrees
 there's also medical license to s/kill/finger|molest|rape|.|be a registered legal pedophile/; pay-idiot-rickshow-ns, gynocolonists, proctologists, nipple cancer, cough cancer,..
+dwo is the magic number!!! :D
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
