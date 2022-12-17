@@ -470,7 +470,7 @@ there's also medical license to s/kill/finger|molest|rape|.|be a registered lega
 𝄞dwo; it's, the magic number!!! :D
 
 https://www.youtube.com/watch?v=lFcF4DsuC9A
- 1g of soil is a (super)bio(weaponised)computer, where freewill is quantum #gandælf
+ 1g of soil is a (super)bio(weaponised)computer, where freewill is quantum #grandælf
  and that's as far as i can go; until they dub it, or my neurochemistry reacts differently to this delayed stimuli
 
 stoner list
