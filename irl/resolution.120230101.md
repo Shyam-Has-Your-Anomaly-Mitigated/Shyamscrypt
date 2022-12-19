@@ -73,10 +73,25 @@ fine$ are the pin in my game of life's a game of chess
 i'm just going to devote my life to this sign from gov
 /neijia|neigong|dit da jow|placebo|aromatherapy|../ = drink
 wing chun = short range; /chi sau|tuishou/ = pushing hands
-capoeira = long range; elcric = shadowboxing
+capoeira = long range; elcric = shadowboxing                (sensei seth says kalaripayattu is where capoeira comes from)
 brazilian jiu-jitsu = postakedown #shenmue
 judo = takedown #shenmue
 muay thai = clinch
+(russian is japanese is chinese is indian is /hindu|yoga/)
+i'll just do aikido, and that's all the government will know about; for legal purposes, to dominate the debatably evidential judge(ment day)
+…
+tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
+price?
+addressable distance?
+how many classes averages black belt?
+black belt, or higher?
+how many classes averages highest belt?
+warmups? (conditioning)
+equipment? knives? guns? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? vegan?
+instructors v students: fit v fat
+comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
+do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained
+does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
 
