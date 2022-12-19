@@ -77,7 +77,7 @@ capoeira = long range; elcric = shadowboxing                (sensei seth says ka
 brazilian jiu-jitsu = postakedown #shenmue
 judo = takedown #shenmue
 muay thai = clinch
-(russian is japanese is chinese is indian is /hindu|yoga/)
+(russian is japanese is chinese is indian is /hindu|yoga/, where everyday is the day of the dead)
 i'll just do aikido, and that's all the government will know about; for legal purposes, to dominate the debatably evidential judge(ment day)
 …
 tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
