@@ -1,3 +1,4 @@
+```
 The only reason I stopped at $50 last time, was because I lost it in 15m; I started considering it as a form of entertainment, but now one of my strats is to throw $1 at the last number on the board, and keep hitting that same number until it hits; I think it's about $1 per minutes worth of entertainment value, and I've won big doing that, but I was placing $5 per spin, because that's the minimum outside bets, and I wasn't thinking, until it was too late, but it paid off, until I started more than one number at a time.
 
 I'm thinking about alternatives; iff you have any ideas? After my back (hopefully) heals, and my life finally returns to some degree of normalcy; I'm thinking about martial arts. What do you think of these?
@@ -71,14 +72,15 @@ I don't get paid enough to care about contributing taxes to my own income, that 
 now i know what to spend my $10,000 on; a wooden dummy
 fine$ are the pin in my game of life's a game of chess
 i'm just going to devote my life to this sign from gov
-/neijia|neigong|dit da jow|placebo|aromatherapy|../ = drink
+/neijia|neigong|dit da jow|placebo|aromatherapy|../ = drink (hard core king gong)
 wing chun = short range; /chi sau|tuishou/ = pushing hands
-capoeira = long range; elcric = shadowboxing                (sensei seth says kalaripayattu is where capoeira comes from)
+capoeira = long range; elcric = shadowboxing                (sensei seth says kalaripayattu is where capoeira comes from; but /capoeira|(wing chun|jk)/do not take eyes off the closer /enemy|human (shield|wæpon)/)
 brazilian jiu-jitsu = postakedown #shenmue
 judo = takedown #shenmue
 muay thai = clinch
-(russian is japanese is chinese is indian is /hindu|yoga/, where everyday is the day of the dead)
+(russian is japanese is chinese is indian is /hindu|yoga|sanskrit|shyam/, where everyday is the day of the dead)
 i'll just do aikido, and that's all the government will know about; for legal purposes, to dominate the debatably evidential judge(ment day)
+ this is like s/working for the dole/studying sanskrit/, instead of starting up my tech giant for world domination ∵ i'm fine c̄ it; they want me to give a shit about non-mandatory elections, and non-mandatory courts
 …
 tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
 price?
@@ -91,7 +93,7 @@ equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? b
 instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
 comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
 do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained
-does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
+does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
 
