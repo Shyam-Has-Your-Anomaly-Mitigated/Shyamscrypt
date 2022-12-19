@@ -87,7 +87,7 @@ how many classes averages black belt?
 black belt, or higher?
 how many classes averages highest belt?
 warmups? (conditioning)
-equipment? bats? knives? machetes(ilat)? guns? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? vegan?
+equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? vegan?
 instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
 comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
 do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained
