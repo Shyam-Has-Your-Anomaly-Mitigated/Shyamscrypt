@@ -137,3 +137,7 @@ I'm not a robot: (auto; i haven't done one in ages, so my neural net works)
 
 fast & furiously puppeteering the government; i only need to send all the water trucks away from the banks #fight_club
 bioweaponised gas leaks; vegan shit(ualities; double slit(ualities))
+
+
+
+mccomaḥ will die ∴ i must dotadiw, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down; following, the prometheus school of running away; after haka, followed by kiai)
