@@ -140,4 +140,4 @@ bioweaponised gas leaks; vegan shit(ualities; double slit(ualities))
 
 
 
-mccomaḥ will die ∴ i must /dotadiw|aladdin/, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down; following, the prometheus school of running away; after haka, followed by kiai)
+mccomaḥ will die ∴ i must /dotadiw|aladdin|a lad in (it|f?w)?/, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down; following, the prometheus school of running away; after haka, followed by kiai)
