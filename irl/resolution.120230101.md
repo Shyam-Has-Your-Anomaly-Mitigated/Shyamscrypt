@@ -89,7 +89,7 @@ how many classes averages black belt?
 black belt, or higher?
 how many classes averages highest belt?
 warmups? (conditioning)
-equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? vegan?
+equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? sticks? vegan?
 instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
 comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
 do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained
@@ -143,3 +143,5 @@ bioweaponised gas leaks; vegan shit(ualities; double slit(ualities))
 mccomaḥ will (apparently)die(apparently) ∴ i must /dotadiw|aladdin|a lad in (it|f?w)?/, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down; following, the prometheus school of running away; after haka, followed by kiai #shenmue)
 i will memorise both partsons of egeneḥ; hopefully before the placement test for sanskrit 3, or i'll just wing(chun) it
 the book test is the story of my life; i went for the money (losing it all to the ca$ino), and now i fall back on the book that catches me (i cried, and then they gave me the money; maybe mccomaḥ dies, or i don't get into sanskrit /9|10/, but i get whatever i want; i need to (re)consult the kbs of my vedic astrology)
+miranda is the only self-defence i need, before a licensed lawyer; whose legal advice, i'll ignore as government propaganda bio(weaponised)machined social engineering
+i've settled for yoga; my fractured spine, /kidney|bladder|../ stone (i remember reading it causes lower back pain, but i can't find it, and can't be fucked; drinking lots of water is the cure), or surprise for you that i've got (uncle huggie thinks it might be a bulging disx; i looked it up as a hernia; spinal disc herniation), or whatever this is; is the sign as a symbolic gesture from maya #geT_cuddled
