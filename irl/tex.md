@@ -369,7 +369,7 @@ human sacrifices to me are the most acceptable iff they are 100%; virgins, girls
  americans,.; how do i /transition(\?)|re-education camps|missionary positions|../ animal hunting? where's sharmie?
 i'll fold you all(,) up, and out of my balls; bending you over my knee, butt all for forgetting me
  avatar = arjuna, guru = krishna; my game of life is a game of snakes & ladders
- game of bones
+ game of bones or dominance(religous, genetic sequencing, classes(weight, mass, volume, height, uppereach, lowereach,..), belt, style, minimum training hours (private lessons, public lessons, selfie deliberate practice, total(s(tatistix)),..),..) c̄ game of bones, game of natural selection (no"-thing" butt what you're born c̄; don't bring a belt to a gun(/i have|grow/ a pair) fight), x(game)z,..
   you get paid minimum wage, until you lose, or /can't|don't want to|../ fight anymore; good luck $haring, image-building,..
   all profits goto making my country great again; to avoid charitable money laundering (you don't get to choose)
   you fight until a broken bone, or you resign, and go home; severence packages are contractually waived
