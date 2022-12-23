@@ -142,7 +142,7 @@ bioweaponised gas leaks; vegan shit(ualities; double slit(ualities))
 
 
 
-mccomaḥ will (apparently)die(apparently) ∴ i must /dotadiw|aladdin|a lad in (it|f?w)?/, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down; following, the prometheus school of running away; after haka, followed by kiai #shenmue)
+mccomaḥ will (apparently)die(apparently) ∴ i must /dotadiw|aladdin|a lad in (it|f?w)?/, and he must survive 12026; then i can train to cut trees like in minecraft, and maybe free trapped souls iff i interpretranslatenlightenment krishna re-leasing the sons of kuvera to support it; there's always bamboo,.. (i also want to jackie chan down trees, before i minecraft them down (shyam in book); following, the prometheus school of running away; after haka, followed by kiai #shenmue)
 i will memorise both partsons of egeneḥ; hopefully before the placement test for sanskrit 3, or i'll just wing(chun) it
 the book test is the story of my life; i went for the money (losing it all to the ca$ino), and now i fall back on the book that catches me (i cried, and then they gave me the money; maybe mccomaḥ dies, or i don't get into sanskrit /9|10/, but i get whatever i want; i need to (re)consult the kbs of my vedic astrology)
 miranda is the only self-defence i need, before a licensed lawyer; whose legal advice, i'll ignore as government propaganda bio(weaponised)machined social engineering
