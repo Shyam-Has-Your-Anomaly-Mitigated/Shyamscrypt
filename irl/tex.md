@@ -473,6 +473,14 @@ https://www.youtube.com/watch?v=lFcF4DsuC9A
  1g of soil is a (super)bio(weaponised)computer, where freewill is quantum #grandælf
  and that's as far as i can go; until they dub it, or my neurochemistry reacts differently to this delayed stimuli
 
+https://www.kmart.com.au/product/adjustable-back-support-42914570/
+this is not ergonomic; it's designed by s/reverse/backwards/ engineers, and there's no clinical trials, butt there's bonus karma for what i just went through; i'll give everyone responsible, in any capacity, a taste of their own medicine, and i've got a (/herniated|bulging/) surprise for you; you corner cutting cunts
+ i didn't last more than 3 hours; probably less than too
+ iff it don't fit, don't wear it;..
+the acupressure is just a bed of nails knock-off; it's like a wooden dummy made of rubber, that trains babies to bite
+ i'll see how this does over ttime; i have no"-thing" to lose, butt you're all being tested
+exercise equipment is no good; models never used it to get to where they are in life, the (grand scheme of "-thing"s; like the) multiverse, and every"-thing
+
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
