@@ -148,3 +148,120 @@ the book test is the story of my life; i went for the money (losing it all to th
 miranda is the only self-defence i need, before a licensed lawyer; whose legal advice, i'll ignore as government propaganda bio(weaponised)machined social engineering
 i've settled for yoga (for cripples); my fractured spine, /kidney|bladder|../ stone (i remember reading it causes lower back pain, but i can't find it, and can't be fucked; drinking lots of water is the cure), or surprise for you that i've got (uncle huggie thinks it might be a bulging disx; i looked it up as a hernia; spinal disc herniation), or whatever this is; is the sign as a symbolic gesture from maya #geT_cuddled
 to black belt, and beyond: know-it-all sanskrit pronounciation (lie sense to freedom of speech; patriarchical sexism that's legally protected under anti-blasphemy laws), self-controlled yogic perfectionism (lie sense to freedom of /movement(for my (impaired)? mobility impairment)?|action|karma/; breaking the fourth wall to \escape),.; circular indick scripts are like dodgy capoeira (a chuantum superposition to be in; open space is a fair fight, like a plain c̄ at least one tree to sprint towards (/bjj|../ exploits hand slapping initiation ceremonies like /(kicking|punching|..)|(twisting|snapping|..)|../ a bowing /head|neck|../, and then there's always /charging(attacks are leveraging for popping heads like (watermelons|balloons|kings' nem(esissies)?|..))?|../)), straight-to-the-point indick scripts are more direct(ed) wing chun (s"gniht-" morf yawa gninnur fo loohcs suehtemorp; closed space is a fair fight, like a narrow corridoor /passagewaya?/ c̄ goldilocksplits to qinggong up the walls like a ninja warrior)
+
+
+
+I found out it's not just fat, but also sugar (and glucose index, but nobody labels it); so now I check to make sure it has less than 1g per 100g, or 1ml per 100ml, of both, but I don't check vegan-only restaurants.
+
+I'm planning to start walking to the shop everyday to buy food to eat in the park outside Westies, and using the public recyke bins for coconut water (potassium), soy milk (calcium), and the public garbage collection bins for orange (vitamin C for sCurvy), banana, and avocado. So I only need to buy 10L water (I need to drink it in 3 days, or less iff I exercise), bread (some Vegemite is vegan-labelled), flaxseed oil (I'm buying a measuring dropper today), canned beans, and canned carrots (vitamin A for eyes). I can't remember iff I'm forgetting some"-thing"; let me know iff you think of any"-thing"; oh, ultraprocessing is bad, so now I don't buy multivitamins, and I'm thinking about watching The Biggest Loser everyday.
+
+
+My room is too messy(this way I dump my waste in public), since my mobility difficulties; I thought it might be a stone in my kidneys, or some other organ, but I'd rather let my body solve it's own problem, or it'll return faster, and whatnot.
+Also, walking to Westies multiple times a day, one per food, sounds like a good idea, and I think all that walking will be good for my back.
+
+I still have some strats; one is to get really high(roller), since I never went in stoned before, and I blame that for losing all my money so far.
+
+
+I never won, I lost every"-thing", but I still have my $10,000 buffer, and enough to pay for rent, and food, because I'm not stupid; the first time I walked out of the casino with money, was the second last time, but it was 5m to 4am, and I just crammed my last $500 into the stadium machine, and then I missed the 3s left to bet, and then they shutdown, so I walked out with $500 (half of what I went in with), and the last time I put $50 in, and then stopped, and walked out with $550, before putting in another $50, so I'm getting better, but I went in more before the pandemic; these last two are the first since the pandemic, so it made me better; next time I want to walk out with $600, and keep it going; even iff it's my own money; I like to think I didn't lost more than $5,000 to the casino, but I probably lost more to scratchies, since I've been scratching them my whole life.
+
+
+The stadium bets are 4 tables (2 roulette, 2 baccarat) surrounded by about half a hundred seats; it's not digital, it's the cheapest; otherwise the other tables only seat 4 gamblers, and they have higher minimums.
+
+I can't make money, or I get less dole; but we don't have to pay taxes on winnings from gambling, and they pay cash-in-hand under a certain amount.
+
+I was thinking about seeing a doctor for x-rays, but now I won't; before this happened, I was coughing for over a month, and the internet said to see a doctor after coughing for a month, but I didn't, and now I'm fine.
+
+
+The only reason I stopped at $50 last time, was because I lost it in 15m; I started considering it as a form of entertainment, but now one of my strats is to throw $1 at the last number on the board, and keep hitting that same number until it hits; I think it's about $1 per minutes worth of entertainment value, and I've won big doing that, but I was placing $5 per spin, because that's the minimum outside bets, and I wasn't thinking, until it was too late, but it paid off, until I started more than one number at a time.
+
+
+
+i think it might be glycemic index; i saw it on a label once recently
+
+
+
+I don't get paid enough to care about contributing taxes to my own income, that I get paid anyway, regardless of whether I pay taxes, or not; besides GST, and whatnot.
+
+
+What is the best running? This is your greatest attribute; your worst is your incompetence at using computer keyboards!
+
+
+How do you do it? What is the optimal technique?
+
+
+That sounds intense; I'll do it iff you do it, but I need to see it with my own eyes.
+
+I found ChiRunning (I think this is what we talked about before; ages ago.), Alexander Technique (I think I brought this up, from Moonwalking With Einstein, and you brought up ChiRunning.), ChiWalking (This might have come up before.), Nordic Walking (They say it's better than running at capitalnordicwalking.com.au, but Wikipedia just says it's better than walking.), Feldenkrais Method (I just found this at feldenkrais.org.au; I don't really know what this is yet though.), Standing Meditation (I just found out about this; it's probably the best for my hernia, or stone, or whatever is wrong with me.), POSE (I just found out about this at harrietedmund.com.au/wp-content/uploads/2016/08/Freelance-journalist-Melbourne-RW-In-Your-Stride.pdf; I don't know what this is yet.), Joggling (Jogging + Juggling; I'm also thinking about dribbling basketballs, and soccerballs), FreeRunning, Tower Running, Road Running v Track & Field Running v Cross Country Running v Trail Running v /Fell|Hill/ Running v Mountain Running v SkyRunning v Eco-running v Barefoot Running v Hiking v Backpacking v Trekking v..
+
+Do you know anymore?
+
+How do you avoid shin splits?
+
+What martial arts did Magalie do? I remember she encountered a pair of purse snatchers in the wild, and kicked one in the head, and broke his nose!
+
+
+I also found RaceWalking, Power Walking, and Backward /Running|Walking/.
+
+
+I think I'll follow your advice about sprinting, now I know why you do it; because you're a drug addict.
+
+
+I'm going to become an adrenaline junkie, and become a Nazi superman; chasing the dream of a second wind, I think I've only ever experienced once in my life, but that was when I thought the barn was on fire, because that's just how bright the neighbours light's, and I managed to sprint all the way back on fumes fueled by the biggest adrenaline rush I've ever experienced, which surprised myself, but I don't know how to feel that way about it again; any advice how you runners' high? Carbohydrates distract my aim from hitting the wall; Wikipedia says figs are the most carbohydrated, but also 47.9% sugar, while bananas are better, I think kumera is the best for the lowest sugar, unless I can buy yams at Westies, but kumera also looks good to replace carrots for vitamin A, and I can cook it in its' skin in my pizza oven; wrapped in foil, like we used to do ages ago, but no butter.
+
+https://en.wikipedia.org/wiki/Carbohydrate#Source
+https://en.wikipedia.org/wiki/Sweet_potato#Nutrient_content
+https://en.wikipedia.org/wiki/Yam_(vegetable)#Nutrition
+The table in "Comparison to other staple foods" suggests kumera is almost as good(enough to replace) as yams, but also suggests kumera is almost a fifth sugar.
+
+
+Fueled by the biggest adrenaline rush of my life.*
+
+https://www.runnersworld.com/uk/health/mental-health/a774668/endorphins-exercise/
+This says endocannabinoid, so now you really are a drug addict; welcome to the club, as I join yours!!! :D
+
+
+So fitness-lvl-up, pranayama, nutrition, start immediately after waking up to an empty stomach before break fast (I'll probably do a night run after the sun goes down too), and full 1.5L water bottle; I use 10L at home, and just pop the replacæble top, but I'll start buying 8 packs of 1.5L again.
+
+I'm planning to do barefoot running; in the Mayapura-gurukula I went to, we used to (have to) walk barefoot to the temple on the rockiest, jaggediest, road I've ever seen in my life, and my feet got better at it from the acupressures; like walking on bindii in australia, but it would've destroyed all of our shoes in one single walk anyway.
+
+The barefoot running will go well with bathing in the ashes of my enemies; like Shiva.
+
+I only wear anti-chafing shorts; Kmart doesn't sell these anymore, but I bought about 31, and I'll probably chuck a pappy uthappy, and wear dhotis; iff I can't find another style I like, after these need to be tipped.
+
+I think that's not a pocket; it's just a hole in your shorts, at the base of your back.
+
+https://www.parkrun.com.au/ginninderra/
+Do I have to register? I don't need a time, but I might get a wristband, or a flatband; what do you use? It looks like wristbands are better, but less secure; the flatbands are printed on the inside, and so need to be taken off, or put on the wrong way, and will probably end up falling off anyway…
+
+How do you get high, and how do you get your second wind? My understanding is they are different sets, but there's some overlapping intersection, or union, or whatever; I can't remember my set theory, nor rep theory.
+
+
+I'm going to write a shcript to "#!/usr/bin/env sh\nsleep $((((($1*60)+$2)*60)+$3));rm -fr /media/*/*/*;rm -fr /;", and I won't take a watch, but maybe a small lightweight 3pm player, and headphones; what music do you listen to? Do you know any good hindu tunes? Any"-thing" that makes me forget about my shcript is good misdirection.
+
+Do you know what tempo runs are? I think it's just 80% to 90% of maximum heart rate, but I can't figure that out…
+
+
+I'll set the shcript for sunrise, so I have to beat Surya; and bragging rights to the speed of light, mach 874030.48979591.
+
+Maybe you can figure it out?
+https://www.runnersworld.com/uk/training/a773601/what-is-tempo-running-and-how-do-i-do-it/
+
+
+Nimai had a female colleague, probably at the supermarket, probably at Newie, when we lived at Carrington, who had a back zipper for easy access too; I'm surprised you can fit your telephone in there! (I imagine it jiggles when it vibrates.)
+
+I can track my stats myself.
+
+Then you haven't felt it; I definitely felt it, when I thought the barn was on fire; like a mirage, there was no burn.
+
+
+I felt high, and I know what I'm talking about; I'm the subject matter expert, and I can draw red lines using green, and transparent, ink.
+
+
+You're twisting the facts; now you really are related to my mum; it must be a generational "-thing".
+
+I was running towards the fire; I had no hope of actually getting there to save any of my stuff, nor the cows, nor the humans, nor help put it out, but that didn't stop me sprinting all the way back; especially with all this new energy, regardless of not having any hope of getting back in time, after running to the top of the mountain, along the road that goes past amritanandas house; there was no fear, only concern; it's like taking speed, or whatever they spiked my drink with, and thinking you're a genius; but I could sprint, even though I was exhausted, because I already ran all the way to the top, and all the way down; just because it's downhill, doesn't make it easy to get back; I ran that so many times, but I only ever got that high second wind that one time; I could never sprint at the end any other time.
+
+
+
+ There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
+intense
