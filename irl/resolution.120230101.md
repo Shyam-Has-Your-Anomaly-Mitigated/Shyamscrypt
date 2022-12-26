@@ -265,3 +265,5 @@ I was running towards the fire; I had no hope of actually getting there to save 
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
+
+inks can change colour as they dry; expert opinion
