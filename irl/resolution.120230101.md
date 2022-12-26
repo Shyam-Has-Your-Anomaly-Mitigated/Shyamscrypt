@@ -267,3 +267,5 @@ I was running towards the fire; I had no hope of actually getting there to save 
 intense
 
 inks can change colour as they dry; expert opinion
+i need to add this to my personal docommentation, the next ttime i update it; this is like safety + performance + productivity
+maybe @piet
