@@ -268,6 +268,20 @@ You need to learn how to datamine, using a controlled F search strat; besides to
 "that was when I thought the barn was on fire, because that's just how bright the neighbours light's, and I managed to sprint all the way back on fumes".
 
 
+There's no excuse for your own intellectual inadequacies; challenge your neuroplastic muscle memory to learning some"-thing" as easy, and useful, as touch typing, or get psychological evaluation, or get psychiatric evaluation, or checkup on your neurodegenerative diseases, brain cancers, brain tumors, foot cancers (Bob Marleys' foot cancer spread to his head),..
+
+Think about it like this guys' physical health (he wants to live a little), and apply it to your mental health: https://www.youtube.com/playlist?list=PLaevADMuI9-EifkgKDYIAP2SQ8vLQTPJl
+
+I got my entire degree from ganja (endocannabinoids suggest ganja is not only spiritually sacred, but also naturally healthy; our genetic schizophrenic history is as fawlty as any other history, and as fawlty as all of the medical industry; except for ayurveda, but sanskrit is more impossible to understand than any other form of peotry, so only the original source is as reliable as Aladdins' Lamp, and all other commentaries should be ignored like the rest of the treasures in the Cave Of Wonders, or you'll become a conditioned soul); you only ever helped me with one "-thing", but you only gave me the answer, and I didn't really learn much from it (except that Simons' spaghetti code had some redundancies I nearly didn't even bother to datamine; until I came to my senses, and cleaned it up until they became visible; otherwise I wasn't even going to use it, or it would've been obvious that I cheated 10% of the course; the guy running the course only posted in the forums about it to rub it in our faces, by being annoyingly mysterious about it, and not answering any of the questions).
+
+I can't run until my back gets better; so far, every"-thing" I try just makes it worse!
+
+https://www.kmart.com.au/product/adjustable-back-support-42914570/
+I didn't even last 3 hours, and nearly died getting it out from under me; this set me back a lot.
+
+Mentholatum' Ice Gel was almost as bad; I won't be using their spray, but I'll try Tiger Balm next; after my back gets better again, enough for me to sheer will power into the fray.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
