@@ -262,6 +262,12 @@ You're twisting the facts; now you really are related to my mum; it must be a ge
 I was running towards the fire; I had no hope of actually getting there to save any of my stuff, nor the cows, nor the humans, nor help put it out, but that didn't stop me sprinting all the way back; especially with all this new energy, regardless of not having any hope of getting back in time, after running to the top of the mountain, along the road that goes past amritanandas house; there was no fear, only concern; it's like taking speed, or whatever they spiked my drink with, and thinking you're a genius; but I could sprint, even though I was exhausted, because I already ran all the way to the top, and all the way down; just because it's downhill, doesn't make it easy to get back; I ran that so many times, but I only ever got that high second wind that one time; I could never sprint at the end any other time.
 
 
+You need to learn how to datamine, using a controlled F search strat; besides touch typing.
+
+---- On Mon, 26 Dec 2022 00:57:25 +1100 Shyam Nath <shyam@shyam.id.au> wrote ---
+"that was when I thought the barn was on fire, because that's just how bright the neighbours light's, and I managed to sprint all the way back on fumes".
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
