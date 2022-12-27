@@ -293,3 +293,13 @@ maybe @quine; i should finish the one i started, and put it on radical, but i th
 
 transparent layers are implicit identities
 green channel is almost always used these days; need to mfg a new display to `rm blue` (is it the channel v muxing?)
+
+
+
+upon further s/analysis (i don't know enough sanskrit to study jyotisha yet)?/inspection/…
+"strengthen his imaginative power" (imagination land), and "sense of the romatic + beautiful" (tipped tip$ from (2)cent$), probably mean porn (bds&m); then it makes sense to distance myself away from my mother
+"He will develope great inclination to religion of an elevated or mystical nature." = gopa of new gokula
+"He will recieve high education" = b.it @rmit (enginerring mathematics @unisa)
+"and will be taken to occult research" = scotsmans' sanskritic s/prophecies/soothsaying|second sight|(yijing(ed)?)?sortilege/ @anu
+"and secret methods of experimental science." = m.it @unsw
+now i get famous (good name, but not great name; yet(oh(gudhi); i'm going to(g(h)et)to kill a (phussyḥ)tiger‽‽‽ :D)), then married(or whatever that word is), and i'm already passed 31, finally i get the money;(why)so(why)long(why)after(why)the(why)book(vvhaa)? #iwi(,)igi #iwi(7)giwi
