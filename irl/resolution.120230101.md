@@ -303,3 +303,7 @@ upon further s/analysis (i don't know enough sanskrit to study jyotisha yet)?/in
 "and will be taken to occult research" = scotsmans' sanskritic s/prophecies/soothsaying|second sight|(yijing(ed)?)?sortilege/ @anu
 "and secret methods of experimental science." = m.it @unsw
 now i get famous (good name, but not great name; yet(oh(gudhi); i'm going to(g(h)et)to kill a (phussyḥ)tiger‽‽‽ :D)), then married(or whatever that word is), and i'm already passed 31, finally i get the money;(why)so(why)long(why)after(why)the(why)book(vvhaa)? #iwi(,)igi #iwi(7)giwi
+
+
+
+drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
