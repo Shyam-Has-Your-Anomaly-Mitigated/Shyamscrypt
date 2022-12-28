@@ -307,3 +307,5 @@ now i get famous (good name, but not great name; yet(oh(gudhi); i'm going to(g(h
 
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
+bee acupuncture; not only for plants
+i glimpsed into the fourth dimension c̄ diamond dice; breaking the fourth wall
