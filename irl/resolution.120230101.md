@@ -282,6 +282,11 @@ I didn't even last 3 hours, and nearly died getting it out from under me; this s
 Mentholatum' Ice Gel was almost as bad; I won't be using their spray, but I'll try Tiger Balm next; after my back gets better again, enough for me to sheer will power into the fray.
 
 
+In the beginning, Prabhupadas' Club exclusively allowed ganja; it's common knowledge that all living ISKCON gurus have ganja experience, so it's a mandatory requirement now.
+
+What Yoga? That can mean literally any"-thing"; in the grand scheme of Sanskritic poetry. Will Bhakti Yoga, or Hasya Yoga, or Yoga Nidra, or Milam, or Tummo, strengthen my back? Hot Yoga v Himalayan Yoga? How (in)frequently should I do it? Studying Sanskrit is Yoga! Otherwise there's always HeavyWeight Yoga… Butt Naked Yoga is the only way!
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
