@@ -307,6 +307,11 @@ ISKCON is controlled by hippies who couldn't get other easy jobs ∵ drug addict
 To summarise your life (let me know iff I missed any; now that I'm profiling you); can't touch type, can't perform controlled F search patterns, war memorials, war films, and trannies. You might be interested to know; Mohini is one of Vishnus' female avatars (not typically included in Dashavatara), Maheshwar is one of Shivas female avatars, and I haven't found any of Brahmas' female avatars yet, but I'm sure they exist.
 
 
+It might interest you to know;*
+
+I think Prabhupada wrote somewhere; wise sages want to become gopis in their next life, and maybe some"-thing" about conjugal L-worders.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
