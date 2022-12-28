@@ -482,6 +482,10 @@ the acupressure is just a bed of nails knock-off; it's like a wooden dummy made 
 exercise equipment is no good; models never used it to get to where they are in life, the (grand scheme of "-thing"s; like the) multiverse, and every"-thing
 this is bribed by the medical industry; same as fawlty tefloned rice cookers, /vaccines|masks|gloves|swabs|vials|../, carcinogenic meat, ultraprocessing, sugar(dental2), mattresses, pillows, shellacum, introducing cockaroaches (like syphillus) into homes built for them (as iff asbestos wasn't enough; cockaroaches survive like tardigrads),..
 
+sanskrit ice temple @himalaya @antartica
+the environment radiates atmosphere #healthiest
+using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
+
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
