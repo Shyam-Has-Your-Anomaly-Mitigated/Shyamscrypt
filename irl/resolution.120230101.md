@@ -287,6 +287,17 @@ In the beginning, Prabhupadas' Club exclusively allowed ganja; it's common knowl
 What Yoga? That can mean literally any"-thing"; in the grand scheme of Sanskritic poetry. Will Bhakti Yoga, or Hasya Yoga, or Yoga Nidra, or Milam, or Tummo, strengthen my back? Hot Yoga v Himalayan Yoga? How (in)frequently should I do it? Studying Sanskrit is Yoga! Otherwise there's always HeavyWeight Yoga… Butt Naked Yoga is the only way!
 
 
+Ganja is as sacred as Tulasi is as sacred as Lotus; this is indisputable, and I think Tulasi can get us high, the same as the others, but Ganja needs to be prepared, and I'ven't tried Lotus yet.
+
+I'm not initiated, so I'm a free spirit; free to do whatever I want, and fiercely uncontrollable by others.
+
+I don't think much of ISKCON, and neither did Prabhupada; there's plenty of evidence. I consider ISKCON corrupted by the governments, and other religions; mostly from it's point of origin, just like Christianity is controlled by the Romans. Prabhupada is the only reliable part, and parcel, of ISKCON; only the /books|editions/ he personally authorised are worth reading (bookchanges.com; they waited a decade after he died, then changed his books, and I was born a decade later; you have to look inside the second edition of the Bhagavad-Gītā As It Is just to see iff it's the second edition). Otherwise ISKCON is just a whorehou$e; before I left the farm, I was sitting outside the temple, and all the other devotees came, and they talked about how nobody was on the roster, and nobody wanted to do it, and the time came, and went, and nobody took the initiative, and nobody got paid for it; it was Krishnas' arrangement for me personally, and that was one of the final straws. I was milking all those cows for free, until the other devotees complained about it; I accepted it as Krishnas' arrangement, but the temple president was reluctant to give me any"-thing"; I shouldn't've had to even ask for it, but I saw this as Krishnas' arrangement for me to leave. Iff you look up how Balaram Mridanga Khols were invented; even Prabhupadas own personal instructions were duefully dutifully ignored by the temple president for as long as possible, and he was well aware of it.
+
+Iff I summarise your life, frankly, it worries me.
+
+Which exercises do you have in mind?
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
