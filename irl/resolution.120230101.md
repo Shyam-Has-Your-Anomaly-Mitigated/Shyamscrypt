@@ -304,6 +304,9 @@ We must accept the words of our guru as no different than Krishnas; iff the guru
 ISKCON is controlled by hippies who couldn't get other easy jobs ∵ drug addicts get criminal records, and I used to work with them at the markets; all manual labour jobs are dominated by excons.
 
 
+To summarise your life (let me know iff I missed any; now that I'm profiling you); can't touch type, can't perform controlled F search patterns, war memorials, war films, and trannies. You might be interested to know; Mohini is one of Vishnus' female avatars (not typically included in Dashavatara), Maheshwar is one of Shivas female avatars, and I haven't found any of Brahmas' female avatars yet, but I'm sure they exist.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
