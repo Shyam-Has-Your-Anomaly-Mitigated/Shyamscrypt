@@ -301,6 +301,9 @@ Which exercises do you have in mind?
 We must accept the words of our guru as no different than Krishnas; iff the gurus of ISKCON act in defiance of their own spiritual master, then I can not follow any of them to the Yamadutas, nor their book changes; no matter how they attempt to defend their karma.
 
 
+ISKCON is controlled by hippies who couldn't get other easy jobs ∵ drug addicts get criminal records, and I used to work with them at the markets; all manual labour jobs are dominated by excons.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
