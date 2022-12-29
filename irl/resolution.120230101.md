@@ -361,7 +361,7 @@ off c̄ her head; alice in imaginationland
 jumping into my floo; harry pottery
 
 romans control christians
-egyptians control jews
+greekœgyptians control jews
 muhammad is an pagan arabian name
 
 
