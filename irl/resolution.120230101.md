@@ -343,6 +343,9 @@ I used to think my birthmark, the one that has three dots on my forærm, was Jag
 I have no"-thing" to hide; she's not the only one I'm going to kill on sight without hesitation.
 
 
+Anyone who is exposed to my words; that includes the messages I've sent, pending ROIs.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
