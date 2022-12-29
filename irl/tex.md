@@ -487,6 +487,7 @@ my intelligence can solve captchas, but i don't want to contribute to their inte
 sanskrit ice temple @himalaya @antartica
 the environment radiates atmosphere #healthiest
 using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
+https://youtu.be/TILjzuBGkRc
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
