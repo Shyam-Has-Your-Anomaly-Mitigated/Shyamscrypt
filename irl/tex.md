@@ -484,6 +484,8 @@ this is bribed by the medical industry; same as fawlty tefloned rice cookers, /v
 
 my intelligence can solve captchas, but i don't want to contribute to their intelligence; just crack their servers instead
 
+observer paradox proves quantum measurements r flipped (like cross-eyed vision) r neither r..
+
 sanskrit i(s)c(ooled)e(lectr(on)ically) temple @himalaya @antartica
 the environment radiates atmosphere #healthiest
 using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
