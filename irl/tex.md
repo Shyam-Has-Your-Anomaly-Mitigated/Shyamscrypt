@@ -488,6 +488,7 @@ sanskrit ice temple @himalaya @antartica
 the environment radiates atmosphere #healthiest
 using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
 https://youtu.be/TILjzuBGkRc
+ not only for gas leaks; also for dealing ganja,..
 
 stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
