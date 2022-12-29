@@ -315,6 +315,18 @@ I think Prabhupada wrote somewhere; wise sages want to become gopis in their nex
 I was happy milking cows for free; doesn't change Krishnas' arrangements for me to land on studying Sanskrit, after getting my degree (bachelor of information technology; Sanskrit is information technology), and almost getting the money that would've corrupted me as technology to Arjuna (BTW, he invented trannies; I don't know anyone else who became a tranny before him) (BTW, his teachers are the source of all martial arts; this is where Chinese whispers come from, where I've logged quantum observations of the remnants of full moves outside of Yoga, but now 99% of the styles are watered down so much that it's almost unrecognisable, and the handful I've witnessed are like how Shaolin Buddhists learned from illustrations, until an abbott learned from the words, and returned to defeat all of them; how to kill in one move). I passed the book test in the same way; I went for the money, and Krishna pulled me back (it looked like I fell backwards onto the book; Krishnas' arrangement), and caught me. Now I'm being taught by The Scotsman, who I consider sober; as Prabhupada did before me (different Scots though; probably). How are we Irishmen to the we Scots? Is it like England, and France?
 
 
+My Vedic astrologer tells a different story; I attached his full analysis.
+
+I remained away from my mother.
+"He will develope great inclination to religion of an elevated or mystical nature." = The Gopa Of New Gokula (I am The Gong of transcendental sound vibrations.)
+"He will recieve high education" = B.IT @RMIT (engineering mathematics minor @UniSA)
+"and will be taken to occult research" = Scotsmans' Sanskritic Second Sight @ANU (I'll open my third eye when I become a fully qualified mystic Yogi; fluent in Sanskrit.)
+"and secret methods of experimental science." = M.IT @UNSW (Specialising in artificial intelligence, and formal methods.)
+Later on it says I'll have multiple wives, followed by two sources of income; they won't marry me for my money; while there's opportunity for me to become a Sanyasi, my Vedic astrologer did not indicate it, but it's as poetic as reading any Sanskrit, so he's teaching me from beyond the cremation.
+
+He put it that way so I could get more out of it, before learning how to perform further analysis; The Scotsman said he can't imagine a Vedic astrologer who doesn't speak Sanskrit.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
