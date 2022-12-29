@@ -337,6 +337,9 @@ Do you want my GPS? There's a non-zero probability it could save my life; althou
 I become fluent at Sanskrit during 2026 (aged 36; Prabhupada became initiated at about 37, and married his wife when she was just 11), and I become a master of information technology during 2032 (42 is the meaning of life, and I could do it in half the time, but I probably willn't; iff my last name isn't Nath).
 
 
+I used to think my birthmark, the one that has three dots on my forærm, was Jagannath, Baladeva, and Subhadra; now I also consider it Trimurti (The middle one looks like a fish named Matsya, and Ramas' bow; they say you can see all their respective avataras).
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
