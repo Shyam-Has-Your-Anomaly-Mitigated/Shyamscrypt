@@ -312,6 +312,9 @@ It might interest you to know;*
 I think Prabhupada wrote somewhere; wise sages want to become gopis in their next life, and maybe some"-thing" about conjugal L-worders.
 
 
+I was happy milking cows for free; doesn't change Krishnas' arrangements for me to land on studying Sanskrit, after getting my degree (bachelor of information technology; Sanskrit is information technology), and almost getting the money that would've corrupted me as technology to Arjuna (BTW, he invented trannies; I don't know anyone else who became a tranny before him) (BTW, his teachers are the source of all martial arts; this is where Chinese whispers come from, where I've logged quantum observations of the remnants of full moves outside of Yoga, but now 99% of the styles are watered down so much that it's almost unrecognisable, and the handful I've witnessed are like how Shaolin Buddhists learned from illustrations, until an abbott learned from the words, and returned to defeat all of them; how to kill in one move). I passed the book test in the same way; I went for the money, and Krishna pulled me back (it looked like I fell backwards onto the book; Krishnas' arrangement), and caught me. Now I'm being taught by The Scotsman, who I consider sober; as Prabhupada did before me (different Scots though; probably). How are we Irishmen to the we Scots? Is it like England, and France?
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
