@@ -327,6 +327,13 @@ Later on it says I'll have multiple wives, followed by two sources of income; th
 He put it that way so I could get more out of it, before learning how to perform further analysis; The Scotsman said he can't imagine a Vedic astrologer who doesn't speak Sanskrit.
 
 
+There's no reason for anyone to kill me for my non-existent fortune, until it's too late; and none of my wives will marry me for my wealth, so they have no reason to kill me either; I also drew the no accidental deaths card, so I won't be killed like Krishna (He died from old age, anyway; Jara is to Raja, what Mara is to Rama, for long live the king comes directly from Sanskrit, and The Scotsman taught us that India is the original source of every"-thing".).
+
+I will only marry girls who will jump into my fire; iff I set myself on fire the moment I meet them for the first time for L-word at first sight (maybe I already have my third sight?), they must join me, or I'll cut /her head off|off her head/; how confident I am in my /OpenBCI|OpenEEG/ lie detector, determines when I sing "I'm on a boat, and…I'm buring it down; surfing down the Ganja, through a holy town!!! :D", and that's well before I get super exponentially rich.
+
+Do you want my GPS? There's a non-zero probability it could save my life; although, it's marginal at best. We could audio+video conference on a daily basis, but WaveNet+Deepfake can fool you like Penn & Teller; it's unimaginable anyone can fraudulate my words though (This is the way; I'm a religious zealot.).
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
