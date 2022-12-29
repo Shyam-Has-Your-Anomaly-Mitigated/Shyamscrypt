@@ -340,6 +340,9 @@ I become fluent at Sanskrit during 2026 (aged 36; Prabhupada became initiated at
 I used to think my birthmark, the one that has three dots on my forærm, was Jagannath, Baladeva, and Subhadra; now I also consider it Trimurti (The middle one looks like a fish named Matsya, and Ramas' bow; they say you can see all their respective avataras).
 
 
+I have no"-thing" to hide; she's not the only one I'm going to kill on sight without hesitation.
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
