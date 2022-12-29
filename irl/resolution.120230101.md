@@ -334,6 +334,9 @@ I will only marry girls who will jump into my fire; iff I set myself on fire the
 Do you want my GPS? There's a non-zero probability it could save my life; although, it's marginal at best. We could audio+video conference on a daily basis, but WaveNet+Deepfake can fool you like Penn & Teller; it's unimaginable anyone can fraudulate my words though (This is the way; I'm a religious zealot.).
 
 
+I become fluent at Sanskrit during 2026 (aged 36; Prabhupada became initiated at about 37, and married his wife when she was just 11), and I become a master of information technology during 2032 (42 is the meaning of life, and I could do it in half the time, but I probably willn't; iff my last name isn't Nath).
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
