@@ -380,6 +380,7 @@ greekœgyptians control jews
 muhammad is an pagan arabian name
 
 vulcan salute is self defence; self-defensive eye attack
+stick a flag in it; my cock flag
 
 
 
