@@ -484,7 +484,7 @@ this is bribed by the medical industry; same as fawlty tefloned rice cookers, /v
 
 my intelligence can solve captchas, but i don't want to contribute to their intelligence; just crack their servers instead
 
-observer paradox proves quantum measurements r flipped (like cross-eyed vision) r neither r..
+observer paradox proves quantum measurements r flipped (like cross-eyed vision) r neither r.; to be virtual, or to be virtual-virtual, that is the query; are virtual particles both, or oddly virtual, or even real?
 
 sanskrit i(s)c(ooled)e(lectr(on)ically) temple @himalaya @antartica
 the environment radiates atmosphere #healthiest
