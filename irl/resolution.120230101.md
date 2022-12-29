@@ -349,6 +349,9 @@ Anyone who is exposed to my words; that includes the messages I've sent, pending
 Don't fillout government forms, and set the date in the future (just because you can; iff you want an earlier ROI); I think that's what happened to some of my communication attempts may be delayed, or they can die for it; for all I care.
 
 
+What's your physical address?
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
