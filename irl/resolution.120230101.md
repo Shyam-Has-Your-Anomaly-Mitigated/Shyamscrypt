@@ -373,6 +373,8 @@ romans control christians
 greekœgyptians control jews
 muhammad is an pagan arabian name
 
+vulcan salute is self defence; self-defensive eye attack
+
 
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
