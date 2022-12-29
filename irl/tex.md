@@ -483,7 +483,7 @@ exercise equipment is no good; models never used it to get to where they are in 
 this is bribed by the medical industry; same as fawlty tefloned rice cookers, /vaccines|masks|gloves|swabs|vials|../, carcinogenic meat, ultraprocessing, sugar(dental2), mattresses, pillows, shellacum, introducing cockaroaches (like syphillus) into homes built for them (as iff asbestos wasn't enough; cockaroaches survive like tardigrads),..
 
 my intelligence can solve captchas, but i don't want to contribute to their intelligence; just crack their servers instead
-/contagious|magnetic|../ (bio)learning from others; learning how to learn v (provably)vacwmous learning /difficulties|impairments|../ v..
+/contagious|magnetic|../ (bio)learning from others; (/accelerated|speed|../)learning how to learn v (provably)vacwmous learning /difficulties|impairments|../ v..
 
 observer paradox proves quantum measurements r flipped (like cross-eyed vision) r neither r.; to be virtual, or to be virtual-virtual, that is the query; are virtual particles both, or oddly virtual, or even real?
 
