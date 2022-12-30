@@ -492,7 +492,8 @@ the environment radiates atmosphere #healthiest
 using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
 https://youtu.be/TILjzuBGkRc
  not only for gas leaks; also for /hindu (dea|shuff|gam(e|b)?)lings?/ ganja,..
-milk from happy cow(/hisper(ing)?/)s is healthy, like smelling happy farts, where happy = healthy; both mentally, and physically
+milk from happy (ca$h) cow(/hisper(ing)?|ater/)s is healthy, like smelling happy farts, where happy = healthy; both mentally, and physically
+ my gopi wives will be happy mothers, or else #heads!
  no wonder why meat eaters are so emotistically depressed they need to take it out on other species; at least, that's the legal therapeyrapey sexpert(ition)s
 mahatma gandhi was killed by muslims; they just said hindu extremist to keep the peace for his vainful unification attempts
  hindu extremists don't exist; in the implied sense (i'm a hindu extremist, by definition alone)
