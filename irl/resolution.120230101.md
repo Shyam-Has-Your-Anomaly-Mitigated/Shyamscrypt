@@ -1,6 +1,6 @@
 ```
 monthy resolution(s):
-12022.12: yagni sacrifice to the gods in favour of divining whether, orn't, dedicated graphics are absolutely necessary for quintessentially firewalled sandboxed virtualboxed formal methods, where reinstall(linux,@laptop) = reinstall(@laptop,linux) #ex #..
+12022.12: yagni sacrifice to the gods in favour of divining whether, orn't, dedicated graphics have any intrinsic value by being absolutely necessary for quintessentially firewalled sandboxed virtualboxed formal methods, where reinstall(linux,@laptop) = reinstall(@laptop,linux) #ex #..
 12023.01:
 12023.02:
 12023.03:
