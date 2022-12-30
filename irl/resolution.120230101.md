@@ -96,7 +96,7 @@ now i know what to spend my $10,000 on; a wooden dummy
 fine$ are the pin in my game of life's a game of chess
 i'm just going to devote my life to this sign from gov
 /neijia|neigong|dit da jow|placebo|aromatherapy|../ = drink (hard core king gong)
-wing chun = short range; /chi sau|tuishou/ = pushing hands
+wing chun = short range; /chi sau|tuishou/ = pushing hands  (shadowless kick; the /capoeira|kalaripayattu/ of wing chun)
 capoeira = long range; elcric = shadowboxing                (sensei seth says kalaripayattu is where capoeira comes from; but /capoeira|(wing chun|jk)/do not take eyes off the closer /enemy|human (shield|wæpon)/)
 brazilian jiu-jitsu = postakedown #shenmue
 judo = takedown #shenmue
