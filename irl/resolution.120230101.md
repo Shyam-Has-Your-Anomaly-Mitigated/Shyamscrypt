@@ -408,7 +408,7 @@ muhammad is an pagan arabian name
 vulcan salute is self defence; self-defensive eye attack
 stick a flag in it; my cock flag
 
-treemurti
+treemurti /positions|asanas/
 /excon|iskcon/ artists
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
