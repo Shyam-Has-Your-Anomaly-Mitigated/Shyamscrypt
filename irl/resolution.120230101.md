@@ -375,6 +375,9 @@ Don't fillout government forms, and set the date in the future (just because you
 What's your physical address?
 
 
+You can run, but you can't hide; I don't even need to use Yoga to track you down, soon I will just curse you like Durvasa cursed Ambarishi cursed Durvasa; I will be able to curse you both, in the afterlife, and from beyond the grave (even at the same time); there is no hurry (without Hari).
+
+
 
  There are lots of things, but firstly you need to get your fitness up, interval training is the fastest...start by doing 100m sprints, breaking for 1 min before doing the next. Repeat 10 times
 intense
