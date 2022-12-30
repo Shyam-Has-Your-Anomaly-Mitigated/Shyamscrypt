@@ -1,4 +1,25 @@
 ```
+monthy resolution(s):
+12022.12: yagni sacrifice to the gods in favour of divining whether, orn't, dedicated graphics are absolutely necessary for quintessentially firewalled sandboxed virtualboxed formal methods, where reinstall(linux,@laptop) = reinstall(@laptop,linux) #ex #..
+12023.01:
+12023.02:
+12023.03:
+12023.04:
+12023.05:
+12023.06:
+12023.07:
+12023.08:
+12023.09:
+12023.10:
+12023.11:
+12023.12:
+brainstorming:
+ yoga; sanskrit v reboot protocol v..
+ rememberalls(from that high school math teacher that looks like rove) applied to ☑hours, ☐days, ☐weeks, ☐fortnites, ☐months(in progress v pending further investigation), ☑years,.:
+yearly resolution(s):
+
+
+
 The only reason I stopped at $50 last time, was because I lost it in 15m; I started considering it as a form of entertainment, but now one of my strats is to throw $1 at the last number on the board, and keep hitting that same number until it hits; I think it's about $1 per minutes worth of entertainment value, and I've won big doing that, but I was placing $5 per spin, because that's the minimum outside bets, and I wasn't thinking, until it was too late, but it paid off, until I started more than one number at a time.
 
 I'm thinking about alternatives; iff you have any ideas? After my back (hopefully) heals, and my life finally returns to some degree of normalcy; I'm thinking about martial arts. What do you think of these?
@@ -381,8 +402,6 @@ muhammad is an pagan arabian name
 
 vulcan salute is self defence; self-defensive eye attack
 stick a flag in it; my cock flag
-
-
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
 bee acupuncture; not only for plants
