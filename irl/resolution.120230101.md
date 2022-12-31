@@ -413,6 +413,8 @@ stick a flag in it; my cock flag
 treemurti /positions|asanas/; jar(eaper@carolina; now i need to start /eating|growing/ habaneros, since i just noticed coles started selling them again)a hunts everywhere in this solar system
 /excon|iskcon/ artists
 
+dos is my os; daughter(s∘s)hyam
+
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
 bee acupuncture; not only for plants
 i glimpsed into the fourth dimension c̄ diamond dice; breaking the fourth wall
