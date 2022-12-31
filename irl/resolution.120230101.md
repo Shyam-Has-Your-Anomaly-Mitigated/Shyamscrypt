@@ -7,7 +7,7 @@ monthy resolution(s):
    (= minutes 0);
    (loop
     (+= minutes 1);
-    (apply acupressure);
+    (apply acupressure); (#)dotadiw
     (sleep); 1 minute (minimum), or more; until /confident|recovered/ #metacomment
     (apply vegan-dit-da-jow-recipe); gotta try 'em all!!! :D (tiger balm, until order@log)
    );
