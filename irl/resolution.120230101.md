@@ -11,7 +11,7 @@ monthy resolution(s):
     (sleep); 1 minute (minimum), or more; until /confident|recovered/ #metacomment
     (apply vegan-dit-da-jow-recipe); gotta try 'em all!!! :D (tiger balm, until order@log)
    );
- /lab test|clinically trial|scientifically prove/ vegan dit da jow recipes
+ /lab test|clinically trial|scientifically prove/ vegan-labelled dit da jow recipes (drop a weight from a consistent height to a dead leg until it bruises; loweight + high frequency v.; quality v quantity)
  hitting the wall: week∘carbs, week∘bracs (iff this doesn't work; try month∘carbs, month∘bracs; next months (iff this doesn't work s/month/year/)
 12023.02:
 12023.03:
