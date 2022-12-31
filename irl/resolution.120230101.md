@@ -3,7 +3,16 @@ monthy resolution(s):
 12022.12: i resolve to resolve this commitreasures@cow
 12023.01:
  become a holy man (in a holy town) through & through thoroughly test(ing) out /kmart|rebel|../ acupressure products (looking good for /passive|static|(internal (body weight)|external (thick-skinned armour to jackie chan down trees like a gymnast, and zui quan into the ground & pound|barefoot (locomotion|locomotive transportation); (brachiation|(tar|mow)(gli|zan)), and (butt-hopping|flying)))|../ conditioning; i think i can lose /weight|mass|volume|surfacærea|fat|sugar|(ultra)?processing|g(lucose|lycemic)?i(n(dex(ing)?))?|../) #bed∘nails #pincushion
- hitting the wall: week∘carbs, week∘bracs (iff this doesn't work; try month∘carbs, month∘bracs; next months)
+  instructions:
+   (= minutes 0);
+   (loop
+    (+= minutes 1);
+    (apply acupressure);
+    (sleep); 1 minute (minimum), or more; until /confident|recovered/ #metacomment
+    (apply vegan-dit-da-jow-recipe); gotta try 'em all!!! :D (tiger balm, until order@log)
+   );
+ /lab test|clinically trial|scientifically prove/ vegan dit da jow recipes
+ hitting the wall: week∘carbs, week∘bracs (iff this doesn't work; try month∘carbs, month∘bracs; next months (iff this doesn't work s/month/year/)
 12023.02:
 12023.03:
 12023.04:
