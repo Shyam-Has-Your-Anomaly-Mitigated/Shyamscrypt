@@ -416,5 +416,5 @@ treemurti /positions|asanas/; jar(eaper@carolina; now i need to start /eating|gr
 dos is my os; daughter(s∘s)hyam
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
-bee acupuncture; not only for plants
+(kamikaze) bee acupuncture(through /conditioned|callo?us(iff you have a callus)?ed|callii?/ skin); not only for plants
 i glimpsed into the fourth dimension c̄ diamond dice; breaking the fourth wall
