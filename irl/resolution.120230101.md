@@ -31,7 +31,7 @@ brainstorming:
  `mv drives drive`
  yagni sacrifice to the gods in favour of divining whether, orn't, dedicated graphics have any intrinsic value by being absolutely necessary for quintessentially firewalled sandboxed virtualboxed formal methods, where reinstall($linux,@laptop) = reinstall(@laptop,$linux), and you pay /(t(uu)?o|fou?r)/ $2input @2output #ex #..
  yoga; sanskrit v reboot protocol v..
- rememberalls(from that high school math teacher that looks like rove) applied to ☑hours, ☐days, ☐weeks, ☐fortnites, ☐months(in progress v pending further investigation), ☑years,.:
+ rememberalls(from that high school math teacher that looks like rove) applied to ☑hours, ☐days, ☐weeks, ☐fortnites, ☐months(in progress v pending further investigation), ☐quarters, ☐halves ☑years,.:
 yearly resolution(s):
 
 
