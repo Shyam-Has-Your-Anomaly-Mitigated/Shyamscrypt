@@ -6,7 +6,7 @@ monthy resolution(s):
   hardware hacking instructions:
    (= minutes 0);
    (loop
-    (+= minutes 1);
+    (+≈ minutes 1);
     (apply acupressure); (#)dotadiw
     (sleep); 1 minute (minimum), or more; until /confident|recovered/ #metacomment
     (apply vegan-dit-da-jow-recipe (sub-)ml-quantity); gotta try 'em all!!! :D (tiger balm, until order@log)
