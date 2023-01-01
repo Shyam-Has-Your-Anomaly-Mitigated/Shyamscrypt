@@ -485,7 +485,7 @@ this is bribed by the medical industry; same as fawlty tefloned rice cookers, /v
 my intelligence can solve captchas, but i don't want to contribute to their intelligence; just crack their servers instead
 /contagious|magnetic|../ (bio)learning from others; (/accelerated|speed|../)learning how to learn v (provably)vacwmous learning /difficulties|impairments|../ v..
 
-observer paradox proves quantum measurements r flipped (like cross-eyed vision) r neither r.; to be virtual, or to be virtual-virtual, that is the query; are virtual particles both, or oddly virtual, or even real?
+observer paradox proves quantum measurements r flipped (like cross-eyed upside-down vision) r neither r.; to be virtual, or to be virtual-virtual, that is the query; are virtual particles both, or oddly virtual, or even real?
 
 sanskrit i(s)c(ooled)e(lectr(on)ically) /temple|shrine|p∘w|getafix ((conference)?|..)|ash-rama|man-directory|../ @himalaya @antartica @moon @mars @pluto @mobile @flying @mdd @..
 the environment radiates atmosphere #healthiest
