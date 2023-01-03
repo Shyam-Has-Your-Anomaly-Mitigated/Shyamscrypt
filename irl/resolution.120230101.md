@@ -4,6 +4,10 @@
  (one smallest bootable ssd; stored in storage, until eva)
  (three biggest bootable hdds; stored in storage, until /backup|(front|fore?|fourth|force|..)down/)
 )
+((/yearly|halvly|quarterly|monthly|fortnightly|weekly|daily|timely/)
+ (photograph all /shops?|(init∘aisle|product labels|end∘aisle)/, transcription errors into s/spreadsheets/(prolog|~csv)|deductive databases?/)
+ ((/(re)?(plan|use)/ m.it)languages; python, c, sql, r, isabelle/hol)
+)
 monthy resolution(s):
 12022.12: i resolve to resolve this commitreasures@cow
 12023.01:
