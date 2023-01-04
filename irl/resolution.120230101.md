@@ -6,7 +6,7 @@
 )
 ((/yearly|halvly|quarterly|monthly|fortnightly|weekly|daily|timely/)
  (photograph all /shops?|(init∘aisle|product labels|end∘aisle)/, transcription errors into s/spreadsheets/(prolog|~csv)|deductive databases?/)
- ((/(re)?(plan|use)/ m.it@/(unsw)?|../(who needs approved courses? i get paid more for doing less as a job seeker, and i think every masters degree is approved to bludge work for the dole; applying to(wenty) jobs a month + half of the studying (1 course v 2 courses) #a_dolt_learner))languages; python, c, sql, r, isabelle/hol)
+ ((/(re)?(plan|use)/ m.it@/(unsw)?|../(who needs approved courses? i get paid more for doing less as a job seeker, and i think every masters degree is approved to bludge work for the dole; applying to(wenty) jobs a month + half of the studying (1 course v 2 courses) #a_dolt_learner))languages; python, c(inline typed asm), sql(https://des.sourceforge.io/), r, isabelle/hol; besides the usual prolog(mercury,..), lisp(pie,typed racket,typed clojure,..), hex(cpu,(gp)gpu,..), https://qiskit.org/, math(fol,λcalculus,..)
 )
 monthy resolution(s):
 12022.12: i resolve to resolve this commitreasures@cow
