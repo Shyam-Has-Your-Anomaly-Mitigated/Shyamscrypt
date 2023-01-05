@@ -11,6 +11,19 @@
 monthy resolution(s):
 12022.12: i resolve to resolve this commitreasures@cow
 12023.01:
+ `mv drives drive`
+12023.02:
+12023.03:
+12023.04:
+12023.05:
+12023.06:
+12023.07:
+12023.08:
+12023.09:
+12023.10:
+12023.11:
+12023.12:
+brainstorming:
  become a holy man (in a holy town) through & through thoroughly test(ing) out /kmart|rebel|../ acupressure products (looking good for /passive|static|(internal (body weight)|external (thick-skinned armour to jackie chan down trees like a gymnast, and zui quan into the ground & pound|barefoot (locomotion|locomotive transportation); (brachiation|(tar|mow)(gli|zan)), and (butt-hopping|flying)))|../ conditioning; i think i can lose /weight|mass|volume|surfacærea|fat|sugar|(ultra)?processing|g(lucose|lycemic)?i(n(dex(ing)?))?|../) #bed∘nails #pincushion
   hardware hacking instructions:
    (= minutes 0);
@@ -24,20 +37,7 @@ monthy resolution(s):
   this is what i wanted to make my own pottery for!!! :D
    this is what i wanted to make my own clay for!!! :D
     https://youtu.be/hmH0XoRp2P8#!!! :D
-12023.02:
-12023.03:
-12023.04:
-12023.05:
-12023.06:
-12023.07:
-12023.08:
-12023.09:
-12023.10:
-12023.11:
-12023.12:
-brainstorming:
  hitting the wall: week∘carbs, week∘bracs (iff this doesn't work; try month∘carbs, month∘bracs; next months (iff this doesn't work s/month/year/)
- `mv drives drive`
  yagni sacrifice to the gods in favour of divining whether, orn't, dedicated graphics have any intrinsic value by being absolutely necessary for quintessentially firewalled sandboxed virtualboxed formal methods, where reinstall($linux,@laptop) = reinstall(@laptop,$linux), and you pay /(t(uu)?o|fou?r)/ $2input @2output #ex #..
  yoga; sanskrit v reboot protocol v..
  rememberalls(from that high school math teacher that looks like rove) applied to ☑hours, ☐days, ☐weeks, ☐fortnites, ☐months(in progress v pending further investigation), ☐quarters, ☐halves ☑years,.:
