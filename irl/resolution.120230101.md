@@ -1,5 +1,5 @@
 ```
-((tech resolutions)
+((tech( re)solutions)
  (storage = /tubucketubucketub|plastic|waterproof|eskymo|eskiglue|eyeglue|../ is better than cardboard boxes; for the pests, for the books, shoes, clothes,..)
  (one smallest bootable ssd; stored in storage, until eva)
  (three biggest bootable hdds; stored in storage, until /backup|(front|fore?|fourth|force|..)down/)
