@@ -436,7 +436,7 @@ treemurti /positions|asanas/; jar(eaper@carolina; now i need to start /eating|gr
 
 dos is my os; daughter(s∘s)hyam
 
-watering down; roman shield comes from mahabharata(moving the gaps (in the body armour); conveyor belt walls now move #go_leche_the_flow) #(martial)dance(choreographical choreograffiti)
+watering down; roman shield comes from mahabharata(moving the gaps (in the body armour; now i can ned kelly better than ned kelly); conveyor belt walls now move #go_leche_the_flow) #(martial)dance(choreographical choreograffiti)
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
 (kamikaze) bee acupuncture(through /conditioned|callo?us(iff you have a callus)?ed|callii?/ skin); not only for plants
