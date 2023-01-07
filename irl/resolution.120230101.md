@@ -439,6 +439,6 @@ dos is my os; daughter(s∘s)hyam
 watering down; roman shield comes from mahabharata(moving the gaps (in the body armour; now i can ned kelly better than ned kelly); conveyor belt walls now move #go_leche_the_flow) #(martial)dance(choreographical choreograffiti) #capoeira
 
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
-(kamikaze) bee acupuncture(through /conditioned|callo?us(iff you have a callus)?ed|callii?/ skin); not only for plants
+(kamikaze) bee acupuncture(through /conditioned|callo?us(iff you have a callus)?ed|callii(dual=plural)??/ skin); not only for plants
  the mobile hive for the scouts honour; i'm still /waiting|trying/ to figure what i'm going to do next (about my diet)
 i glimpsed into the fourth dimension c̄ diamond dice; breaking the fourth wall
