@@ -498,6 +498,7 @@ milk from happy (ca$h) cow(/hisper(ing)?|ater/)s is healthy, like smelling happy
  emotions are contagiousync
  https://youtu.be/TILjzuBGkRc
   senses, chakras, essences, entanglements(standing in a corner to commit mass murder), wmds, (mindfulness,..)yogas, transcendental sound vibrations,..
+  rubbing hands
 mahatma gandhi was killed by muslims; they just said hindu extremist to keep the peace for his vainful unification attempts
  hindu extremists don't exist; in the implied sense (i'm a hindu extremist, by definition alone)
 we already have paradoxically observable cars∘invisibility
