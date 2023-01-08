@@ -437,7 +437,7 @@ treemurti /positions|asanas/; jar(eaper@carolina; now i need to start /eating|gr
 dos is my os; daughter(s∘s)hyam
 
 watering down; roman shield comes from mahabharata(moving the gaps (in the body armour; now i can ned kelly better than ned kelly); conveyor belt walls now move #go_leche_the_flow) #(martial)dance(choreographical choreograffiti) #capoeira
-i wanted to be a teenage mutant ninja kurma when i grew up; i fell a tree onto my back, and climbed a grand mountainous grand stair
+i wanted to be a teenage mutant ninja kurma when i grew up; i fell a tree onto my back, and climbed a grand mountainous grand stair (so i already jackie /chan?ned/ down a tree!!! :D)
 drink water before, and after, karma; karma before, and after, karma; /distilled|../ water is ultraprocessed
 (kamikaze) bee acupuncture(through /conditioned|callo?us(iff you have a callus)?ed|callii(dual=plural)??/ skin); not only for plants
  the mobile hive for the scouts honour; i'm still /waiting|trying/ to figure what i'm going to do next (about my diet)
