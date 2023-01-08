@@ -503,7 +503,7 @@ stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
 
-comparator
+comparator (v eeg)
  https://www.youtube.com/@GoodMythicalMorning
   https://youtu.be/bNLM6X31eaE#katwm
  https://www.youtube.com/@thelonelyisland/videos
@@ -515,6 +515,12 @@ comparator
   https://youtu.be/avaSdC0QOUM#sati
   https://youtu.be/WRu_-9MBpd4#og
   https://youtu.be/Jr9Kaa1sycs#re
+ https://en.wikipedia.org/wiki/Lil_Dicky
+  https://youtu.be/NWWeQlXfSa0#i can no longer watch this; nsfw, and youtube-dl, don't work anymore; i bet they ddos'd all his videos
+  https://youtu.be/H6CRsZZ_hqM#pegging
+ https://en.wikipedia.org/wiki/Tim_Minchin
+  https://youtu.be/HhGuXCuDb1U#pillowtalk
+  harry potter looks waltzing matilda looks timid as (de)bell alice looks sheward
 
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
