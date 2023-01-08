@@ -503,6 +503,19 @@ stoner list
  https://www.youtube.com/watch?v=YhiPOg_Ir9c
   she gotto goto the pub when she passed half a decade; i'll use my (self)protective woundlass
 
+comparator
+ https://www.youtube.com/@GoodMythicalMorning
+  https://youtu.be/bNLM6X31eaE#katwm
+ https://www.youtube.com/@thelonelyisland/videos
+  https://youtu.be/BKQ6nINAeq8#kindergarten
+  https://youtu.be/gAYL5H46QnQ#minchin
+  https://youtu.be/NisCkxU544c#√
+  https://youtu.be/lQlIhraqL7o#18:46
+  https://youtu.be/z5Otla5157c#covid
+  https://youtu.be/avaSdC0QOUM#sati
+  https://youtu.be/WRu_-9MBpd4#og
+  https://youtu.be/Jr9Kaa1sycs#re
+
 (sspace)ttemporal (meta,virtual,..)entanglement includes; {x,..}, {x,y,..},..
  (logic)chains, (wheel)spins, (dealer)sign(al)s,..
 ne(u)utri((c)k)nouus are (particular) waves() (from quantum eraser experiments; "nature", communication, weapons,..),..
