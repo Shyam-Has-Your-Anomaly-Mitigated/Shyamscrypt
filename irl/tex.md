@@ -515,7 +515,7 @@ comparator (v eeg)
   https://youtu.be/avaSdC0QOUM#sati
   https://youtu.be/WRu_-9MBpd4#og
   https://youtu.be/Jr9Kaa1sycs#re
- https://en.wikipedia.org/wiki/Lil_Dicky
+ https://en.wikipedia.org/wiki/Lil_Dicky#v ali g
   https://youtu.be/NWWeQlXfSa0#i can no longer watch this; nsfw, and youtube-dl, don't work anymore; i bet they ddos'd all his videos
   https://youtu.be/H6CRsZZ_hqM#pegging
  https://en.wikipedia.org/wiki/Tim_Minchin
