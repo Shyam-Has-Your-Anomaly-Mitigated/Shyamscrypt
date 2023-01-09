@@ -1,0 +1,6 @@
+2 hex + 1 chi = ䷖(23) v ䷪(43)
+2 chi + 1 hex
+2 chi + 1 hex
+2 chi + 1 hex
+2 chi + 1 hex
+2 chi + 1 hex
