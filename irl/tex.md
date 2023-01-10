@@ -487,7 +487,7 @@ my intelligence can solve captchas, but i don't want to contribute to their inte
 
 observer paradox proves quantum measurements r flipped (like cross-eyed upside-down vision) r neither r.; to be virtual, or to be virtual-virtual, that is the query; are virtual particles both, or oddly virtual, or even real?
 
-sanskrit i(s)c(ooled)e(lectr(on)ically) /palace|temple|shrine|p∘w|getafix ((conference)?|..)|ash-rama|man-directory|../ @himalaya @antartica @moon @mars @pluto @mobile @flying @mdd @..
+sanskrit i(s)c(ooled)e(lectr(on)ically #faraday) /palace|temple|shrine|p∘w|getafix ((conference)?|..)|ash-rama|man-directory|../ @himalaya @antartica @moon @mars @pluto @mobile @flying @mdd @..
 the environment radiates atmosphere #healthiest
 using tummo to melt the infrastructure will lose your head; melt a different mountain topeak
 https://youtu.be/TILjzuBGkRc
