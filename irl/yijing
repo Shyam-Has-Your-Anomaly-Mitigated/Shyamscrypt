@@ -29,7 +29,7 @@ residual change radiation, where {{a,g,..},{b,h,..},..} are significant changes
 …
 ((a→b)→(c→d)) → ((e→f)→(g→h))
 v
-b→c→d→e→f→g + a→g
+(b→c→(d→e)→)f→g + a→g
 …
 (a→b) → (c→d)
 b → c (?@(a))
