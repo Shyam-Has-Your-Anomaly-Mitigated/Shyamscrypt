@@ -140,7 +140,7 @@ warmups? (conditioning)
 equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? sticks? vegan?
 instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
 comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
-do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained
+do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained; i only ever saw one of these, and there's videos, books, and whatnot(friends who didn't read the fineprint?)
 does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
