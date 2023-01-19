@@ -147,6 +147,7 @@ do i have to sign a death & injury waiver? s/a contract is a contract is a contr
   they can't compete for an orbit iff they don't kiai during the competition #adware("help(me referral; "(5)why?.." is my wizardspell(s))!!! :D")
  combative yoga; koongfa, where koong=combative, and fa=of=yoga, of course
  ground fighting includes all standing techniques, and vice versa,..
+ sharmashram; full comprehensive education; not just dance lessons
 does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
