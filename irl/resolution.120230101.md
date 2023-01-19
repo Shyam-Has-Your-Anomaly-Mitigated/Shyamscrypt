@@ -129,19 +129,20 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  this is like s/working for the dole/studying sanskrit/, instead of starting up my tech giant for world domination ∵ i'm fine c̄ it; they want me to give a shit about non-mandatory elections, and non-mandatory courts
 …
 /^-/observation
-/^~/observation first, ask queries later
-tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
+/^~/observation first, ask queries later; much later (second visitation)
+/^+/query; theorem proof theory it c̄ all formalities
++tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
  you never know who you will conneect c̄
   iff they demonstrate punching an inch from my face, i'll lean into it, and sue them for assault; iff they train against moving targets, then i might take their lessons, but i'll never untrain my flinch
-price?
++price?
 -addressable distance?
-how many classes averages black belt?
-black belt, or higher?
-how many classes averages highest belt?
++how many classes averages black belt?
++black belt, or higher?
++how many classes averages highest belt?
 -warmups? (conditioning)
 ~equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? sticks? vegan?
 ~instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
-comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
++comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
 ~do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained; i only ever saw one of these, and there's videos, books, and whatnot(friends who didn't read the fineprint?)
 ~do i have to sign a death & injury waiver? s/a contract is a contract is a contract/the law is the law is the law|judicial discretion|../
  i'll corner the market c̄ /audio|video|../ surveillance, and waiverless(i'm not liable for earthquakes,..) contractless(i can refuse service for any reason i want, and i don't want students who don't want to learn from me, and this isn't a pyramid scheme,..); good communication skills define good teachers, otherwise the neurodegenerate is held responsible; my intelligence will monitor every situation, and there'll be theory first; is punctuality important? what iff hospital,.? iff i'm late, do i not walk through the door, or do i have to show up at all? i think it's just artificial reputation; i can always just goto another dojo, and casio disguises, change∘name, forgetting curve, voice acting, gait therapy,..
