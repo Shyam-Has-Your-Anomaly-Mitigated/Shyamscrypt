@@ -128,27 +128,29 @@ muay thai = clinch
 i'll just do aikido, and that's all the government will know about; for legal purposes, to dominate the debatably evidential judge(ment day)
  this is like s/working for the dole/studying sanskrit/, instead of starting up my tech giant for world domination ∵ i'm fine c̄ it; they want me to give a shit about non-mandatory elections, and non-mandatory courts
 …
+/^-/observation
+/^~/observation first, ask queries later
 tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
  you never know who you will conneect c̄
   iff they demonstrate punching an inch from my face, i'll lean into it, and sue them for assault; iff they train against moving targets, then i might take their lessons, but i'll never untrain my flinch
 price?
-addressable distance?
+-addressable distance?
 how many classes averages black belt?
 black belt, or higher?
 how many classes averages highest belt?
-warmups? (conditioning)
-equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? sticks? vegan?
-instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
+-warmups? (conditioning)
+~equipment? bats? knives? machetes(ilat)? guns(handguns, /rifles|shotguns/,..)? bricks(sticks & stones stop bullets, and getting stoned is (in) a superposition (to be (in), or not to be (in)))? sticks? vegan?
+~instructors(i want to see /abs|black belts/ of 6°!) v students(how many classes averages abs of 6°?): fit v fat
 comparator: video v txt v memory (it's better to (bird)watch(like an (private)eye witness), instead of a free lesson in false memories,..)
-do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained; i only ever saw one of these, and there's videos, books, and whatnot(friends who didn't read the fineprint?)
-do i have to sign a death & injury waiver? s/a contract is a contract is a contract/the law is the law is the law|judicial discretion|../
+~do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained; i only ever saw one of these, and there's videos, books, and whatnot(friends who didn't read the fineprint?)
+~do i have to sign a death & injury waiver? s/a contract is a contract is a contract/the law is the law is the law|judicial discretion|../
  i'll corner the market c̄ /audio|video|../ surveillance, and waiverless(i'm not liable for earthquakes,..) contractless(i can refuse service for any reason i want, and i don't want students who don't want to learn from me, and this isn't a pyramid scheme,..); good communication skills define good teachers, otherwise the neurodegenerate is held responsible; my intelligence will monitor every situation, and there'll be theory first; is punctuality important? what iff hospital,.? iff i'm late, do i not walk through the door, or do i have to show up at all? i think it's just artificial reputation; i can always just goto another dojo, and casio disguises, change∘name, forgetting curve, voice acting, gait therapy,..
  i'll teach every style of each attack, and the philosophy; a full comprehensive education, and the students must write reports, and comparative essays, before they are to be allowed to compete #homework(calligraphic grammatically correct peereviews∘peereviews∘peereviews∘.. #paperwork!!! :D)!!! :D
   they can't compete for an orbit iff they don't kiai during the competition #adware("help(me referral; "(5)why?.." is my wizardspell(s))!!! :D")
  combative yoga; koongfa, where koong=combative, and fa=of=yoga, of course
  ground fighting includes all standing techniques, and vice versa,..
  sharmashram; full comprehensive education; not just dance lessons
-does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
+~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
 
