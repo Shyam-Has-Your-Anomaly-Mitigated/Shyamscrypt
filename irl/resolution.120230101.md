@@ -154,6 +154,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
 school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
+ i know no"-thing"; i do yoga, dancing(i'm a hare krishna; you see our plyometrics on the street), workout, gymnastics, arcrobatics, parkour, freerunning,.; you know no"-thing"
 price?
 how many classes averages black belt?
 price?
