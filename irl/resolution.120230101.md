@@ -166,7 +166,7 @@ vegan? (equipment)
 discipline? (instructors v students #ealth)
 does anyone actually use your /stances|blocks|katas|../ in competitions, mma, irl,.?
 contracts? (teaching v startup, death & injury waiver)
- my 24h(even during holidays; you must provide contact details, so i can sell your data, and harass you for atten-dance lessons) school will teach teaching, my instructors are expected to show up; especially iff they aren't instructing
+ my 24h(even during holidays; you must provide contact details, so i can sell your data, and harass you for atten-dance lessons) school will teach /teaching|first aid (like science∘gardening; red cabbage drink, not off-the-shelf-product-placements@bunnings..!..-_-..!..)?|../, my instructors are expected to show up; especially iff they aren't instructing, unless they only show up for grading; daily(the more you do it, the /better|worse/ your reputation; this determines competition participation, /promotion|demotion/,..)
 
 
 
