@@ -160,7 +160,7 @@ price?
 black belt, or higher?
 how many classes averages highest belt?
 price?
-(/anonymously|fake name(s; i know you $hare my data around)|..)pay-by-cash?
+(/anonymously|fake name(s; i know you $hare my data around)|long sleeves (to cover my birthmark)?|..)pay-by-cash?
  bisping said they don't register hands as lethal weapons; governments demand data from "servers", and the police stole my fingerprints (when i was a minor, but that's irrelevant; a search warrant is a search warrant is a search warrant)
 comparator?
 ~
