@@ -129,7 +129,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  this is like s/working for the dole/studying sanskrit/, instead of starting up my tech giant for world domination ∵ i'm fine c̄ it; they want me to give a shit about non-mandatory elections, and non-mandatory courts
 …
 /^-/observation
-/^~/observation first, ask queries later; much later (second visitation)
+/^~/observation first, ask queries later; much later (second visitation, or probably never)
 /^+/query; theorem proof theory it c̄ all formalities
 +tell me about your style? (how fashionable is your s/uniform/(cute|adorable) little outfit(arget)? i won't adwear for many reason$/)
  you never know who you will conneect c̄
