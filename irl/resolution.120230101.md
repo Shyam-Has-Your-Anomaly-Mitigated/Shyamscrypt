@@ -143,6 +143,8 @@ comparator: video v txt v memory (it's better to (bird)watch(like an (private)ey
 do i have to sign some"-thing" that says i can't teach? or whatever? this is the reason i'm untrained; i only ever saw one of these, and there's videos, books, and whatnot(friends who didn't read the fineprint?)
 do i have to sign a death & injury waiver? s/a contract is a contract is a contract/the law is the law is the law|judicial discretion|../
  i'll corner the market c̄ /audio|video|../ surveillance; good communication skills define good teachers, otherwise the neurodegenerate is held responsible; my intelligence will monitor every situation, and there'll be theory first; is punctuality important? what iff hospital,.? iff i'm late, do i not walk through the door, or do i have to show up at all? i think it's just artificial reputation; i can always just goto another dojo
+ i'll teach every style of each attack, and the philosophy; a full comprehensive education, and the students must write reports, and comparative essays, before they are to be allowed to compete
+ combative yoga; koongfa, where koong=combative, and fa=of=yoga, of course
 does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 
 
