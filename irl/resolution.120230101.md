@@ -153,8 +153,6 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  sharmashram; full comprehensive education; not just dance lessons
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
-bisping said they don't register hands as lethal weapons; governments demand data from "servers", and the police stole my fingerprints (when i was a minor, but that's irrelevant; a search warrant is a search warrant is a search warrant)
-…
 school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
 price?
 how many classes averages black belt?
@@ -162,6 +160,8 @@ price?
 black belt, or higher?
 how many classes averages highest belt?
 price?
+(/anonymously|fake name(s; i know you $hare my data around)|..)pay-by-cash?
+ bisping said they don't register hands as lethal weapons; governments demand data from "servers", and the police stole my fingerprints (when i was a minor, but that's irrelevant; a search warrant is a search warrant is a search warrant)
 comparator?
 ~
 vegan? (equipment)
