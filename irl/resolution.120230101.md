@@ -153,17 +153,20 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  sharmashram; full comprehensive education; not just dance lessons
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
-tell me about your style?
+school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
 price?
 how many classes averages black belt?
+price?
 black belt, or higher?
 how many classes averages highest belt?
+price?
 comparator?
+~
 vegan? (equipment)
 discipline? (instructors v students #ealth)
+does anyone actually use your /stances|blocks|katas|../ in competitions, mma, irl,.?
 contracts? (teaching v startup, death & injury waiver)
  my 24h(even during holidays; you must provide contact details, so i can sell your data, and harass you for atten-dance lessons) school will teach teaching, my instructors are expected to show up; especially iff they aren't instructing
-does anyone actually use your /stances|blocks|katas|../ in competitions, mma, irl,.?
 
 
 
