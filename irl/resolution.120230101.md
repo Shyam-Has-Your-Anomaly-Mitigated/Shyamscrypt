@@ -155,6 +155,16 @@ i'll just do aikido, and that's all the government will know about; for legal pu
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
 search radius starts at the nearest one, and spreads out; after gkr iff they still adware(their website literally says lose weight; `+how long?`) at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
+ https://www.gkrkarate.com/about-gkr/gkr-karate-journey/gkr-karate-grading-criteria/
+  this leads me to believe, i can max out in under 2 months; https://youtu.be/ACZIMK-fmzg
+   and this got me thinking; i can just max out my search radius, and as i do (that (max out my search radius)); i will get /fitter|fit enough to trek out (even)? further; until i hit the borders? of the act(ing)? set/!!! :D
+    okay, so what i was originally thinking, was; i start an hour a day for a /week|fortnite|month|../, and keep adding a class a day
+     week: 7, 21, 42, 70, 105, 147, 196, 252, 315, 385, 462, 546, 637, 735, 840, 952; by 72d, i'll max out gkr
+     fortnight: 14, 42, 84, 140, 210, 294, 392, 504, 630, 770, 924, 1092, 1274, 1470, 1680, 1904; by 99d, i'll max out gkr
+     30d month: 30, 90, 180, 300, 450, 630, 840, 1080, 1350, 1650, 1980, 2340, 2730, 3150, 3600, 4080; by 140d, i'll max out gkr
+     my personal challenge is to use the force, and make every"-thing" work; (capoeira) no-touch(unless they don't turn; then i'll scoop(tre flip, doube tre,.; i can always axe them down like a tree, or fruit ninja!!! :D) them on their head to knock some sense into them (unless they capoeira; then i wing chun as i close the distance into jjj(jjj, judo, bjj,..))) mma ftw!!! :D
+ https://www.gkrkarate.com/about-gkr/black-belt-3rd-dan/
+  this leads me to believe, the romans own this style
 school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
  i know no"-thing"; i do yoga, dancing(i'm a hare krishna; you see our plyometrics on the street), workout, gymnastics, arcrobatics, parkour, freerunning,.; you know no"-thing"
 price?
