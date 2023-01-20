@@ -172,7 +172,7 @@ search radius starts at the nearest one, and spreads out; after gkr iff they sti
      icdr go for 24hd, but i like to dream, but i like to dream (pseudolucidly from sleep deprivation)
      my personal challenge is to use the force, and make every"-thing" work; (capoeira) no-touch(unless they don't turn(talking the spine into submission); then i'll scoop(tre flip, double tre,.; i can always axe them down like a tree, or fruit ninja!!! :D) them on their head to knock some sense into them (unless they capoeira; then i wing chun as i close the distance into jjj(jjj, judo, bjj,..))) mma ftw!!! :D
      i am planning to remove my cushions, and melamine it(being my elbows, knees, and ankhles) up; then kmart acupressure mats + kmart picture hanging strips; then rebel acupressure mats + bunnings pegboard; planking, the opposite of planking (6 inches off the ground; hollow body hold?), the squeezey hands "-thing" (+ knalping + ærial morio higaonna' footsies),..
-     cold showers, s/eye masks/probably apply too much pressure, and cause blindness/,..
+     cold showers, s/eye masks/probably apply (too much)? pressure, and cause blindness/,..
      i want a sit-stand desk; ankhle, lotus, standing meditation, horse stances,..
      s/hours/minutes/
  https://www.gkrkarate.com/about-gkr/black-belt-3rd-dan/
