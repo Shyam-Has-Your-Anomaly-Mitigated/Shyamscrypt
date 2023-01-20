@@ -154,7 +154,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  (blood, sweat, and) tears: desk job, field work, spare hands, competitive combatant, champions(win once a /day|week|month|orbit|../; every losssnakes back to [0], so tears are ladders then, and each tear has its' own grading, where each tear is a drop in the bucket listed journey of self-discovery, self-realisation, self-enlightenment,..)
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
-search radius starts at the nearest one, and spreads out; after gkr iff they still adware at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
+search radius starts at the nearest one, and spreads out; after gkr iff they still adware(their website literally says lose weight; `+how long?`) at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
 school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
  i know no"-thing"; i do yoga, dancing(i'm a hare krishna; you see our plyometrics on the street), workout, gymnastics, arcrobatics, parkour, freerunning,.; you know no"-thing"
 price?
