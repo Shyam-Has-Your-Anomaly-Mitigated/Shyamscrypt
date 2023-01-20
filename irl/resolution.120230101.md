@@ -151,7 +151,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
  combative yoga; koongfa, where koong=combative, and fa=of=yoga, of course
  ground fighting includes all standing techniques, and vice versa,..
  sharmashram; full comprehensive education; not just dance lessons
- (blood, sweat, and) tears: desk job, instruct, field work, instruct, spare hands, instruct, competitive combatant, instruct, champions(win once a /day|week|month|orbit|../; every losssnakes back to [0], so tears are ladders then, and each tear has its' own grading, where each tear is a drop in the bucket listed journey of self-discovery, self-realisation, self-enlightenment,..), instruct
+ (blood, sweat, and) tears: desk job, instruct, field work, instruct, spare hands, instruct, competitive combatant, instruct, champions(win once a /day|week|month|orbit|../; every losssnakes back to [0], so tears are ladders then, and each tear has its' own grading, where each tear is a drop in the bucket listed journey of self-discovery, self-realisation, self-enlightenment,..), instruct; instructors cycle through all tears belower them, and everyone peer-reviews everyone (min -1 +1; unless deliberate practice,..)
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
 …
 search radius starts at the nearest one, and spreads out; after gkr iff they still adware(their website literally says lose weight; `+how long?`) at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
