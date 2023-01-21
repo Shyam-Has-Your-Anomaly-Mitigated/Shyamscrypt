@@ -156,6 +156,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
   peereview at every level; formal methods
   desk job includes /calligraphy((grow|make) your own (bamboo pen|charcoal ink|(palm leaf|birch bark) manuscripts|tools))|(..|2d|..|3d|..) (..|story boarding|..|animation|..)|../; comparator preferential priorities, top is mandatory peer-reviewed, and mandatory modification (can be from /another author|the past/), final axiom∘choice can be any(you get a full promotion for the first one, you get a maximum(half from full rewrite, half from full improvement)∘half promotion for the second, and you get a shared percentage for copy cat) successstory in game∘snakes&ladders; the reports include comparative essays, and (titular; maybe the whole "-thing", and the visual /a(rt|id)s/ literally tell "a thousand" words of literary peereview literature) poetry
     you get more% iff it's new; style, usage,..
+     you get more iff it's more narrow minded tunnel vision; i'll only use my rhs little finger, turn clockwise, and move once in each cardinal direction every four moves, while tap dancing (for the spin #loophole!!! :D)(sac(rifi)king points ftw)
     you get less% iff you use it more
    papers include; shyam rules from scratch, shyam rules modding, style from scratch, modstyle, instructions from scratch, moddinstructions, every facet from scratch, modded every facet, (self(ee(s)))reports at every snake&ladder,..
     birch bark is worth more than palm leaf; the bigger, the better; one mistake, and it's n0 g%d #reboot
