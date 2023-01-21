@@ -176,7 +176,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
 so undefeated is possible; the first competition (at least one /virgin|loser/) = winner(champ) + loser(loser); the champ can lose at instructing (any tear), becoming an exchamp; the second competition (at least one exchamp) = winner(champ) + loser(exchamp); the champ can lose at instructing (any tear), becoming an exchamp; the third competition (at least one champ) = winner(champ) + loser(exchamp); the champ can lose at instructing (any tear), becoming an exchamp; reboot as nth champ
  exchamps won a competition, and then rebooted; champ is s/synonymous|antynomous|antonymous|../means different|../ c̄ champ
 external cultural exchanges only involve our best; b2b, and now it every"-thing" changes every"-thing"
- 2simplify; you just keep /your streak going|streaking/, or you get no points, unless /mod|../
+ 2simplify; you just keep /your streak going|streaking/, or you get s/no/fewer/ points, unless /mod|../
  game∘pvp v game∘b2b v game∘tvt([1≤t]) v game∘usdt2usdt([1≤usdt]) v game∘s&l v.; diff scoreboards, where iiis proving ground, and lvl5'S training ground
  proving ground gets more points for /originality|creativity|../; retry gets less points so you have to win more to beat your score
 …
