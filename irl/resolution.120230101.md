@@ -173,6 +173,10 @@ i'll just do aikido, and that's all the government will know about; for legal pu
   the ratio of s/corporate/martial/ladders(100%) to snakes(0%) is the players score, and also ratio of streaks (latest, and greatest; "undefeated" = equaliser, and i was right all of along!!! :D)
   the more people, the cheaper for everyone; referral comp(for as long as they stay(alive))!!! :D
 ~does anyone use your /stances|blocks|katas(this is like karate(jesse enkamp says there is no karate; ranked an (analog|(living|breathing)|(wall|tall)king) encyclopaedic style that can be digitally docommented)? is like chess)?|../ in irl, competitions, mma,.?
+so undefeated is possible; the first competition (at least one /virgin|loser/) = winner(champ) + loser(loser); the champ can lose at instructing (any tear), becoming an exchamp; the second competition (at least one exchamp) = winner(champ) + loser(exchamp); the champ can lose at instructing (any tear), becoming an exchamp; the third competition (at least one champ) = winner(champ) + loser(exchamp); the champ can lose at instructing (any tear), becoming an exchamp; reboot as nth champ
+ exchamps won a competition, and then rebooted; champ is s/synonymous|antynomous|antonymous|../means different|../ c̄ champ
+external cultural exchanges only involve our best; b2b, and now it every"-thing" changes every"-thing"
+ 2simplify; you just keep /your streak going|streaking/, or you get no points, unless /mod|../
 …
 search radius starts at the nearest one, and spreads out; after gkr iff they still adware(their website literally says lose weight; `+how long?`) at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
  https://www.gkrkarate.com/about-gkr/gkr-karate-journey/gkr-karate-grading-criteria/
