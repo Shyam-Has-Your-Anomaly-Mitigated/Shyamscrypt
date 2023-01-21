@@ -164,6 +164,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
       peereviewed tr assanskrit1 assanskrit2 = you can bypass peer-review, and /participate|challenge(you get more points competing against styles that are more different)?/ in both; using the same style
        thanks to sanskrit(1÷श्याम) (<that's a multiplication, where sanskrit depends on {og,mod,`cp;cat`,..}; it's more about the forgetting curve (we can disappear, like dhalsim, ninja(s),..),..), all points run off the screen
        cultural exchanges teach others /n(ot|ever)/ to underestimate their enemies; when (grand)masters l0se t0 n0"-thing" #meme
+        (streak)breakers;breaking(the rhythm∘streakers)
    mods; full og v half mux v copycat rewrite
   instructors cycle through all tears belower them, and everyone peer-reviews everyone (min -1 +1; unless deliberate practice,..); instructors ref(full disclosure; blowing the whistle, interference,.; this determines delays, trainings,..), middle refs must instruct both sides of the equation
   champs also return to deskjob, after successfully instructing students successfully to the next tear successfully, after celebrating a full yuga; the equivalent to black belts,..
