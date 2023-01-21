@@ -49,7 +49,8 @@ The only reason I stopped at $50 last time, was because I lost it in 15m; I star
 
 I'm thinking about alternatives; iff you have any ideas? After my back (hopefully) heals, and my life finally returns to some degree of normalcy; I'm thinking about martial arts. What do you think of these?
 
-Isolation Styles:
+Isolation 
+s:
 ‣ Boxing (punching)
 ‣ Taekwondo (kicking; they go exclusively kamikaze style during competitions, where it's a quest for one-hit-knock-out head-kicking dominance, but sometimes it's a tie fighter; in star wars you can hear screams in space)
 ‣ Judo (takedowns; subset of Japanese Jujutsu)
@@ -155,6 +156,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
   peereview at every level; formal methods
   desk job includes /calligraphy((grow|make) your own (bamboo pen|charcoal ink|(palm leaf|birch bark) manuscripts|tools))|(..|2d|..|3d|..) (..|story boarding|..|animation|..)|../; comparator preferential priorities, top is mandatory peer-reviewed, and mandatory modification (can be from /another author|the past/), final axiom∘choice can be any(you get a full promotion for the first one, you get a maximum(half from full rewrite, half from full improvement)∘half promotion for the second, and you get a shared percentage for copy cat) successstory in game∘snakes&ladders; the reports include comparative essays, and (titular; maybe the whole "-thing", and the visual /a(rt|id)s/ literally tell "a thousand" words of literary peereview literature) poetry
    papers include; style from scratch, modstyle, shyam rules from scratch, modded shyam rules modding,..
+   mods; full og v half mux v copycat rewrite
   instructors cycle through all tears belower them, and everyone peer-reviews everyone (min -1 +1; unless deliberate practice,..); instructors ref(full disclosure; blowing the whistle, interference,.; this determines delays, trainings,..), middle refs must instruct both sides of the equation
   champs also return to deskjob, after successfully instructing students successfully to the next tear successfully, after celebrating a full yuga; the equivalent to black belts,..
   undefeated(who gets an award just for existing, and how is it an award iff you lose it? so is everyone else who isn't even born yet; you're just a drop in the bucket list, and i don't care iff it works anyway, /with(out)?/ delay), fastracking(is not even allowed; champs have to success to progress),.; aren't considered, and you automatically lose your first fight (so now you are undefeated, before you even began, and…maybe you need to be an autochamp, and autolose to become an exchamp; whatever loser…fine you just have to wait for loser instructors to lose it for others, and themselves; i'm not going to make it easy)(so now you are defeated, before you even began, and…competitions can actually take place)
