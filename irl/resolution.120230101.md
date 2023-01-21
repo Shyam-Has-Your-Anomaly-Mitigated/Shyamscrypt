@@ -159,7 +159,7 @@ i'll just do aikido, and that's all the government will know about; for legal pu
     you get less% iff you use it more
    papers include; shyam rules from scratch, shyam rules modding, style from scratch, modstyle, instructions from scratch, moddinstructions, every facet from scratch, modded every facet, (self(ee(s)))reports at every snake&ladder,..
     birch bark is worth more than palm leaf; the bigger, the better; one mistake, and it's n0 g%d #reboot
-     different schools? the school∘sanskrit is mental, and the first draft is the final draft, whereass the school∘assanskrit(schwaddition; asamskrtam) can use computers before (re)ink, and can reink
+     different schools? the school∘sanskrit is mental, and the first draft is the final draft, where no mistakes are tolerated, whereass the school∘assanskrit(schwaddition; asamskrtam) can use computers before (re)ink, and can reink
       peereviewed tr assanskrit1 assanskrit2 = you can bypass peer-review, and /participate|challenge(you get more points competing against styles that are more different)?/ in both; using the same style
    mods; full og v half mux v copycat rewrite
   instructors cycle through all tears belower them, and everyone peer-reviews everyone (min -1 +1; unless deliberate practice,..); instructors ref(full disclosure; blowing the whistle, interference,.; this determines delays, trainings,..), middle refs must instruct both sides of the equation
