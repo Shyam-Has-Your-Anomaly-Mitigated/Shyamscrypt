@@ -177,6 +177,7 @@ so undefeated is possible; the first competition (at least one /virgin|loser/) =
  exchamps won a competition, and then rebooted; champ is s/synonymous|antynomous|antonymous|../means different|../ c̄ champ
 external cultural exchanges only involve our best; b2b, and now it every"-thing" changes every"-thing"
  2simplify; you just keep /your streak going|streaking/, or you get no points, unless /mod|../
+ game∘b2b v game∘s&l v.; diff scoreboards
 …
 search radius starts at the nearest one, and spreads out; after gkr iff they still adware(their website literally says lose weight; `+how long?`) at westies after the 17ᵗʰ∘feb, and they give a gi!!! :D #givægi
  https://www.gkrkarate.com/about-gkr/gkr-karate-journey/gkr-karate-grading-criteria/
