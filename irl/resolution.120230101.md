@@ -199,7 +199,8 @@ does anyone actually use your /stances|blocks|katas|../ in competitions, mma, ir
 contracts? (teaching v startup, death & injury waiver)
  my 24h(even during holidays; you must provide contact details, so i can sell your data "just like everyone else", and harass you for atten-dance lessons) school will teach /teaching|first aid (like science∘gardening; red cabbage drink, not off-the-shelf-product-placements@bunnings..!..-_-..!..)?|../, my instructors are expected to show up; especially iff they aren't instructing, unless they only show up for grading; daily(the more you do it, the /better|worse/ your reputation; this determines competition participation, /promotion|demotion/,..)
  more instructors is optimal; i got graded by every other grade #peereview
- one student per /instructors?|lesson/ #culture
+ one student per /instructors?|lesson/ #culture #metasync
+ group training #sync
 
 
 
