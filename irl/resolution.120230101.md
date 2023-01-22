@@ -49,8 +49,7 @@ The only reason I stopped at $50 last time, was because I lost it in 15m; I star
 
 I'm thinking about alternatives; iff you have any ideas? After my back (hopefully) heals, and my life finally returns to some degree of normalcy; I'm thinking about martial arts. What do you think of these?
 
-Isolation 
-s:
+Isolation Styles:
 ‣ Boxing (punching)
 ‣ Taekwondo (kicking; they go exclusively kamikaze style during competitions, where it's a quest for one-hit-knock-out head-kicking dominance, but sometimes it's a tie fighter; in star wars you can hear screams in space)
 ‣ Judo (takedowns; subset of Japanese Jujutsu)
