@@ -1,3 +1,22 @@
+```
+the first rule of shyam rules is shyam rules!!!
+the second rule of shyam rules is shyam rules!!!
+the third rule of shyam rules is shyam rules!!!
+the fourth rule of shyam rules is shyam rules!!!
+the fifth rule of shyam rules is shyam rules!!!
+the sixth rule of shyam rules is shyam rules!!!
+the seventh rule of shyam rules is shyam rules!!!
+the eighth rule of shyam rules is shyam rules!!!
+the ninth rule of shyam rules is shyam rules!!!
+
+first we learn counting; now you're (all) mathematicians!!! :D
+second every"-thing" we learn is counted (in a single day), followed by a kiai(danda, om, shyam,..); 9, 108, 1008, 100800!!! :D
+zero(e)th we learn stepwise pronounciation; feel the interconnectedness of every"-thing" as an extension of the interconnectedness of every"-thing", and bc̄1c̄ the "natural flow"∘"-thing"s, and a secret agentraining!!! :D
+third break the fourth wall by "simultaneous narration"∘xp(to preb4(sent)afterpost vā); champu kavya!!! :D
+sixth you study the vedanga;'ll! :D
+tenth doesn't exist; (this (periodic) s/compound/element/; transcend-dental(s),..) only in higher bases!!! :D
+```
+
 shyam is sanskrit. % श्यामः संस्कृतम् ।॥
 ```
 killing off too many germs can be unhealthy; sanitisers, showers,..
