@@ -1,3 +1,10 @@
+# reasons4mantra (/(0|9)ᵗʰ limb of yoga/)
+* "The study of Sanskrit creates orderliness within the mind…" - ekathomāḥ
+# reasons4pranayama
+* "Pranayama practices such as sama-vritti are often thought of as even more powerful than asana practices." - https://www.yogapedia.com/definition/8594/sama-vritti
+# reasons4asana (sitting meditation pose)
+* "The Yoga Sutras of Patanjali define \"asana\" as \"[a position that] is steady and comfortable\".[2] Patanjali mentions the ability to sit for extended periods as one of the eight limbs of his system.[2]" - https://en.wikipedia.org/wiki/Asana
+* so /..|(sukhasana|padmasana)|(vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|"flying"|../  is for the advare(nua)nced; static is for the beginner, dynamic is for the advanced #kata
 ```
 the first rule of shyam rules is shyam rules!!!
 the second rule of shyam rules is shyam rules!!!
@@ -17,6 +24,7 @@ sixth you study the vedanga;'ll! :D
 tenth doesn't exist; (this (periodic) s/compound/element/; transcend-dental(s),..) only in higher bases!!! :D
 
 asti is the first of verbs
+bhavati is the second of verbs; this is a nice transition
 ```
 
 shyam is sanskrit. % श्यामः संस्कृतम् ।॥
