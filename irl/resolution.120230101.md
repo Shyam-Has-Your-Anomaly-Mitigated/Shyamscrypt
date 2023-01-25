@@ -406,6 +406,11 @@ In the beginning, Prabhupadas' Club exclusively allowed ganja; it's common knowl
 What Yoga? That can mean literally any"-thing"; in the grand scheme of Sanskritic poetry. Will Bhakti Yoga, or Hasya Yoga, or Yoga Nidra, or Milam, or Tummo, strengthen my back? Hot Yoga v Himalayan Yoga? How (in)frequently should I do it? Studying Sanskrit is Yoga! Otherwise there's always HeavyWeight Yoga… Butt Naked Yoga is the only way!
 
 
+
+power yoga
+
+
+
 Ganja is as sacred as Tulasi is as sacred as Lotus; this is indisputable, and I think Tulasi can get us high, the same as the others, but Ganja needs to be prepared, and I'ven't tried Lotus yet.
 
 I'm not initiated, so I'm a free spirit; free to do whatever I want, and fiercely uncontrollable by others.
