@@ -407,7 +407,7 @@ What Yoga? That can mean literally any"-thing"; in the grand scheme of Sanskriti
 
 
 
-power yoga
+power yoga, restorative yoga, yin yoga, yoga as therapyrapy, yoga as exercise, yoga using "props" to my danda⦀ :D
 
 
 
