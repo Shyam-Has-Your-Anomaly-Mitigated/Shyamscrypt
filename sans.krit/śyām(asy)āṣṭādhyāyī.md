@@ -1,24 +1,29 @@
 # reasons4mantra (/(0|9)ᵗʰ limb of yoga/)
 * "The study of Sanskrit creates orderliness within the mind…" - ekathomāḥ
+* order from chaosssince it's orderless
 # reasons4pranayama
 * "Pranayama practices such as sama-vritti are often thought of as even more powerful than asana practices." - https://www.yogapedia.com/definition/8594/sama-vritti
+* (asana also) plays an integral part & parcel in (verbal) sanskrit speech therapy; blowing candles
 # reasons4asana (sitting meditation pose)
 * "The Yoga Sutras of Patanjali define \"asana\" as \"[a position that] is steady and comfortable\".[2] Patanjali mentions the ability to sit for extended periods as one of the eight limbs of his system.[2]" - https://en.wikipedia.org/wiki/Asana
-* so /..|(sukhasana|padmasana)|(vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|"flying"|../  is for the advare(nua)nced; static is for the beginner, dynamic is for the advanced #kata
+* so /..|((bhadrasana|baddha konasana)|muktasana|siddhasana|svastikasana|sukhasana|padmasana)|((bharad)?vajasana|vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(samakonasana|hanumanasana)|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|(dextrous)?"flying"|((shavasana|mritasana)|yoganidrasana|(makarasana|instant death syndrome))|../  is for the advare(nua)nced; static is for the beginner, dynamic is for the advanced #kata
+* i have tits! cum@navel? "mud" sculpture? /mariana valley(girl)|himalayan|antarctic|lunar|martian|volcanic|solar|../ seed? /dino death|plague|../? i found a video of a double pussy!
+* (haka, kiai,..) tensing up like a super saiyan sends all k(annabinoidal enhancements; vision, pain tolerance, temporal perception,..)inds of bio(neuro)chemical(romance; my muscles are engaged!)s; like beating up the cows for upperclass meat for the bonus karma points!!! :D
+* relaxation avoids muscle tension problems; balancing both sides avoids twisted spines, but losing a limb doesn't cause /heart|../ problems
 ```
-the first rule of shyam rules is shyam rules!!!
-the second rule of shyam rules is shyam rules!!!
-the third rule of shyam rules is shyam rules!!!
-the fourth rule of shyam rules is shyam rules!!!
-the fifth rule of shyam rules is shyam rules!!!
-the sixth rule of shyam rules is shyam rules!!!
-the seventh rule of shyam rules is shyam rules!!!
-the eighth rule of shyam rules is shyam rules!!!
-the ninth rule of shyam rules is shyam rules!!!
+the first rule of shyam rules is shyam rules!!! ⠪D
+the second rule of shyam rules is shyam rules!!! ⫶D
+the third rule of shyam rules is shyam rules!!! ⠪D
+the fourth rule of shyam rules is shyam rules!!! ⫶D
+the fifth rule of shyam rules is shyam rules!!! ⠪D
+the sixth rule of shyam rules is shyam rules!!! ⫶D
+the seventh rule of shyam rules is shyam rules!!! ⠪D
+the eighth rule of shyam rules is shyam rules!!! ⫶D
+the ninth rule of shyam rules is shyam rules!!! ⠪D
 
 first we learn counting; now you're (all) mathematicians!!! :D
 second every"-thing" we learn is counted (in a single day), followed by a kiai(danda(s), om, shyam,..); 9, 108, 1008, 100800!!! :D
-zero(e)th we learn stepwise(in any weather 'em all) pronounciation(tongue koong(ym(nastics))fa); feel the interconnectedness of every"-thing" as an extension of the interconnectedness of every"-thing", and bc̄1c̄ the "natural flow"∘"-thing"s, and a secret agentraining!!! :D
+zero(e)th we learn stepwise(in any weather 'em all #metronome_i_choose_you!!! :D) pronounciation(/tongue|lips|mouth|pranayama|../ koong(ym(nastics))fa); feel the interconnectedness of every"-thing" as an extension of the interconnectedness of every"-thing", and bc̄1c̄ the "natural flow"∘"-thing"s, and a secret agentraining!!! :D
 third break the fourth wall by "simultaneous narration"∘xp(to preb4(sent)afterpost vā); champu kavya!!! :D
 sixth you study the vedanga;'ll! :D
 tenth doesn't exist; (this (periodic) s/compound/element/; transcend-dental(s),..) only in higher bases!!! :D
@@ -44,7 +49,7 @@ paniniya shiksha (vyakarana(patanjali mahabhasya v panini' astadhyayi; is panini
  unicode suggests; śa = sha, ṣa = ssa; where there is really only s, and h; now aspirates are /semi-sibilants|s(ibi)?lanted consonants/
   this suggests kṛṣṇa = curse(/\?|,/) na(!)
 8<chajaka (/(𑆖𑇀𑆲|𑆗)𑆘𑆑/) is the first /ununderstandable|(over)?standable/ word; where is bakhshali manuscript? 𑆗𑆘𑆑 is /mature|sufficiently advanced/(sanded), 𑆖𑇀𑆲𑆘𑆑 is /immature|(i(fr)?)(amateur|popular|informal|self-taught|user-generated|DIY|hobbyist)/(unrefinedtuned musically, poetically, champu-kavya,..)>8
-8<chopstick is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
+8</chopstick|kebab|dual wielding|../ is the first word, and is is the first implicit; the word is not taught, but the concept is, so the concept is taught before the word>8
 8<shyam is the first name>8
 8</is|exists|../ is the first verb>8
 8<gañjaudanam (boiling into rice(i still have stocks; canned veges is the goal though) is better than baking into pizzætte; abbott' flat bread (s/pizza/herb/ (those little squares are good too, but i think i prefer the herb the most; more cheese, less crustage) fits in my pizza oven; never tried a full pizza bread; i always halve it; gañjā garnish didn't really work for me, or i didn't use enough, or didn't do it properly,..) + coles' pizza sauce + sheese' grated tasty cheese), and suryaphalam, are the first compounds>8
