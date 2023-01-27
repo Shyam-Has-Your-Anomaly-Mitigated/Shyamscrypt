@@ -197,6 +197,7 @@ search radius starts at the nearest one, and spreads out; after gkr iff they sti
   this leads me to believe, the romans own this style
 school me about your style? (i'll lean into your attacks for the money, i'll apply my degree in engineering mathematics to geo-me-trick-ally /compute|calculate/ the expert perpendicular weakness of your stance(s) (it's like riding /bus|train|../),..)
  i know no"-thing"; i do yoga, dancing(i'm a hare krishna; you see our plyometrics on the street), workout, gymnastics, arcrobatics, parkour, freerunning,.; you know no"-thing"
+what are your other experiences? other styles? (other instructors?)
 price?
 how many classes averages black belt?
 price?
