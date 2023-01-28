@@ -1,4 +1,5 @@
 # reasons4mantra (/(0|9)ᵗʰ limb of yoga/)
+* sanskrit is purification(brainwashing, /mind|self/ control,..) itself - shamasastry'tootda'73
 * "The study of Sanskrit creates orderliness within the mind…" - ekathomāḥ
 * order from chaosssince it's orderless
 # reasons4pranayama
