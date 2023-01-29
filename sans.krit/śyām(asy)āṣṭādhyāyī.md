@@ -7,7 +7,7 @@
 * (asana also) plays an integral part & parcel in (verbal) sanskrit speech therapy; blowing candles
 # reasons4asana (sitting meditation pose)
 * "The Yoga Sutras of Patanjali define \"asana\" as \"[a position that] is steady and comfortable\".[2] Patanjali mentions the ability to sit for extended periods as one of the eight limbs of his system.[2]" - https://en.wikipedia.org/wiki/Asana
-* so /..|((bhadrasana|baddha konasana)|muktasana|siddhasana|svastikasana|sukhasana|padmasana)|((bharad)?vajasana|vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(samakonasana|hanumanasana)|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|(dextrous)?"flying"|((shavasana|mritasana)|yoganidrasana|(makarasana|instant death syndrome))|../  is for the advare(nua)nced; static is for the beginner, dynamic is for the advanced #kata
+* so /..|((bhadrasana|baddha konasana)|muktasana|siddhasana|svastikasana|sukhasana|padmasana)|((bharad)?vajasana|vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(samakonasana|hanumanasana)|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|(dextrous)?"flying"|((shavasana|mritasana)|yoganidrasana|(makarasana|instant death syndrome))|../  is for the advare(nua)nced; static is for the beginner, slow dynamic is for the intermediate, fast dynamic is for the advanced #kata
 * i have tits! cum@navel? "mud" sculpture? /mariana valley(girl)|himalayan|antarctic|lunar|martian|volcanic|solar|../ seed? /dino death|plague|../? i found a video of a double pussy!
 * (haka, kiai,..) tensing up like a super saiyan sends all k(annabinoidal enhancements; vision, pain tolerance, temporal perception,..)inds of bio(neuro)chemical(romance; my muscles are engaged!)s; like beating up the cows for upperclass meat for the bonus karma points!!! :D
 * relaxation avoids muscle tension problems; balancing both sides avoids twisted spines, but losing a limb doesn't cause /heart|../ problems
@@ -23,7 +23,7 @@ the eighth rule of shyam rules is shyam rules!!! ⫶D
 the ninth rule of shyam rules is shyam rules!!! ⠪D
 
 first we learn counting; now you're (all) mathematicians!!! :D
-second every"-thing" we learn is counted (in a single day), followed by a kiai(danda(s), om, shyam,..); 9, 108, 1008, 100800!!! :D
+second every"-thing" we learn is counted (in a single day), followed by a kiai(danda(s), om, shyam,..); 9, 108, 1008, 10800, 100800!!! :D
 zero(e)th we learn stepwise(in any weather 'em all #metronome_i_choose_you!!! :D) pronounciation(/tongue|lips|mouth|pranayama|../ koong(ym(nastics))fa); feel the interconnectedness of every"-thing" as an extension of the interconnectedness of every"-thing", and bc̄1c̄ the "natural flow"∘"-thing"s, and a secret agentraining!!! :D
 third break the fourth wall by "simultaneous narration"∘xp(to preb4(sent)afterpost vā); champu kavya!!! :D
 sixth you study the vedanga;'ll! :D
