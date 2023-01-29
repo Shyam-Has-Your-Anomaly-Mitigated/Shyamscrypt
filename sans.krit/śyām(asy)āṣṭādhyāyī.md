@@ -1,11 +1,15 @@
-# reasons4mantra (/(0|9)ᵗʰ limb of yoga/)
+# reasons4(mantra,yantra) (/(0|9)ᵗʰ limb of yoga/, mantras have geometric waveforms)
 * sanskrit is purification(brainwashing, /mind|self/ control,..) itself - shamasastry'tootda'73
 * "The study of Sanskrit creates orderliness within the mind…" - ekathomāḥ
-* order from chaosssince it's orderless
+  * order from chaosssince it's orderless; this is a waste of space(s)
+* "It is thus clear that there are three different sets of hieroglyphics designed for worship." - shamasastry'tootda'73
+  * "First, such simple figures as a straight line, a circle, or a triangle appear to have been severally worshipped by beginners." - shamasastry'tootda'73
+  * "Next comes the figure of Kāmī-kalā, which, as consisting of a number of simple figures, appears to have been an object of worship" `(of intermediates)` "after a little experience" - shamasastry'tootda'73
+  * "As the formation of the figure of the hermaphrodite god Siva or Kāma requires a considerable knowledge of the constituents of both the Universe and the human frame, it must necessarily have been an object of worship among the advanced" - shamasastry'tootda'73
 # reasons4pranayama
 * "Pranayama practices such as sama-vritti are often thought of as even more powerful than asana practices." - https://www.yogapedia.com/definition/8594/sama-vritti
 * (asana also) plays an integral part & parcel in (verbal) sanskrit speech therapy; blowing candles
-# reasons4asana (sitting meditation pose)
+# reasons4(mudra,asana) (sitting meditation pose, /interpretive|communicative/ dance)
 * "The Yoga Sutras of Patanjali define \"asana\" as \"[a position that] is steady and comfortable\".[2] Patanjali mentions the ability to sit for extended periods as one of the eight limbs of his system.[2]" - https://en.wikipedia.org/wiki/Asana
 * so /..|((bhadrasana|baddha konasana)|muktasana|siddhasana|svastikasana|sukhasana|padmasana)|((bharad)?vajasana|vajrasana|virasana)|("malasana"|utkatasana|upaveshasana("The horse stance is the main posture of the Shiva form and is related to the virabhadrasana (warrior pose) in yoga." - https://en.wikipedia.org/wiki/Horse_stance#Indian_martial_arts)?)|(pranamasana(https://en.wikipedia.org/wiki/Sun_Salutation)?|tadasana)|../ is for the beg-innerself, /..|(samakonasana|hanumanasana)|(kapalasana|shirshasana)|syenasana|adho mukha vri?ksh?asana|../ is for the intermediate4skin, /..|(dextrous)?"flying"|((shavasana|mritasana)|yoganidrasana|(makarasana|instant death syndrome))|../  is for the advare(nua)nced; static is for the beginner, slow dynamic is for the intermediate, fast dynamic is for the advanced #kata
 * i have tits! cum@navel? "mud" sculpture? /mariana valley(girl)|himalayan|antarctic|lunar|martian|volcanic|solar|../ seed? /dino death|plague|../? i found a video of a double pussy!
