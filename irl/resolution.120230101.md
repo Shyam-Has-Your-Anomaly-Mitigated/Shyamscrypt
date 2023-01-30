@@ -199,6 +199,8 @@ school me about your style? (i'll lean into your attacks for the money, i'll app
  i know no"-thing"; i do yoga, dancing(i'm a hare krishna; you see our plyometrics on the street), workout, gymnastics, arcrobatics, parkour, freerunning,.; you know no"-thing"
 what are your other experiences? other styles? (other instructors?)
 what books, videos, and other materialistic resources, do you recommend?
+what is your medical? what are your frequencies? doctors, dentists, psychologists, psychiatrists, massagers, acupressurists, therapists, therapies(neo ice bucket challenge),..
+why did you study this martial art? (and others?) why should i learn this martial art? #practice
 price?
 how many classes averages black belt?
 price?
