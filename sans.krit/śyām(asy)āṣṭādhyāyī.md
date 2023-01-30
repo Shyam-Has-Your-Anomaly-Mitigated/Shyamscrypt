@@ -35,6 +35,9 @@ tenth doesn't exist; (this (periodic) s/compound/element/; transcend-dental(s),.
 
 asti is the first of verbs
 bhavati is the second of verbs; this is a nice transition
+rng, and the student can organise them; iff they notice any patterns, and all graduates are superior to mens'a(cademy)
+dm is a good (speed)reading exercise; `list words | uniq | rng # through all the words; old school style, like handcalligraffiting mathematics`
+holy cow, /holy|bull/ shit (gobar), mother of god,.; how now brown cow? j sues christ! (/(st|c)upid cherubs/, water((al)o(vera)gel), (p)indic, ten quarters is a quarter∘ten)
 ```
 
 shyam is sanskrit. % श्यामः संस्कृतम् ।॥
