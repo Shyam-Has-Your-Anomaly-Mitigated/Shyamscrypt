@@ -1,3 +1,4 @@
+*aman walksin toa templ e.. (p raysin sanskrit, and awaits a sing from the gods; "o such-and-such do any of your worshippers understand the words i speak?",..)*
 # reasons4(mantra,yantra) (/(0|9)ᵗʰ limb of yoga/, mantras have geometric waveforms)
 * sanskrit is purification(brainwashing, /mind|self/ control,..) itself - shamasastry'tootda'73
 * "The study of Sanskrit creates orderliness within the mind…" - ekathomāḥ
