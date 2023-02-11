@@ -122,4 +122,4 @@ butt chugging = bottom feeding; multivitamins, meds, dental dentistry, chemical 
 and0r(gates)
 
 shyam-complete sharmed shyams'cript; /whe(re|n|..)|how|../ you put it counts? (a) -> (a)] -> [(a)] v (a) -> (a)] -> ([a)] v intervals v..
-consing(ing); consort, consigning,..
+consing(ing); consort, consigning, consequence,..
